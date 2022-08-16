@@ -1,11 +1,3 @@
-/**
- * @Time : 2022/8/11 6:54 PM
- * @Author : frankj
- * @Email : --
- * @Description : --
- * @Revise : --
- */
-
 package main
 
 const domain = "https://cn.bing.com"
