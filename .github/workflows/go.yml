@@ -6,8 +6,8 @@ on:
   #pull_request:
   #  branches: [ "main" ]
   schedule:
-    # Runs at 13:49 UTC every day
-    - cron:  '40 13 * * *'
+    # Runs at 6:00 UTC every day
+    - cron:  '0 6 * * *'
 
 jobs:
 
