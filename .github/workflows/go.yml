@@ -1,10 +1,13 @@
 name: Go
 
 on:
-  push:
-    branches: [ "main" ]
-  pull_request:
-    branches: [ "main" ]
+  #push:
+  #  branches: [ "main" ]
+  #pull_request:
+  #  branches: [ "main" ]
+  schedule:
+    # Runs at 9:13 UTC every day
+    - cron:  '30 13 * * *'
 
 jobs:
 
