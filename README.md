@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220816
+
+> The Great White Roller Coaster at Wildwood, New Jersey (© John Van Decker/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> To really get the feel for today's photo, stop what you're doing, put your hands in the air, and imagine yourself plunging downhill at 50 miles an hour. Screaming is optional. It's National Roller Coaster Day and we're waiting in line at Morey's Piers in Wildwood, New Jersey, for our ride on the Great White. A hybrid wooden and steel coaster, it's been in operation since 1996 and reaches its highest point 110 feet above the ground. Coaster enthusiasts point out the ride's dip under the pier shortly after the start as one of its highlights. It's also noted for a portion of the ride swinging out over the nearby beach.
+> 
+> Roller coasters have come a long way since their early days beginning in the 17th century as Russian sled rides. Eventually called Russian Mountains, those original rides were just tall, wooden ramps covered in ice. When the concept made its way to the much warmer France, the sleds rolled across the tracks on wooden rollers, hence the name 'roller coaster.' Coasters saw another advancement in the 1870s when a Pennsylvania mining company built a downhill gravity railroad to transport coal. Its train cars held double duty by giving thrill rides to tourists during down time.
+> 
+> By the 1920s, coasters had entered their 'golden age.' New construction techniques allowed designers to build them taller, longer, and faster, drawing crowds to newly opened amusement parks around the world. These days, the United States alone has about 760 roller coasters, and thrill seekers take them on roughly 1.7 billion rides per year. Aieeeeee!
+
+</details>
+
+| ![National Roller Coaster Day](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Roller Coaster Day](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_1080x1920.jpg) |
+
 ### 20220815
 
 > Chittorgarh Fort, India (© Anand Purohit/Getty Images)
@@ -113,22 +132,3 @@
 | ![Joshua Tree National Park](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Joshua Tree National Park](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_1080x1920.jpg) |
-
-### 20220809
-
-> Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> What at first glance appears to be graffiti tagged on a rock wall is, in fact, artwork created by the first human settlers of this remote region deep in Argentine Patagonia. It's thought that the cave paintings were made between 13,000 and 9,500 years ago. The archaeological site is known in Spanish as the Cueva de las Manos (Cave of the Hands). It's the largest display of prehistoric handprints in the world, made all those years ago by people holding a hand against the rock wall and blowing pigments through tubes made of bone. Of the 829 black, white, red, and ochre prints, most are of young male hands. One print has six fingers, and only 31 are of right hands.
-> 
-> The cave paintings were created in at least three waves over thousands of years by ancestors of the Tehuelche people. Archaeologists have hypothesized that the artists were hunter-gatherers. This theory is supported by the fact that even older than the handprints are depictions of guanacos (a relative of the llama, and the main source of food at the time), rheas (large flightless birds), and hunting scenes.
-> 
-> Today, more than 476 million Indigenous people live in various regions of the world, like the Teheulche, who continue to live in Patagonia near the southern border between Argentina and Chile. To honor and protect the rights of the world's current Indigenous populations, the UN marks each August 9 as International Day of the World's Indigenous Peoples. We'll raise our hands in support of that.
-
-</details>
-
-| ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.CuevaManos_EN-US2810052050_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.CuevaManos_EN-US2810052050_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CuevaManos_EN-US2810052050_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CuevaManos_EN-US2810052050_1080x1920.jpg) |
