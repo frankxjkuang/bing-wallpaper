@@ -2,164 +2,136 @@
 
 ### 20220818
 
-> 哥德堡群岛的岸边，瑞典 (© Martin Wahlborg/Getty Images)
+> Källö-Knippla, an island in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 把你的鼻子捂严实了，今天是盐腌鲱鱼日！我们将在瑞典开封今年的盐腌鲱鱼，享用这些神奇的腐烂食物。盐腌鲱鱼是用4月和5月捕获的波罗的海鲱鱼，加少量盐腌制发酵而成。从20世纪40年代开始，一项皇家法令就禁止在8月的第三个星期四之前出售盐腌鲱鱼，以防止未完全发酵的鱼被出售。现在，瑞典已没有了这项法令，但这个规矩已经成了当地传统。
+> Get your clothespins ready, it's Surströmming Day! For the uninitiated, that means we're in Sweden and cracking open this year's surströmming harvest to enjoy its putrid wonder. Surströmming is Baltic herring that's been caught in April and May, then lightly salted and allowed to ferment. Beginning in the 1940s, a royal ordinance forbade the selling of Surströmming before the third Thursday in August to prevent incompletely fermented fish from being sold. The ordinance is no longer on the books, but the tradition holds.
 > 
-> 瑞典人沉迷于装在烟熏罐头里的盐腌鲱鱼。他们坚持应该在室外打开这种罐头，最好是在水下打开，这样可以减轻“世界最臭食物”的恶臭。你可能已经看过那些流行的挑战视频，视频中人们尝试打开盐腌鲱鱼罐头尝一尝，最终惨遭失败。这正是其中的乐趣，虽然这些视频并没有真正展示出盐腌鲱鱼的风味。
+> Swedes indulge in fermented herring from bloated cans that most insist should be opened outside and preferably underwater. That's the recommended way to alleviate the stench from what some call the world's worst-smelling food. You may have seen popular 'challenge' videos of people trying to brave the experience and failing miserably. That's part of the fun, even if those videos are not the best representations of a true surströmming feast.
 > 
-> 今天的照片是哥德堡群岛北部的一个小渔村。此时，那里的人们可能正在享用加了盐腌鲱鱼的瑞典薄饼。他们通常还会再加上红洋葱、酸奶油和莳萝，佐以一杯酒、啤酒甚至是牛奶。据说，这样吃起来味道非常刺激，风味极佳，带着酸味。当然，前提是你能咽得下去。一位美食评论家曾有句名言：“吃盐腌鲱鱼最大的挑战不是在吃之前吐，而是吃了第一口之后才吐。
+> In today's photo, we're visiting a small fishing village on the island of Källö-Knippla in Gothenburg's northern archipelago. People there today might enjoy some surströmming on top of tunnbröd (flatbread). It's common to cover the fish in red onions, sour cream, and dill and then wash it all down with a shot of booze, a beer, or even milk. The taste is said to be very sharp, savory, and even acidic. That is, if you can keep it down. One food critic famously said that 'the biggest challenge when eating surströmming is to vomit only after the first bite, as opposed to before.'
 
 </details>
 
-| ![盐腌鲱鱼日](https://cn.bing.com/th?id=OHR.SourHerring_ZH-CN4136738467_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![盐腌鲱鱼日](https://cn.bing.com/th?id=OHR.SourHerring_ZH-CN4136738467_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Surströmming Day](https://cn.bing.com/th?id=OHR.SourHerring_EN-US2672490827_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Surströmming Day](https://cn.bing.com/th?id=OHR.SourHerring_EN-US2672490827_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SourHerring_ZH-CN4136738467_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SourHerring_ZH-CN4136738467_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SourHerring_EN-US2672490827_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SourHerring_EN-US2672490827_1080x1920.jpg) |
 
 ### 20220817
 
-> 大自然的水族馆中的水下景观，巴西 (© Michel Roggo/Minden Pictures)
+> Freshwater plants and tetra fish, Aquário Natural, Rio Baía Bonita, Mato Grosso do Sul, Brazil (© Michel Roggo/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 大自然的水族馆（纯天然的水族馆）是拜亚博尼塔河清澈透明的根源，也是拜亚博尼塔生态保护区的一大亮点。这个位于巴西内陆的偏远地区是生态旅游的热门地点。在大自然的水族馆，你可以徒步穿越丛林，也可以和30多种鱼一起浮潜，欣赏令人惊叹的绚丽水生植物。你还可以在银色河流中游泳，从236英尺的高空跳入阿纽马斯深渊洞穴的水里，以及走林中环道（悬挂式钢制走道）穿越树梢。
+> Aquário Natural (Natural Aquarium, naturally) is the pristine, crystal-clear source of the Baía Bonita River and a highlight of the Baía Bonita Ecological Reserve. This remote inland region near the town of Bonito, Brazil, is a popular spot for ecotourism. A tour of the Aquário Natural offers a hike through the jungle followed by snorkeling with over 30 varieties of fish and gorgeous vegetation to marvel at. Other popular activities of the area include swimming in the Rio da Prata (Silver River), rappelling 236 feet down into the waters of the Anhumas Abyss, and walking through the treetops on the suspended steel walkway of the Circuito Arvorismo (Trees Circuit).
 > 
-> 今天这张照片是由瑞士艺术家米歇尔·罗戈拍摄的。自2010年以来，罗戈就在世界各地寻找最美的淡水环境。他为此去了48个地方，拍摄了超过12000张照片。他的这个项目凸显了保护未污染地区、世界湿地和淡水生态系统的必要性。
+> The underwater scene in today's image of plants and tetra fish was photographed by Swiss artist Michel Roggo. Since 2010, Roggo has crisscrossed the world in search of the most beautiful freshwater environments. His work has taken him to 48 locations where he has taken more than 12,000 photographs. His projects highlight the need to protect unsullied locations and to safeguard the world's wetlands and freshwater ecosystems.
 > 
 > 
 
 </details>
 
-| ![大自然的水族馆中的淡水植物，巴西](https://cn.bing.com/th?id=OHR.AquarioNatural_ZH-CN3886634374_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大自然的水族馆中的淡水植物，巴西](https://cn.bing.com/th?id=OHR.AquarioNatural_ZH-CN3886634374_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Freshwater plants in Aquário Natural, Brazil](https://cn.bing.com/th?id=OHR.AquarioNatural_EN-US2602910599_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Freshwater plants in Aquário Natural, Brazil](https://cn.bing.com/th?id=OHR.AquarioNatural_EN-US2602910599_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AquarioNatural_ZH-CN3886634374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AquarioNatural_ZH-CN3886634374_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AquarioNatural_EN-US2602910599_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AquarioNatural_EN-US2602910599_1080x1920.jpg) |
 
 ### 20220816
 
-> 夕阳下的大白鲨过山车，美国新泽西州 (© John Van Decker/Alamy)
+> The Great White Roller Coaster at Wildwood, New Jersey (© John Van Decker/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 为了真正感受今天的照片，请停下你正在做的事情，举起双手，想象自己正以每小时50英里的速度冲下陡坡。你可以尖叫出来。照片里的是位于新泽西州的莫雷码头游乐园的大白鲨过山车。大白鲨过山车是钢木结构，自1996年开始运营，其最高点距离地面有110英尺之高。过山车爱好者表示，大白鲨过山车的亮点之一是它在启动后很快就开始俯冲。
+> To really get the feel for today's photo, stop what you're doing, put your hands in the air, and imagine yourself plunging downhill at 50 miles an hour. Screaming is optional. It's National Roller Coaster Day and we're waiting in line at Morey's Piers in Wildwood, New Jersey, for our ride on the Great White. A hybrid wooden and steel coaster, it's been in operation since 1996 and reaches its highest point 110 feet above the ground. Coaster enthusiasts point out the ride's dip under the pier shortly after the start as one of its highlights. It's also noted for a portion of the ride swinging out over the nearby beach.
 > 
-> 过山车起源于17世纪俄罗斯人的雪橇运动。最初，人们乘坐雪橇从高耸的、覆盖着冰雪的木制坡道上滑下，这个坡道被称为俄罗斯山。这个玩法后来传到了气候更为温暖的法国，法国人给雪橇加了木轮。19世纪，过山车又迎来了一次新的改进。当时宾夕法尼亚州的一家矿业公司建了一条下坡重力铁路来运输煤炭。在不运煤的时候，这些车厢还为游客提供惊险刺激的乘坐体验。到了1919年，过山车已经进入了属于自己的“黄金时代”，世界各地都有了成熟的过山车设施。人们想要更高更快的体验，这意味着过山车的设计极限是天空。如今，仅仅在美国就有约800座过山车，为游客们提供每年约17亿次的惊险旅程。
+> Roller coasters have come a long way since their early days beginning in the 17th century as Russian sled rides. Eventually called Russian Mountains, those original rides were just tall, wooden ramps covered in ice. When the concept made its way to the much warmer France, the sleds rolled across the tracks on wooden rollers, hence the name 'roller coaster.' Coasters saw another advancement in the 1870s when a Pennsylvania mining company built a downhill gravity railroad to transport coal. Its train cars held double duty by giving thrill rides to tourists during down time.
 > 
-> 
+> By the 1920s, coasters had entered their 'golden age.' New construction techniques allowed designers to build them taller, longer, and faster, drawing crowds to newly opened amusement parks around the world. These days, the United States alone has about 760 roller coasters, and thrill seekers take them on roughly 1.7 billion rides per year. Aieeeeee!
 
 </details>
 
-| ![大白鲨过山车](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_ZH-CN1541809088_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大白鲨过山车](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_ZH-CN1541809088_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![National Roller Coaster Day](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Roller Coaster Day](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_ZH-CN1541809088_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_ZH-CN1541809088_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_1080x1920.jpg) |
 
 ### 20220815
 
-> 奇陶尔加尔堡，印度 (© Anand Purohit/Getty Images)
+> Chittorgarh Fort, India (© Anand Purohit/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 印度有许多古代和中世纪的城堡，而周长8英里的奇陶尔加尔堡是印度最大的城堡之一。首先，这里有七个巨大的入口，进去以后，里面有四座宫殿和19座寺庙。这里曾经一度有近百水池，大部分水池的水源来自自然集水和雨水，如今只剩下20个水池。奇陶尔加尔堡非常古老，没有人确切知道它是什么时候建造的，最早的关于它被占领的报道可以追溯到8世纪。拉贾斯坦邦西北部有6个大型城堡，它们合称为高地城堡，被联合国教科文组织列为世界遗产，奇陶尔加尔堡就是其中之一。
+> At 8 miles in circumference, the Chittorgarh Fort is one of the largest forts in India, a nation with scores of ancient and medieval fortresses. For starters there are seven massive gates from which to enter. Inside you'll find four palaces and 19 temples. At one time there were almost 100 bodies of water, most of them ponds fed by natural catchment and rainfall, although now there are only 20. Chittorgarh ('garh' means 'fort,' so it's also known as Chittor Fort) is so old, no one is sure exactly when it was built, although reports of its earliest capture go back to the 8th century. It is one of six large forts in the northwestern state of Rajasthan referred to as the Hill Forts of Rajasthan, all of them collectively designated a UNESCO World Heritage Site. We're featuring this important and ancient complex on India's 75th Independence Day, one of India's three national holidays.
 > 
+> On August 15, 1947, India officially broke free of Great Britain and became a sovereign and democratic nation with the speedy passage of the Indian Independence Act. The paperwork might have been fast, but the struggle for independence from British rule lasted 90 years and cost many Indian lives. The British controlled the Indian subcontinent for nearly 200 years, after winning the decisive Battle of Plassey in 1757. The victory allowed the English East India Company to eventually exercise control over most of the rest of the Indian subcontinent, Burma, and Afghanistan. East India remained the supreme authority in India for a century until 1857 when a massive rebellion by civilians and Indian soldiers against the company was suppressed, resulting in direct British rule, referred to as the British raj.
 > 
-> 
-> 
+> The ensuing decades saw the formation of the Indian National Congress, the rise of Indian nationalism, various armed rebellions, and many acts of civil disobedience led by Mahatma Gandhi and others, before independence was finally achieved. While India as we know it is still a very young nation, the Chittor Fort reminds us the land and people that created modern India have endured and thrived for millennia.
 
 </details>
 
-| ![印度奇陶尔加尔堡](https://cn.bing.com/th?id=OHR.ChittorgarhFort_ZH-CN2955182965_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![印度奇陶尔加尔堡](https://cn.bing.com/th?id=OHR.ChittorgarhFort_ZH-CN2955182965_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Indian Independence Day](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Indian Independence Day](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChittorgarhFort_ZH-CN2955182965_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChittorgarhFort_ZH-CN2955182965_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_1080x1920.jpg) |
 
 ### 20220814
 
-> 琥珀山国家公园里的豹变色龙，马达加斯加 (© Christian Ziegler/Minden Pictures)
+> Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 你热爱这种冷血生物吗？蜥蜴爱好者每年都会在这一天庆祝这种有鳞动物。这种伪装的豹变色龙是栖息在马达加斯加岛的众多蜥蜴中的一种，这里许多蜥蜴都是岛上独有的。超过50%的变色龙种类是马达加斯加岛独有的，包括世界上已知最小的变色龙——最近发现的纳米变色龙，它比你的指甲还小。
+> Do you hold a warm spot in your heart for these cold-blooded creatures? Lizard lovers celebrate the scaly squamates on this day each year. This camouflaged panther chameleon is one of a multitude of lizards that inhabit the island of Madagascar, many of which are found nowhere else. More than 50% of chameleon species are found only on the island, including the world's smallest known chameleon, the recently discovered Brookesia nana, which is smaller than your fingernail.
 > 
-> 除了南极洲以外，每一个大陆上都生活着5000多种蜥蜴，它们的生存策略随着环境的变化而变化。变色龙和壁虎能够很好地伪装自己，达到几乎隐形的状态。许多蜥蜴会断尾求生，在它们逃跑时分散捕食者的注意力。伞蜥会撑开伞状领圈，让自己看起来巨大而可怕，来欺骗潜在的捕食者。而科莫多巨蜥（已知的唯一一种会捕食人类的蜥蜴）靠的则是自身体型庞大且可怕。
+> There are more than 5,000 species of lizards around the world, and they live on every continent except Antarctica. The individual species have developed adaptations for survival as varied as their environments. Chameleons and geckos camouflage themselves so well they can seem to almost disappear. Many lizards will detach their tails, a technique called tail autonomy, to distract predators while they escape. The frilled-neck lizard fools would-be predators by spreading out a large frill around its neck, making itself look large and scary. And the world's largest living lizards, Komodo dragons, can reach 10 feet long—they're so big that deer are their main prey.
 > 
 > 
 
 </details>
 
-| ![世界蜥蜴日](https://cn.bing.com/th?id=OHR.PantherChameleon_ZH-CN2554514270_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界蜥蜴日](https://cn.bing.com/th?id=OHR.PantherChameleon_ZH-CN2554514270_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Lizard Day](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lizard Day](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PantherChameleon_ZH-CN2554514270_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PantherChameleon_ZH-CN2554514270_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_1080x1920.jpg) |
 
 ### 20220813
 
-> 阿斯佩山谷中的蒙塔尼翁湖，法国 (© thieury/Adobe photo stock)
+> Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 您会在阿斯佩山谷的中心看到这个特殊形状的小湖，蒙塔尼翁湖呈心形，看起来甜蜜又浪漫。然而，想要抵达这一浪漫景观，您需要在比利牛斯山脉国家公园里来一场徒步远足！从艾迪尤斯镇出发，约9公里可到达小湖。途中您将穿越森林，溪流和小溪流，草地和山地草坪......
+> In the mood for a quiet canoe ride? If so, consider a trip to Boundary Waters Canoe Area Wilderness (BWCAW) in northeast Minnesota. The Boundary Waters wilderness stretches for 150 miles along the US-Canada border within Superior National Forest. Known by those seeking solitude, Boundary Waters is one of America's most beautiful and remote locations. Formed long ago from the scraping and gouging of glaciers, the area is distinct with its rugged cliffs, canyons, and thousands of lakes and streams. More than 1,200 miles of canoe routes are enjoyed by thousands of people every year.
 > 
+> Canoeing the many waterways may be the main draw, but 80% of the area is forest. In fact, the Boundary Waters wilderness contains the largest swath of uncut forest in the eastern US. That's even after the 1999 'Boundary Waters blowdown,' a powerful July 4 derecho storm that lasted 22 hours and took down millions of trees with its 100-mph winds. Many animals call the forest home, including the largest population of wolves in the contiguous states.
 > 
-> 
-> 
+> If you're a night owl, the Boundary Waters wilderness offers a unique opportunity. In 2020, the area was designated one of only 15 Dark Sky Sanctuaries around the world by the International Dark-Sky Association. This differs from a normal Dark Sky designation in that its fragile landscape is one of the planet's most remote locations, free of light pollution and ideal for night sky observation. The point is, night or day, you're sure to find something worth your time at the Boundary Waters.
 
 </details>
 
-| ![心形的蒙塔尼翁湖](https://cn.bing.com/th?id=OHR.LacMontagnon_ZH-CN8301464080_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![心形的蒙塔尼翁湖](https://cn.bing.com/th?id=OHR.LacMontagnon_ZH-CN8301464080_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Boundary Waters Canoe Area Wilderness](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Boundary Waters Canoe Area Wilderness](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LacMontagnon_ZH-CN8301464080_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LacMontagnon_ZH-CN8301464080_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_1080x1920.jpg) |
 
 ### 20220812
 
-> 安博塞利国家公园里的非洲象群，肯尼亚 (© Susan Portnoy/Shutterstock)
+> Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 今天是世界大象日，让我们关注这些非凡的生物，并承诺保护它们吧。照片中的非洲象是现存最大的陆地动物，雄象的肩部高达13英尺。独特的象鼻和扇动的大耳朵，使它们成为孩子们都能认出的首批动物之一。而成年人则惊叹于它们建立起的密切的家庭纽带，大象群居在一起彼此保护，当有象群成员死亡时，它们会集体哀悼。大象的寿命约为60-75岁，在这段“象生”中，它们形成了一个强大的社会群体。
+> Today is World Elephant Day, when we focus on these remarkable creatures and pledge to protect them. African elephants, like those shown here, are the largest living land animals, with bull elephants standing a whopping 13 feet tall at the shoulder. Their distinctive trunks and big, flapping ears make them one of the first animals every child can recognize. Adults marvel at the close family bonds they create and the way a herd rallies to protect its members, grieving when one dies. They form a strong, social community over their life span of about 60 to 75 years.
 > 
-> 可悲的是，大象也引起了负面关注。每天大约有100头非洲象被偷猎者杀害，它们的象牙被偷走，进行利润丰厚的非法象牙贸易。事实上，根据最近对非洲象的全面普查，2002年至2011年间，非洲象的数量减少了62%，而世界野生动物基金会的数据显示，它们的栖息地也减少了30%。而且这种下降趋势还在继续，人们担心非洲象可能在下一个十年结束时灭绝。野生生物学家珍·古道尔博士研究过大象，她这样写道:“我花了很多时间观察大象，逐渐了解到它们是一种有感情的动物......这不仅是一个物种面临灭绝，这是许多个体正在受苦。
+> Sadly, elephants attract negative attention too. Around 100 of the massive African elephants are killed by poachers every day, their tusks stolen for the lucrative and illegal ivory trade. In fact, the most recent comprehensive census of African elephants shows their populations decreased by 62% between 2002 and 2011, and they have lost 30% of their geographical range, according to the World Wildlife Fund. And this decline continues—it's feared that elephants could be headed to extinction by the end of the next decade. Wildlife biologist Dr. Jane Goodall has studied and written about elephants: 'I have spent hours and hours watching elephants,' she says, 'and come to understand what emotional creatures they are…. It's not just a species facing extinction, it's massive individual suffering.'
 > 
-> 照片中的大象一家生活在肯尼亚安博塞利国家公园，这里有1500多头非洲象和安博塞利大象研究项目，该项目研究、观察和保护非洲象已有50年。值此世界大象日之际，让我们一起想办法帮助这些庞然大物，让它们在野外有一个安全、幸福的未来。
+> The elephant family pictured here lives in Amboseli National Park in Kenya, home to more than 1,500 African elephants. The park is also home to the Amboseli Elephant Research Project, which has studied, observed, and protected African elephants for 50 years. This World Elephant Day, let's all find a way to help these majestic beasts and guarantee them a safe, happy future in the wild.
 
 </details>
 
-| ![肯尼亚安博塞利国家公园](https://cn.bing.com/th?id=OHR.AmboseliElephants_ZH-CN2078609290_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![肯尼亚安博塞利国家公园](https://cn.bing.com/th?id=OHR.AmboseliElephants_ZH-CN2078609290_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Elephant Day](https://cn.bing.com/th?id=OHR.AmboseliElephants_EN-US1510486473_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Elephant Day](https://cn.bing.com/th?id=OHR.AmboseliElephants_EN-US1510486473_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmboseliElephants_ZH-CN2078609290_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliElephants_ZH-CN2078609290_1080x1920.jpg) | Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It makes a mountain of sense for Japan to celebrate Mountain Day, which occurs each August 11. First celebrated in 2016, it's Japan's newest holiday. Nearly three-quarters of the country is made up of mountains, thanks to its location in the Pacific Ring of Fire volcanic zone. Japan's four major islands—Honshu, Hokkaido, Kyushu, and Shikoku—all have ranges running through them.
-> 
-> The 9,065-foot Mount Tsubakuro, which we feature in our home page image today, is a popular hiking destination on Honshu with well-maintained trails, rest areas, and lodges. Beautiful scenery abounds here, less than three hours' drive from Tokyo.
-> 
-> According to the legislation that established Mountain Day, the observance was launched to provide 'opportunities to get familiar with mountains and appreciate blessings from mountains.' One of those is snow-capped Mount Fuji, Japan's tallest mountain (12,389 feet) and one of the most pictured peaks in the world. Japan's rugged terrain is a boon for its tourist industry, with plenty of spots to ski and climb—or just relax in ancient hot springs.
-
-</details>
-
-| ![It's Mountain Day in Japan](https://cn.bing.com/th?id=OHR.MtTsubakuro_EN-US2985513957_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![It's Mountain Day in Japan](https://cn.bing.com/th?id=OHR.MtTsubakuro_EN-US2985513957_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MtTsubakuro_EN-US2985513957_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MtTsubakuro_EN-US2985513957_1080x1920.jpg) |
-
-### 20220810
-
-> Joshua trees in Joshua Tree National Park, California (© Tim Fitzharris/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> These immensely photogenic and relatable trees, their shaggy, sinewy limbs thrust upward into the pale light of the desert sky, are the main reason people come here to California's Joshua Tree National Park. Joshua Tree was declared a national monument on August 10, 1936, before being designated a national park in 1994. Perhaps no other national park is so completely defined by a single feature, be it a plant or wildlife or natural formation. While Joshua Tree National Park contains other wonders, this tree that looks drawn by Dr. Seuss is what visitors come to celebrate.
-> 
-> The park (and the town of the same name) could also be called the hippest national park in the country, owing to its proximity to Los Angeles, and the Insta-worthy, charismatic flora that have helped make JT a darling on social media. Vanlifers, artists, celebrities, and other creative bohemians have fueled a boom in tourism, not just to the park itself, but to the surrounding towns, like Pioneertown. The kitschy outpost served as an old Hollywood set and is now a center of nightlife in the area. Pappy & Harriet's Pioneertown Palace serves artisanal cocktails with its barbecue and features live music, sometimes from the likes of Paul McCartney, Robert Plant, and Patti Smith. And if you can't find an elderflower martini in Joshua Tree, then Palm Springs and Indio and Coachella are a short drive away, something Yellowstone and Yosemite can't claim.
-> 
-> But for those going purely for the nature—the hikers, rock climbers, campers, and stargazers—the 1,200-square-mile park is no less a marvel. Two deserts, the high-elevation Mojave and the low-elevation Colorado, merge here, each with its own ecosystem. The Joshua tree itself grows only on the Mojave side, at elevations between 1,300 and 5,900 feet. Most of the world's Joshua trees are found here. A variety of yucca, Joshua trees live from 500 to 1,000 years with roots as deep as 35 feet. Most believe their name was first concocted by Mormon pioneers who likened their branches to the outstretched arms of the biblical Joshua. It proved catchier than its botanical name, Yucca brevifolia. And as any influencer worth their followers will tell you, it makes for a much more memorable hashtag.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmboseliElephants_EN-US1510486473_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliElephants_EN-US1510486473_1080x1920.jpg) |ers will tell you, it makes for a much more memorable hashtag.
 
 </details>
 
