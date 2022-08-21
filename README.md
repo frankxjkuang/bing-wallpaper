@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220819
+
+> Solar Impulse 2 flying over the pyramids in Giza, Egypt (© Jean Revillard/Solar Impulse2 via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In the summer of 2016, an experimental solar-powered airplane called Solar Impulse 2 completed a 26,000-mile multi-stage trip around the world without using a single drop of jet fuel. The remarkable feat took longer than a year and made the slow-flying plane part of aviation history. We are remembering this seminal flight today to mark National Aviation Day, established in 1939 by President Franklin Roosevelt as a day to celebrate the advancement of flight. August 19 was chosen because it is the birthdate of Orville Wright, who in 1903, with his brother Wilbur Wright, became the first to achieve powered, controlled flight on the hills of Kitty Hawk on North Carolina's Outer Banks.
+> 
+> Solar Impulse 2 was the second aircraft built by Swiss aviators André Borschberg and Bertrand Piccard. Borschberg is an engineer by training, Piccard a psychiatrist and balloonist who copiloted the first balloon to fly around the world nonstop. The pair took turns piloting the aircraft, which can carry only one person, on a multi-leg, 16-month flight around the world that started and ended in Abu Dhabi in the United Arab Emirates.
+> 
+> This image was taken during the final leg from Egypt to Abu Dhabi as Solar Impulse 2 flew over the Great Pyramids of Giza. The superlight plane was powered by thousands of solar cells mounted atop its fuselage and jumbo-jet sized wings. Batteries stored energy so it could fly at night. The going was slow by the standards of modern jet travel—Solar Impulse 2 flew at an average speed of 50 mph. Clearly, solar-powered flight on a commercial scale is still many years away, but as this photo shows, its Kitty Hawk moment is in the books.
+
+</details>
+
+| ![National Aviation Day](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Aviation Day](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_1080x1920.jpg) |
+
 ### 20220818
 
 > Källö-Knippla, an island in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Boundary Waters Canoe Area Wilderness](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Boundary Waters Canoe Area Wilderness](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_1080x1920.jpg) |
-
-### 20220812
-
-> Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Today is World Elephant Day, when we focus on these remarkable creatures and pledge to protect them. African elephants, like those shown here, are the largest living land animals, with bull elephants standing a whopping 13 feet tall at the shoulder. Their distinctive trunks and big, flapping ears make them one of the first animals every child can recognize. Adults marvel at the close family bonds they create and the way a herd rallies to protect its members, grieving when one dies. They form a strong, social community over their life span of about 60 to 75 years.
-> 
-> Sadly, elephants attract negative attention too. Around 100 of the massive African elephants are killed by poachers every day, their tusks stolen for the lucrative and illegal ivory trade. In fact, the most recent comprehensive census of African elephants shows their populations decreased by 62% between 2002 and 2011, and they have lost 30% of their geographical range, according to the World Wildlife Fund. And this decline continues—it's feared that elephants could be headed to extinction by the end of the next decade. Wildlife biologist Dr. Jane Goodall has studied and written about elephants: 'I have spent hours and hours watching elephants,' she says, 'and come to understand what emotional creatures they are…. It's not just a species facing extinction, it's massive individual suffering.'
-> 
-> The elephant family pictured here lives in Amboseli National Park in Kenya, home to more than 1,500 African elephants. The park is also home to the Amboseli Elephant Research Project, which has studied, observed, and protected African elephants for 50 years. This World Elephant Day, let's all find a way to help these majestic beasts and guarantee them a safe, happy future in the wild.
-
-</details>
-
-| ![World Elephant Day](https://cn.bing.com/th?id=OHR.AmboseliElephants_EN-US1510486473_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Elephant Day](https://cn.bing.com/th?id=OHR.AmboseliElephants_EN-US1510486473_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmboseliElephants_EN-US1510486473_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliElephants_EN-US1510486473_1080x1920.jpg) |ers will tell you, it makes for a much more memorable hashtag.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.AmboseliElephants_EN-US1510486473_1080x1920.jpg) |ers will tell you, it makes for a much more memorable hashtag.
 
 </details>
 
