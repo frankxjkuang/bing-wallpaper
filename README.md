@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220820
+
+> Beehives in the Muniellos Nature Reserve, Asturias province, Spain (© ABB Photo/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Today we're celebrating World Honey Bee Day, honoring the humble bee's role in pollinating our crops and sharing honey goodness with us. It's remarkable to consider that there are around 20,000 different species of bees in the world, but just eight species of honey bees. And it's sobering to realize how fragile their existence is. Billions of honey bees have disappeared over the last 15 years in what's known as colony collapse disorder. There's no definitive explanation for the die-off, though scientists believe pesticides, loss of habitat, climate change, mite infestation, and disease are contributing factors. Now we need to reintroduce bees and other pollinators to safeguard our food system.
+> 
+> Of course, besides pollinating plants, bees produce honey to feed their hive community over the winter. And since honey bees produce double or triple the amount of honey they need, there's plenty for us to enjoy, too. Unfortunately for busy beekeepers here in the northwest province of Asturias, Spain, local endangered brown bears are also partial to snacking on honey. Hence the traditional stone wall protecting the hives from sticky-pawed thieves.
+> 
+> While the bear has always had pride of place in Spanish culture—it's the symbol of Madrid, for example—bears' reputation for plundering honey hives and sometimes even killing livestock makes them unpopular with beekeepers and farmers. The brown bears of Spain were once aggressively hunted, and the bear population fell to dangerously low levels by the 1970s. Conservationists worked to gain legal protection for the bears, and now there's a delicate balance between bears and bees in Asturias. Ecotourism here in the Muniellos Nature Reserve helps beekeepers and farmers sustain their businesses, with carefully organized tours allowing visitors to observe the bears from a distance while spending money on local honey. Sweet.
+
+</details>
+
+| ![World Honey Bee Day](https://cn.bing.com/th?id=OHR.BearProof_EN-US2982363241_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Honey Bee Day](https://cn.bing.com/th?id=OHR.BearProof_EN-US2982363241_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BearProof_EN-US2982363241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BearProof_EN-US2982363241_1080x1920.jpg) |
+
 ### 20220819
 
 > Solar Impulse 2 flying over the pyramids in Giza, Egypt (© Jean Revillard/Solar Impulse2 via Getty Images)
@@ -112,29 +131,6 @@
 
 | ![World Lizard Day](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lizard Day](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_1080x1920.jpg) |
-
-### 20220813
-
-> Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In the mood for a quiet canoe ride? If so, consider a trip to Boundary Waters Canoe Area Wilderness (BWCAW) in northeast Minnesota. The Boundary Waters wilderness stretches for 150 miles along the US-Canada border within Superior National Forest. Known by those seeking solitude, Boundary Waters is one of America's most beautiful and remote locations. Formed long ago from the scraping and gouging of glaciers, the area is distinct with its rugged cliffs, canyons, and thousands of lakes and streams. More than 1,200 miles of canoe routes are enjoyed by thousands of people every year.
-> 
-> Canoeing the many waterways may be the main draw, but 80% of the area is forest. In fact, the Boundary Waters wilderness contains the largest swath of uncut forest in the eastern US. That's even after the 1999 'Boundary Waters blowdown,' a powerful July 4 derecho storm that lasted 22 hours and took down millions of trees with its 100-mph winds. Many animals call the forest home, including the largest population of wolves in the contiguous states.
-> 
-> If you're a night owl, the Boundary Waters wilderness offers a unique opportunity. In 2020, the area was designated one of only 15 Dark Sky Sanctuaries around the world by the International Dark-Sky Association. This differs from a normal Dark Sky designation in that its fragile landscape is one of the planet's most remote locations, free of light pollution and ideal for night sky observation. The point is, night or day, you're sure to find something worth your time at the Boundary Waters.
-
-</details>
-
-| ![Boundary Waters Canoe Area Wilderness](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Boundary Waters Canoe Area Wilderness](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.AmboseliElephants_EN-US1510486473_1080x1920.jpg) |ers will tell you, it makes for a much more memorable hashtag.
-
-</details>
-
-| ![Joshua Tree National Park](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Joshua Tree National Park](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_1080x1920.jpg) |&pid=hp&w=400&h=224&rs=1&c=4) | ![Joshua Tree National Park](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_1080x1920.jpg) |
