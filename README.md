@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220821
+
+> Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> This solemn beacon set atop a rocky outcropping is in a country usually associated with sand and sun, making this a side of Spain many do not often see. We're looking out at the sea on the Costa da Morte, or Coast of Death, a nasty name for an equally nasty (but beautiful!) stretch of Galician coastline in the extreme northwest of Spain. We're featuring Costa da Morte during International Lighthouse Weekend because mariners are never happier to see a lighthouse than when they're sailing this coast, known as the Bermuda Triangle of the Eastern Atlantic.
+> 
+> The Costa da Morte is known for its lighthouses, like this one, called Faro de Playa Lago, one of many strung along 125 miles of coast from Finisterre in the south to Malpica in the north.  As a devourer of ships, the Costa da Morte is prolific. Since the 14th century, more than 600 shipwrecks costing thousands of lives have been documented. The rocky Costa da Morte faces the open North Atlantic and takes the brunt of big ocean swells. Deep waters turn to shallow waters quickly near this rocky cliff-strewn coast, known for its strong currents and hidden rocks. The fog can roll in quickly. Storms form frequently. And hurricane-force winds are not uncommon.
+> 
+> Cool, rainy, and rocky, the Galicia region of Spain is more 'Lord of the Rings' than Club Med. To visit the lighthouses of Costa da Morte, you can walk a trail appropriately called Camino dos Faros (Road of the Lighthouses). While satellite technology and electronic instruments have vastly changed how safely we can now navigate the seas, lighthouses are still vital to boating and the maritime industry. Plus, they're just darn good-looking.
+
+</details>
+
+| ![International Lighthouse Weekend](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Lighthouse Weekend](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_1080x1920.jpg) |
+
 ### 20220820
 
 > Beehives in the Muniellos Nature Reserve, Asturias province, Spain (© ABB Photo/Shutterstock)
@@ -113,24 +132,3 @@
 | ![Indian Independence Day](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Indian Independence Day](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_1080x1920.jpg) |
-
-### 20220814
-
-> Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Do you hold a warm spot in your heart for these cold-blooded creatures? Lizard lovers celebrate the scaly squamates on this day each year. This camouflaged panther chameleon is one of a multitude of lizards that inhabit the island of Madagascar, many of which are found nowhere else. More than 50% of chameleon species are found only on the island, including the world's smallest known chameleon, the recently discovered Brookesia nana, which is smaller than your fingernail.
-> 
-> There are more than 5,000 species of lizards around the world, and they live on every continent except Antarctica. The individual species have developed adaptations for survival as varied as their environments. Chameleons and geckos camouflage themselves so well they can seem to almost disappear. Many lizards will detach their tails, a technique called tail autonomy, to distract predators while they escape. The frilled-neck lizard fools would-be predators by spreading out a large frill around its neck, making itself look large and scary. And the world's largest living lizards, Komodo dragons, can reach 10 feet long—they're so big that deer are their main prey.
-> 
-> 
-
-</details>
-
-| ![World Lizard Day](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lizard Day](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_1080x1920.jpg) |&pid=hp&w=400&h=224&rs=1&c=4) | ![Joshua Tree National Park](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_1080x1920.jpg) |
