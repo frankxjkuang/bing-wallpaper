@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220822
+
+> A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Forget looking up in the trees to find these guys. They are burrowing owls, which means that they live on the ground or under it. In fact, they often take advantage of the hard work of tunnelers such as prairie dogs or gophers by building their nests in the burrows they dug and abandoned. Think of burrowing owls as squatters of the avian world. You'll find these 7½- to 11-inch birds in North and South America, especially in grasslands, farming areas, or dry expanses with vegetation that is close to the ground.
+> 
+> Another of their behaviors is most unowl-like, too: While most owl species are nocturnal, burrowing owls prefer to be out and about during the day snagging bugs (except when they shelter from extreme midday heat). But they do hunt for small mammals at night using the tactical advantages of their superior hearing and night vision. They hunt by air and by land, swooping down from branches but also using their long legs to hop along the ground to catch critters, just to keep them on their toes.
+> 
+> In their downtime, burrowing owls snooze at the mouth of their burrows or in hollows in the ground, which do double duty as a dirt bath. If they're startled, the owls do a cartoonish bounce, then run to the safety of their burrows, uttering screams and clucks to scare off the intruder. They even mimic rattlesnake sounds to send their foes packing. These quirky birds also reject the traditional owl 'woo-who' in favor of 'coo-coooo' and the nighttime 'co-hoo.' Talk about owls of a different feather…
+
+</details>
+
+| ![Burrowing owls](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Burrowing owls](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_1080x1920.jpg) |
+
 ### 20220821
 
 > Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)
@@ -112,20 +131,7 @@
 
 | ![National Roller Coaster Day](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Roller Coaster Day](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_1080x1920.jpg) |
-
-### 20220815
-
-> Chittorgarh Fort, India (© Anand Purohit/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> At 8 miles in circumference, the Chittorgarh Fort is one of the largest forts in India, a nation with scores of ancient and medieval fortresses. For starters there are seven massive gates from which to enter. Inside you'll find four palaces and 19 temples. At one time there were almost 100 bodies of water, most of them ponds fed by natural catchment and rainfall, although now there are only 20. Chittorgarh ('garh' means 'fort,' so it's also known as Chittor Fort) is so old, no one is sure exactly when it was built, although reports of its earliest capture go back to the 8th century. It is one of six large forts in the northwestern state of Rajasthan referred to as the Hill Forts of Rajasthan, all of them collectively designated a UNESCO World Heritage Site. We're featuring this important and ancient complex on India's 75th Independence Day, one of India's three national holidays.
-> 
-> On August 15, 1947, India officially broke free of Great Britain and became a sovereign and democratic nation with the speedy passage of the Indian Independence Act. The paperwork might have been fast, but the struggle for independence from British rule lasted 90 years and cost many Indian lives. The British controlled the Indian subcontinent for nearly 200 years, after winning the decisive Battle of Plassey in 1757. The victory allowed the English East India Company to eventually exercise control over most of the rest of the Indian subcontinent, Burma, and Afghanistan. East India remained the supreme authority in India for a century until 1857 when a massive rebellion by civilians and Indian soldiers against the company was suppressed, resulting in direct British rule, referred to as the British raj.
-> 
-> The ensuing decades saw the formation of the Indian National Congress, the rise of Indian nationalism, various armed rebellions, and many acts of civil disobedience led by Mahatma Gandhi and others, before independence was finally achieved. While India as we know it is still a very young nation, the Chittor Fort reminds us the land and people that created modern India have endured and thrived for millennia.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_1080x1920.jpg) |t reminds us the land and people that created modern India have endured and thrived for millennia.
 
 </details>
 
