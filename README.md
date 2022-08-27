@@ -2,155 +2,133 @@
 
 ### 20220825
 
-> 华盛顿州北瀑布国家公园，美国 (© Ethan Welty/Tandem Stills + Motion)
+> North Cascades National Park, Washington (© Ethan Welty/Tandem Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 北瀑布是华盛顿州的三大国家公园之一（其他两个是奥林匹克国家公园和雷尼尔山国家公园）。北瀑布也是该州最新的国家公园，创建于1968年。它可能是美国本土48个州中最崎岖的公园，包含50多万英亩的陡峭山峰，广阔的森林，以及许多水道的源头。它拥有美国除阿拉斯加之外最广阔的冰川系统。 该公园的大部分地区都未开发，因此几乎没有道路、建筑或人迹。尽管它距离西雅图和温哥华这样的大都市不到100英里（直线距离），但它还是相对与世隔绝的。这片荒野提醒了人们，为什么要创建国家公园管理局，是为了保护这些最特殊的地方的自然状态。
+> While most of us play in our vast system of 63 national parks, others work there. Today, on National Park Service Founders Day, we recognize their efforts and the priceless gift of our country's national parks. The NPS protects and maintains these parks as well as hundreds of national monuments and other natural, historical, and recreational properties. They include some of our most stunning natural landscapes, like North Cascades National Park in Washington state, featured here. This image, of the Triplets and Cascade Peak, is taken from atop Forbidden Peak.
 > 
+> The NPS was created on August 25, 1916, when President Woodrow Wilson passed the Organic Act. At the time there were nine national parks and 33 federally protected areas such as national monuments. Today there are more than 400 such areas, managed by 22,000 NPS employees and 340,000 volunteers. The oldest national park is Yellowstone, created in 1872, believed to be the first national park in the world. The youngest is New River Gorge in West Virginia, created in 2020. Fourteen national parks have been designated UNESCO World Heritage Sites, and 21 named UNESCO Biosphere Reserves. Thirty of our 50 states have national parks, with California having the most with nine. Alaska has eight, Utah five, and Colorado four. Alaska has the four largest national parks. Not surprisingly, the vast majority of our national parks are west of the Rockies.
 > 
-> 
-> 
+> North Cascades is one of three national parks in Washington state (the others are Olympic and Mount Rainier). North Cascades is also the state's newest national park, created in 1968. It is perhaps the most rugged park in the lower 48 states, containing more than 500,000 acres of steep mountain peaks and vast forests, as well as the headwaters of many waterways. It boasts the most expansive system of glaciers in the US outside of Alaska. Most of the park is protected as wilderness so there are few roads, structures, or signs of human impact. It is relatively isolated even though it's within 100 miles (as the crow flies) from the metropolises of Seattle and Vancouver, Canada. This proximity of wilderness to human development reminds us why we created the NPS, to preserve some of the nation's most special places in their natural state.
 
 </details>
 
-| ![北瀑布国家公园](https://cn.bing.com/th?id=OHR.CascadesNP_ZH-CN1830542356_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![北瀑布国家公园](https://cn.bing.com/th?id=OHR.CascadesNP_ZH-CN1830542356_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![National Park Service Founders Day](https://cn.bing.com/th?id=OHR.CascadesNP_EN-US3684575794_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Park Service Founders Day](https://cn.bing.com/th?id=OHR.CascadesNP_EN-US3684575794_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CascadesNP_ZH-CN1830542356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CascadesNP_ZH-CN1830542356_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CascadesNP_EN-US3684575794_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CascadesNP_EN-US3684575794_1080x1920.jpg) |
 
 ### 20220824
 
-> 格洛里亚附近的码头和糖面包山，巴西里约热内卢 (© f11photo/Getty Images)
+> Wheat field in Ukraine (© Yuriy Kulik/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 面包山可能是巴西最享誉国际的地方之一，在这里可以俯瞰瓜纳巴拉湾和繁华的里约热内卢。一条著名的缆车将乌卡山（高215米，是前往面包山要经过的第一座山）与糖面包山（396米）连接起来。它们共同构成了面包山和乌卡山的自然纪念碑，与耶稣雕像一起，成为该市最著名的宣传形象。缆车还从这两座山连接到红色海滩。这条缆车路线构思于1908年并于1912年投入运营。它是巴西的第一辆缆车，也是世界上第三辆缆车。
+> Ukrainian Independence Day takes on a greater meaning this year, as Russian troops occupy its eastern provinces and the invaders' shells rain down on its citizens. On February 24, Russian President Vladimir Putin ordered the invasion of Ukraine in a major escalation of the Russo-Ukrainian War that began with Russia's annexation of Crimea in 2014. NATO and Europe have rallied to Ukraine's cause, and a war that many expected to last weeks has stretched into months, with the Western-backed Ukrainian forces thwarting Putin's ambitions and not showing any signs of relenting.
 > 
-> 照片里的是格洛里亚码头，码头的水里倒映着令人震撼的山峰以及停靠的游艇。坐落在面包山和科尔科瓦多山脉间的格洛里亚码头是该市最受欢迎的海滨目的地之一。这里曾在2016年里约奥运会和残奥会期间举办过帆船比赛，现在每年能接待约130万名游客。这个码头是南美主要的租船地之一，可以容纳长度达60米的游艇。在这里，你可以游览弗拉门戈公园（市内最大的公园和休闲区），也可以欣赏面包山的绝佳景色。
+> Today we demonstrate our solidarity with the people of Ukraine by featuring this image that evokes the flag of their nation—a field of golden wheat below a bright blue sky. Ukraine, together with Russia, has long been known as the 'breadbasket of Europe.' In recent years, Ukraine has been the world's fifth-largest exporter of wheat, accounting for 7% of global sales.  Grain yields are so high partly because Ukraine is home to a quarter of the world's highly fertile 'black soil,' or chernozem. Disruption of Ukraine's wheat production and distribution, and the theft of its grain by Russia, threaten to diminish the world's food supply and cripple Ukraine's vital farming sector.
 > 
-> 
+> A recent agreement that the UN brokered with Russia has allowed some of the grain trapped in Ukraine's silos to begin flowing out of the country once again. But it remains unclear how long this fragile deal will hold and whether it will bring relief to the world's hungry or to Ukraine's economy. We can only hope the people of the besieged nation are granted the independence they have strived for.
 
 </details>
 
-| ![巴西面包山](https://cn.bing.com/th?id=OHR.MarinaDaGloria_ZH-CN6894795645_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![巴西面包山](https://cn.bing.com/th?id=OHR.MarinaDaGloria_ZH-CN6894795645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Ukrainian Independence Day](https://cn.bing.com/th?id=OHR.WheatField_EN-US3537753695_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ukrainian Independence Day](https://cn.bing.com/th?id=OHR.WheatField_EN-US3537753695_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarinaDaGloria_ZH-CN6894795645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarinaDaGloria_ZH-CN6894795645_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WheatField_EN-US3537753695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WheatField_EN-US3537753695_1080x1920.jpg) |
 
 ### 20220823
 
-> 芒通，法国 (© Flavio Foglietta/Getty Images)
+> Menton, France (© Flavio Foglietta/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 芒通位于法国里维埃拉的东端，靠近意大利边境，被誉为“法国明珠”。芒通的美景和绝好的天气备受赞誉，这里平均每年有316天是全日照或部分日照。这种气候使芒通享有惊人的柠檬产量，因而当地也有了一年一度的柠檬节。这是一个在2月份举行的为期17天的盛会，以柠檬和橙子制成的花车和雕塑为特色。这场盛会要用掉近150吨水果，接待超过20万名游客。
+> Anchoring the eastern end of the French Riviera near the Italian border is Menton, the so-called Pearl of France. It's prized for its beauty and incredible weather that features an average of 316 days a year with full or partial sun. That climate enables Menton to enjoy amazing lemon yields that have given rise to the annual Fête du Citron, or Menton Lemon Festival, a 17-day extravaganza in February featuring floats and sculptures created out of lemons and oranges. More than 200,000 visitors marvel at the nearly 150 tons of fruit used in the festival.
 > 
-> 由于其战略位置，几个世纪以来，芒通及其周边地区一直被各种势力所觊觎。摩纳哥王子、拿破仑三世、德国纳粹和撒丁王国国王都曾执掌过这颗明珠。如今的芒通有着华丽的花园、色彩柔和的建筑、海滩、咖啡馆、夜生活，当然还有柠檬。
+> Owing to its strategic location, Menton and its surrounding locale have been coveted by various powers for centuries. The princes of Monaco, Napoleon III, German Nazi forces, and the King of Sardinia among others have all held sway over this jewel of the Côte d'Azur. These days, Menton has something for everyone—gorgeous gardens, pastel-painted architecture, beaches, cafes, nightlife, and of course, lemons.
 > 
 > 
 
 </details>
 
-| ![法国芒通](https://cn.bing.com/th?id=OHR.MentonFrance_ZH-CN5849270429_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![法国芒通](https://cn.bing.com/th?id=OHR.MentonFrance_ZH-CN5849270429_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Menton, France](https://cn.bing.com/th?id=OHR.MentonFrance_EN-US3424001829_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Menton, France](https://cn.bing.com/th?id=OHR.MentonFrance_EN-US3424001829_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MentonFrance_ZH-CN5849270429_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MentonFrance_ZH-CN5849270429_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MentonFrance_EN-US3424001829_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MentonFrance_EN-US3424001829_1080x1920.jpg) |
 
 ### 20220822
 
-> 南佛罗里达的一只穴小鸮雏鸟和一只成年穴小鸮，美国 (© Carlos Carreno/Getty Images)
+> A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 你在树上可找不到这些小家伙。它们是穴小鸮，这个名字意味着它们生活在地面甚至地下。事实上，穴小鸮经常利用土拨鼠或地鼠的劳动成果，在它们挖掘并舍弃的洞穴中筑巢。你可以把这种行为理解为“鸮占鼠巢”。这些身长7.5到11 英寸的鸟类生活在北美和南美，特别是在草原、农业区和靠近地面、干燥广阔的植被里。
+> Forget looking up in the trees to find these guys. They are burrowing owls, which means that they live on the ground or under it. In fact, they often take advantage of the hard work of tunnelers such as prairie dogs or gophers by building their nests in the burrows they dug and abandoned. Think of burrowing owls as squatters of the avian world. You'll find these 7½- to 11-inch birds in North and South America, especially in grasslands, farming areas, or dry expanses with vegetation that is close to the ground.
 > 
-> 它们还有一种行为也非常不猫头鹰。与其他猫头鹰种类不同，穴小鸮更喜欢在白天外出捕食虫子（需要躲避极端高温的中午除外）。不过，它们也会利用卓越的听力和夜视能力，在夜间捕食小型哺乳动物。它们在空中和陆地上捕猎，既会从树枝上俯冲捕食，也会支棱着长腿在地面跳跃捕食。
+> Another of their behaviors is most unowl-like, too: While most owl species are nocturnal, burrowing owls prefer to be out and about during the day snagging bugs (except when they shelter from extreme midday heat). But they do hunt for small mammals at night using the tactical advantages of their superior hearing and night vision. They hunt by air and by land, swooping down from branches but also using their long legs to hop along the ground to catch critters, just to keep them on their toes.
 > 
-> 在休息时间里，穴小鸮会在自家的洞穴口或地洞中打盹。如果受到了惊吓，它们会像卡通片人物一样弹跳起来，躲进安全的洞穴中，发出尖叫声或咯咯声以吓跑入侵者。它们甚至还会模仿响尾蛇的声音来吓退敌人。作为猫头鹰界的叛逆小鸟，穴小鸮的叫声也跟普通猫头鹰不一样。真是特立独行的一只鸟呢。
+> In their downtime, burrowing owls snooze at the mouth of their burrows or in hollows in the ground, which do double duty as a dirt bath. If they're startled, the owls do a cartoonish bounce, then run to the safety of their burrows, uttering screams and clucks to scare off the intruder. They even mimic rattlesnake sounds to send their foes packing. These quirky birds also reject the traditional owl 'woo-who' in favor of 'coo-coooo' and the nighttime 'co-hoo.' Talk about owls of a different feather…
 
 </details>
 
-| ![穴小鸮](https://cn.bing.com/th?id=OHR.TenderMoment_ZH-CN5447705408_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![穴小鸮](https://cn.bing.com/th?id=OHR.TenderMoment_ZH-CN5447705408_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Burrowing owls](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Burrowing owls](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TenderMoment_ZH-CN5447705408_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TenderMoment_ZH-CN5447705408_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_1080x1920.jpg) |
 
 ### 20220821
 
-> 加利西亚省科斯塔达莫尔特的灯塔，西班牙 (© Carlos Fernandez/Getty Images)
+> Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 提起西班牙，人们通常会想起沙滩和阳光。而这座庄严的灯塔伫立在岩石顶端，这是许多人不曾见过的西班牙的另一面。这里有着一个令人恐惧的名字——死亡海岸，它是西班牙最西北端的加利西亚海岸线的一部分。在国际灯塔日这天，我们向大家介绍死亡海岸，因为当水手们在这里航行时，没有什么比看见灯塔更让他们开心了——死亡海岸也被称为大西洋东部的百慕大三角。
+> This solemn beacon set atop a rocky outcropping is in a country usually associated with sand and sun, making this a side of Spain many do not often see. We're looking out at the sea on the Costa da Morte, or Coast of Death, a nasty name for an equally nasty (but beautiful!) stretch of Galician coastline in the extreme northwest of Spain. We're featuring Costa da Morte during International Lighthouse Weekend because mariners are never happier to see a lighthouse than when they're sailing this coast, known as the Bermuda Triangle of the Eastern Atlantic.
 > 
-> 死亡海岸以其众多灯塔闻名于世。自南部的菲尼斯特雷到北部的马尔皮卡之间的125英里海岸沿线有许多灯塔，照片里的灯塔就是其中之一。作为船只的“吞噬者”，死亡海岸可谓“战功赫赫”。自14世纪以来，此处有600多起沉船事故记录在案，数千人丧命于此。西班牙的这个角落位于比斯开湾的南端，以其汹涌的海水而闻名。岩石林立的死亡海岸正对开阔的北大西洋，首当其冲受到大浪的冲击。从这里往南边几百英里，就是葡萄牙纳扎雷著名的冲浪胜地。在靠近这个以激流和隐礁而闻名的岩石峭壁海岸时，深水很快变成浅水，浓雾滚滚而来，风暴频繁来袭，飓风亦并不罕见。令其恐怖名声更上一层楼的是，很久以前，那时的欧洲人认为世界是平的，他们相信菲尼斯特雷角就是世界的终点。
+> The Costa da Morte is known for its lighthouses, like this one, called Faro de Playa Lago, one of many strung along 125 miles of coast from Finisterre in the south to Malpica in the north.  As a devourer of ships, the Costa da Morte is prolific. Since the 14th century, more than 600 shipwrecks costing thousands of lives have been documented. The rocky Costa da Morte faces the open North Atlantic and takes the brunt of big ocean swells. Deep waters turn to shallow waters quickly near this rocky cliff-strewn coast, known for its strong currents and hidden rocks. The fog can roll in quickly. Storms form frequently. And hurricane-force winds are not uncommon.
 > 
-> 凉爽、多雨、多岩石，西班牙的加利西亚地区并不像典型的地中海地区，反而更像《指环王》的场景。沿着这条海岸徒步旅行，你可能会觉得自己在苏格兰而非西班牙，而且加利西亚人也被认为是凯尔特民族的一支。要参观死亡海岸的灯塔，你可以走一条名为“灯塔之路”的小径。如今，虽然卫星技术和电子仪器极大地改善了海上航行的安全程度，但灯塔对于航行和海上作业仍然至关重要。而且，美丽的灯塔本身也是一道风景线。
+> Cool, rainy, and rocky, the Galicia region of Spain is more 'Lord of the Rings' than Club Med. To visit the lighthouses of Costa da Morte, you can walk a trail appropriately called Camino dos Faros (Road of the Lighthouses). While satellite technology and electronic instruments have vastly changed how safely we can now navigate the seas, lighthouses are still vital to boating and the maritime industry. Plus, they're just darn good-looking.
 
 </details>
 
-| ![国际灯塔日](https://cn.bing.com/th?id=OHR.CostadaMorte_ZH-CN5219249535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际灯塔日](https://cn.bing.com/th?id=OHR.CostadaMorte_ZH-CN5219249535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Lighthouse Weekend](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Lighthouse Weekend](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CostadaMorte_ZH-CN5219249535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CostadaMorte_ZH-CN5219249535_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_1080x1920.jpg) |
 
 ### 20220820
 
-> 西班牙阿斯图里亚斯省穆涅略斯自然保护区的蜂箱 (© ABB Photo/Shutterstock)
+> Beehives in the Muniellos Nature Reserve, Asturias province, Spain (© ABB Photo/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 今天是蜜蜂日，让我们向这些勤恳为庄稼授粉并和我们分享香甜蜂蜜的蜜蜂们致敬。值得注意的是，全世界有两万种不同种类的蜂，而其中却只有8种是蜜蜂。它们的存在是非常脆弱的，这一点让人警醒。过去15年里，已有数十亿只蜜蜂在蜂群崩溃综合症中消失。我们并不知道其确切原因，但科学家们认为杀虫剂、栖息地丧失、气候变化、螨虫侵扰和疾病都是因素之一。现在，我们需要重新引入蜜蜂或其他授粉媒介，来保卫我们的食物体系。
+> Today we're celebrating World Honey Bee Day, honoring the humble bee's role in pollinating our crops and sharing honey goodness with us. It's remarkable to consider that there are around 20,000 different species of bees in the world, but just eight species of honey bees. And it's sobering to realize how fragile their existence is. Billions of honey bees have disappeared over the last 15 years in what's known as colony collapse disorder. There's no definitive explanation for the die-off, though scientists believe pesticides, loss of habitat, climate change, mite infestation, and disease are contributing factors. Now we need to reintroduce bees and other pollinators to safeguard our food system.
 > 
-> 当然，除了为植物授粉外，蜜蜂还会生产蜂蜜作为过冬的食物。由于蜜蜂生产的蜂蜜是它们自身所需的两到三倍，因此人类也得以享用甜美的蜂蜜。不幸的是，对于西班牙西北部阿斯图里亚斯省忙碌的养蜂人来说，当地濒临灭绝的棕熊也喜欢吃蜂蜜。因此，他们修建起这些传统的石墙来保护蜂箱。
+> Of course, besides pollinating plants, bees produce honey to feed their hive community over the winter. And since honey bees produce double or triple the amount of honey they need, there's plenty for us to enjoy, too. Unfortunately for busy beekeepers here in the northwest province of Asturias, Spain, local endangered brown bears are also partial to snacking on honey. Hence the traditional stone wall protecting the hives from sticky-pawed thieves.
 > 
-> 虽然熊在西班牙文化中一直占有重要地位——例如，它是马德里的象征。但因为熊会掠夺蜂箱，有时甚至会杀死家畜，这使得它们不受养蜂人和农民的欢迎。西班牙的棕熊曾遭到过大量猎杀，到1970年代，棕熊的数量下降到了濒危水平。环保主义者们努力为棕熊争取法律保护，现在阿斯图里亚斯的棕熊和蜜蜂之间保持着微妙的平衡关系。穆涅洛斯自然保护区的生态旅游帮助养蜂人和农民维持着他们的生计，精心策划的旅游项目能让游客从远处观察棕熊，同时还能花钱购买当地的蜂蜜。
+> While the bear has always had pride of place in Spanish culture—it's the symbol of Madrid, for example—bears' reputation for plundering honey hives and sometimes even killing livestock makes them unpopular with beekeepers and farmers. The brown bears of Spain were once aggressively hunted, and the bear population fell to dangerously low levels by the 1970s. Conservationists worked to gain legal protection for the bears, and now there's a delicate balance between bears and bees in Asturias. Ecotourism here in the Muniellos Nature Reserve helps beekeepers and farmers sustain their businesses, with carefully organized tours allowing visitors to observe the bears from a distance while spending money on local honey. Sweet.
 
 </details>
 
-| ![蜜蜂日](https://cn.bing.com/th?id=OHR.BearProof_ZH-CN4950171791_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![蜜蜂日](https://cn.bing.com/th?id=OHR.BearProof_ZH-CN4950171791_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Honey Bee Day](https://cn.bing.com/th?id=OHR.BearProof_EN-US2982363241_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Honey Bee Day](https://cn.bing.com/th?id=OHR.BearProof_EN-US2982363241_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BearProof_ZH-CN4950171791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BearProof_ZH-CN4950171791_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BearProof_EN-US2982363241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BearProof_EN-US2982363241_1080x1920.jpg) |
 
 ### 20220819
 
-> 康沃尔郡的彭赞斯，英国 (© Murray Bosley Photography/Getty Images)
+> Solar Impulse 2 flying over the pyramids in Giza, Egypt (© Jean Revillard/Solar Impulse2 via Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 这座繁华的沿海城镇是彭赞斯，位于英格兰西南海岸的康沃尔郡。拜著名喜剧《彭赞斯的海盗》所赐，人们提起这座城镇就想起海盗。如今，游客却更有可能是被广阔的沙滩、岩石峭壁和隐秘海湾吸引而来，这些地方曾是走私者和劫掠者经常光顾的区域。照片里凸出来的这一片，是英国最大的露天海水泳池——朱比利泳池，始建于1935年。这个装饰艺术风格的三角形游泳池为不怕冷的人提供了一个凉爽的浸浴场所。而对于那些偏好温暖的人来说，这里还有一个单独的盐水泳池，通过从地下1345英尺（约410米）的地热井中抽取热量，将池水加热到35摄氏度。
+> In the summer of 2016, an experimental solar-powered airplane called Solar Impulse 2 completed a 26,000-mile multi-stage trip around the world without using a single drop of jet fuel. The remarkable feat took longer than a year and made the slow-flying plane part of aviation history. We are remembering this seminal flight today to mark National Aviation Day, established in 1939 by President Franklin Roosevelt as a day to celebrate the advancement of flight. August 19 was chosen because it is the birthdate of Orville Wright, who in 1903, with his brother Wilbur Wright, became the first to achieve powered, controlled flight on the hills of Kitty Hawk on North Carolina's Outer Banks.
 > 
-> 彭赞斯坐落在圣迈克尔山潮汐岛的芒茨海湾对面，拥有历史悠久的城堡和教堂，通过一条在涨潮时消失的堤道与大陆相连。如果你想离开海滩消遣一下，这里也有很多历史故事可以探索。这个小镇的名字来自康沃尔语，意思是神圣的海角。在1000多年以前，早期的基督徒在这里建立了一个小教堂。自17世纪以来，这里便一直是商业中心；到了18世纪和19世纪，海上贸易带动这里蓬勃发展；而自19世纪60年代起，大西部铁路把这里和伦敦连接了起来。古老的锡铜矿遗址散落在海岸线上，组成了联合国教科文组织世界遗产的康沃尔和西得文矿区景观。
+> Solar Impulse 2 was the second aircraft built by Swiss aviators André Borschberg and Bertrand Piccard. Borschberg is an engineer by training, Piccard a psychiatrist and balloonist who copiloted the first balloon to fly around the world nonstop. The pair took turns piloting the aircraft, which can carry only one person, on a multi-leg, 16-month flight around the world that started and ended in Abu Dhabi in the United Arab Emirates.
 > 
-> 但是，如果你已经在这个热门旅游景区吃腻了康沃尔馅饼，你随时可以从彭赞斯乘坐渡轮，前去探索距离康沃尔海岸28英里的锡利群岛。
+> This image was taken during the final leg from Egypt to Abu Dhabi as Solar Impulse 2 flew over the Great Pyramids of Giza. The superlight plane was powered by thousands of solar cells mounted atop its fuselage and jumbo-jet sized wings. Batteries stored energy so it could fly at night. The going was slow by the standards of modern jet travel—Solar Impulse 2 flew at an average speed of 50 mph. Clearly, solar-powered flight on a commercial scale is still many years away, but as this photo shows, its Kitty Hawk moment is in the books.
 
 </details>
 
-| ![彭赞斯](https://cn.bing.com/th?id=OHR.PenzancePool_ZH-CN4493022613_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![彭赞斯](https://cn.bing.com/th?id=OHR.PenzancePool_ZH-CN4493022613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![National Aviation Day](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Aviation Day](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PenzancePool_ZH-CN4493022613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PenzancePool_ZH-CN4493022613_1080x1920.jpg) |r the town of Bonito, Brazil, is a popular spot for ecotourism. A tour of the Aquário Natural offers a hike through the jungle followed by snorkeling with over 30 varieties of fish and gorgeous vegetation to marvel at. Other popular activities of the area include swimming in the Rio da Prata (Silver River), rappelling 236 feet down into the waters of the Anhumas Abyss, and walking through the treetops on the suspended steel walkway of the Circuito Arvorismo (Trees Circuit).
-> 
-> The underwater scene in today's image of plants and tetra fish was photographed by Swiss artist Michel Roggo. Since 2010, Roggo has crisscrossed the world in search of the most beautiful freshwater environments. His work has taken him to 48 locations where he has taken more than 12,000 photographs. His projects highlight the need to protect unsullied locations and to safeguard the world's wetlands and freshwater ecosystems.
-> 
-> 
-
-</details>
-
-| ![Freshwater plants in Aquário Natural, Brazil](https://cn.bing.com/th?id=OHR.AquarioNatural_EN-US2602910599_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Freshwater plants in Aquário Natural, Brazil](https://cn.bing.com/th?id=OHR.AquarioNatural_EN-US2602910599_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AquarioNatural_EN-US2602910599_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AquarioNatural_EN-US2602910599_1080x1920.jpg) |e days, the United States alone has about 760 roller coasters, and thrill seekers take them on roughly 1.7 billion rides per year. Aieeeeee!
-
-</details>
-
-| ![National Roller Coaster Day](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Roller Coaster Day](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatWhiteRoller_EN-US2453743631_1080x1920.jpg) |t reminds us the land and people that created modern India have endured and thrived for millennia.
-
-</details>
-
-| ![Indian Independence Day](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Indian Independence Day](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_1080x1920.jpg) |2246278299_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_1080x1920.jpg) |
