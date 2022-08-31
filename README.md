@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220829
+
+> Baltic Sea in Estonia (© fotoman-kharkov/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The Baltic Sea in northeast Europe is a peculiar body of water, combining the characteristics of a sea with those of a lake and an estuary, too. Strictly speaking, it is in fact a sea and thus appropriately named, joined to the Atlantic Ocean through three straits in Denmark: the Öresund, Great Belt, and Little Belt. Technically, the Baltic is classified as a brackish sea, meaning it is not entirely fresh and not entirely saline. The Baltic Sea isn't landlocked, but it does border many countries, including Russia, Finland, Sweden, Denmark, Germany, Poland, Lithuania, Latvia, and Estonia—and it's the Estonian coast featured in today's image.
+> 
+> Like a lake, the Baltic is relatively shallow with an average depth of 150 feet. Its salinity is so low it nearly qualifies as a freshwater sea. That's because hundreds of rivers and streams empty into the sea, and more fresh water falls on the sea in the form of rain and snow than evaporates. The Baltic can also be described as a giant estuary, into which flow several major rivers. Sailors favor the Baltic because there is very little current and tide to contend with, and even when surface winds pick up, the seas remain relatively calm. Easy to navigate, gateway to so many lands, the Baltic has been integral to trade and commerce—and inevitable conflict—in the region for centuries. It has been known by many names, proof the Baltic is a true meeting place.
+> 
+> 
+
+</details>
+
+| ![Baltic Sea, Estonia](https://cn.bing.com/th?id=OHR.EstoniaBaltic_EN-US6923966670_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Baltic Sea, Estonia](https://cn.bing.com/th?id=OHR.EstoniaBaltic_EN-US6923966670_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EstoniaBaltic_EN-US6923966670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EstoniaBaltic_EN-US6923966670_1080x1920.jpg) |
+
 ### 20220828
 
 > Bearded reedlings at a wetland in Flevoland, Netherlands (© Gert-Jan IJzerman/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Menton, France](https://cn.bing.com/th?id=OHR.MentonFrance_EN-US3424001829_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Menton, France](https://cn.bing.com/th?id=OHR.MentonFrance_EN-US3424001829_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MentonFrance_EN-US3424001829_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MentonFrance_EN-US3424001829_1080x1920.jpg) |
-
-### 20220822
-
-> A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Forget looking up in the trees to find these guys. They are burrowing owls, which means that they live on the ground or under it. In fact, they often take advantage of the hard work of tunnelers such as prairie dogs or gophers by building their nests in the burrows they dug and abandoned. Think of burrowing owls as squatters of the avian world. You'll find these 7½- to 11-inch birds in North and South America, especially in grasslands, farming areas, or dry expanses with vegetation that is close to the ground.
-> 
-> Another of their behaviors is most unowl-like, too: While most owl species are nocturnal, burrowing owls prefer to be out and about during the day snagging bugs (except when they shelter from extreme midday heat). But they do hunt for small mammals at night using the tactical advantages of their superior hearing and night vision. They hunt by air and by land, swooping down from branches but also using their long legs to hop along the ground to catch critters, just to keep them on their toes.
-> 
-> In their downtime, burrowing owls snooze at the mouth of their burrows or in hollows in the ground, which do double duty as a dirt bath. If they're startled, the owls do a cartoonish bounce, then run to the safety of their burrows, uttering screams and clucks to scare off the intruder. They even mimic rattlesnake sounds to send their foes packing. These quirky birds also reject the traditional owl 'woo-who' in favor of 'coo-coooo' and the nighttime 'co-hoo.' Talk about owls of a different feather…
-
-</details>
-
-| ![Burrowing owls](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Burrowing owls](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_1080x1920.jpg) |om/th?id=OHR.CostadaMorte_EN-US3132736041_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Lighthouse Weekend](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MentonFrance_EN-US3424001829_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MentonFrance_EN-US3424001829_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_1080x1920.jpg) |om/th?id=OHR.CostadaMorte_EN-US3132736041_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Lighthouse Weekend](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_1080x1920.jpg) |Kitty Hawk on North Carolina's Outer Banks.
 > 
