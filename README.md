@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220901
+
+> Wildlife crossing in Wierden, Netherlands (© Frans Lemmens/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> It's not just chickens that cross the road. Wild creatures from frogs to elk roll the dice with death when they need to traverse the thousands of highways humans have threaded through wildlife habitat. Sadly, the dice don't fall favorably for millions of animals each year, and collisions with vehicles often cause fatalities for both them and the drivers who hit them.
+> 
+> Many countries now construct wildlife crossings—also called green bridges, ecoducts, natuurbrugs (like this one in Wierden in the Netherlands), and écoponts (in France). These can be either overpasses or underpasses, and they are an expensive venture. Are they worth it? Well, officials in Banff National Park in Alberta, Canada, would say categorically yes. Over 20 years they built 44 bridges and underpasses so wildlife could cross the Trans-Canada Highway, which divides the park; traffic accidents involving wildlife dropped by 80%.
+> 
+> France built the first overland wildlife crossings in the 1950s and continues to invest in many elaborate safe passageways. But the Netherlands leads the initiative, with an impressive 600-plus wildlife crossings, and counting. In fact, the Dutch can claim the honors for the world's longest animal crossing too—the Natuurbrug Zanderij Crailoo is an overpass that's half a mile long and 55 yards wide. Now chickens and their four-legged friends can cross the road anytime, no questions asked.
+
+</details>
+
+| ![Wildlife crossing, Wierden, Netherlands](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wildlife crossing, Wierden, Netherlands](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_1080x1920.jpg) |
+
 ### 20220831
 
 > Blue linckia sea stars off New Ireland in Papua New Guinea (© Jurgen Freund/Minden Pictures)
@@ -112,20 +131,7 @@
 
 | ![Kiteboarding and windsurfing in Croatia](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kiteboarding and windsurfing in Croatia](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_1080x1920.jpg) |
-
-### 20220825
-
-> North Cascades National Park, Washington (© Ethan Welty/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> While most of us play in our vast system of 63 national parks, others work there. Today, on National Park Service Founders Day, we recognize their efforts and the priceless gift of our country's national parks. The NPS protects and maintains these parks as well as hundreds of national monuments and other natural, historical, and recreational properties. They include some of our most stunning natural landscapes, like North Cascades National Park in Washington state, featured here. This image, of the Triplets and Cascade Peak, is taken from atop Forbidden Peak.
-> 
-> The NPS was created on August 25, 1916, when President Woodrow Wilson passed the Organic Act. At the time there were nine national parks and 33 federally protected areas such as national monuments. Today there are more than 400 such areas, managed by 22,000 NPS employees and 340,000 volunteers. The oldest national park is Yellowstone, created in 1872, believed to be the first national park in the world. The youngest is New River Gorge in West Virginia, created in 2020. Fourteen national parks have been designated UNESCO World Heritage Sites, and 21 named UNESCO Biosphere Reserves. Thirty of our 50 states have national parks, with California having the most with nine. Alaska has eight, Utah five, and Colorado four. Alaska has the four largest national parks. Not surprisingly, the vast majority of our national parks are west of the Rockies.
-> 
-> North Cascades is one of three national parks in Washington state (the others are Olympic and Mount Rainier). North Cascades is also the state's newest national park, created in 1968. It is perhaps the most rugged park in the lower 48 states, containing more than 500,000 acres of steep mountain peaks and vast forests, as well as the headwaters of many waterways. It boasts the most expansive system of glaciers in the US outside of Alaska. Most of the park is protected as wilderness so there are few roads, structures, or signs of human impact. It is relatively isolated even though it's within 100 miles (as the crow flies) from the metropolises of Seattle and Vancouver, Canada. This proximity of wilderness to human development reminds us why we created the NPS, to preserve some of the nation's most special places in their natural state.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_1080x1920.jpg) |ctures, or signs of human impact. It is relatively isolated even though it's within 100 miles (as the crow flies) from the metropolises of Seattle and Vancouver, Canada. This proximity of wilderness to human development reminds us why we created the NPS, to preserve some of the nation's most special places in their natural state.
 
 </details>
 
