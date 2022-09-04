@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220902
+
+> Seitan Limania Beach in Crete, Greece (© Georgios Tsichlis/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Crete is the largest and most populous of all the Greek islands, and also the farthest from the mainland (in fact, it's just about halfway to Turkey). This big little island is small enough to drive across in a few hours but full of wonders, from mountain ranges to gorges to beautiful beaches. Take this jewel box of turquoise water near the port city of Chania, for example. Set on the easternmost of three peninsulas that stick out like horns from the northwest shoreline of Crete, Seitan Limania is one of the most photographed beaches on the island.
+> 
+> Seitan Limania is beautiful to behold from a distance but driving up close via the narrow switchback roads takes some nerve. And once you get to the parking lot, the rocky hike down is for only the most surefooted of beachgoers. On your way down, you'll likely meet some of the goats that populate the area. The narrow cove is flanked by steep rock walls that zig one way, then zag the other. When you reach the beach, you'll find yourself on one of the most beautiful spots on any coast—and a selfie here at Seitan Limania is hard to beat for bragging rights.
+> 
+> 
+
+</details>
+
+| ![Seitan Limania Beach, Crete](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Seitan Limania Beach, Crete](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_1080x1920.jpg) |
+
 ### 20220901
 
 > Wildlife crossing in Wierden, Netherlands (© Frans Lemmens/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Mount St. Helens National Volcanic Monument, Washington](https://cn.bing.com/th?id=OHR.MSHV_EN-US5482864526_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount St. Helens National Volcanic Monument, Washington](https://cn.bing.com/th?id=OHR.MSHV_EN-US5482864526_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MSHV_EN-US5482864526_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MSHV_EN-US5482864526_1080x1920.jpg) |
-
-### 20220826
-
-> Kiteboarders and windsurfers off the Pelješac Peninsula, Croatia (© helivideo/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Of the many ways people have invented to ride boards of one kind or another, the sport of kiteboarding (aka kitesurfing) is one of the newest. It owes a debt to all the board sports that came before it, borrowing a little bit from snowboarding, water skiing, wakeboarding, and of course windsurfing. Like snowboarders and skiers, windsurfers and kiteboarders often share play space, as they are doing here off the Pelješac Peninsula in Croatia. They can count on a stiff afternoon breeze to fill their sails in the summer months, when the land heats up and draws in the cool air over the Adriatic.
-> 
-> People began experimenting with kiteboarding in the late 1970s, and with key technical innovations in the '90s, the sport began gaining popularity. Many windsurfers were drawn to kiteboarding because the detached sail—in this case the kite—gave the kiteboarders more freedom to maneuver. The kite is inflated, giving it structure and the ability to float should it land on the water. In a sign that the relatively new sport has entered the mainstream, kiteboarding will make its Summer Olympic debut at the Paris 2024 Games as one of 10 sailing events.
-> 
-> 
-
-</details>
-
-| ![Kiteboarding and windsurfing in Croatia](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kiteboarding and windsurfing in Croatia](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_1080x1920.jpg) |ctures, or signs of human impact. It is relatively isolated even though it's within 100 miles (as the crow flies) from the metropolises of Seattle and Vancouver, Canada. This proximity of wilderness to human development reminds us why we created the NPS, to preserve some of the nation's most special places in their natural state.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MSHV_EN-US5482864526_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MSHV_EN-US5482864526_1080x1920.jpg) |trait 4K](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_1080x1920.jpg) |ctures, or signs of human impact. It is relatively isolated even though it's within 100 miles (as the crow flies) from the metropolises of Seattle and Vancouver, Canada. This proximity of wilderness to human development reminds us why we created the NPS, to preserve some of the nation's most special places in their natural state.
 
 </details>
 
