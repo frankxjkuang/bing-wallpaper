@@ -1,51 +1,89 @@
 ## bing wallpaper
 
-### 20220902
+### 20220904
 
-> Seitan Limania Beach in Crete, Greece (© Georgios Tsichlis/Alamy)
+> 果阿邦的阿兰博尔海滩，印度 (© Ben Pipe/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> Crete is the largest and most populous of all the Greek islands, and also the farthest from the mainland (in fact, it's just about halfway to Turkey). This big little island is small enough to drive across in a few hours but full of wonders, from mountain ranges to gorges to beautiful beaches. Take this jewel box of turquoise water near the port city of Chania, for example. Set on the easternmost of three peninsulas that stick out like horns from the northwest shoreline of Crete, Seitan Limania is one of the most photographed beaches on the island.
+> 印度以其巨大的、人口稠密的城市而闻名，同时它也拥有看似无尽的海岸线。在西南海岸的果阿邦，你再也找不到比阿兰博尔更慵懒可爱的地方了。阿兰博尔是一个非常受欢迎的度假小镇，充满着沉睡渔村的氛围，其实这里曾经还真是一个渔村。如今，这里的热带气候、雨林山谷、历史建筑、沙滩、蔚蓝海水和摇曳的椰子树吸引着来自世界各地的游客，他们为阿兰博尔带来了新的活力。
 > 
-> Seitan Limania is beautiful to behold from a distance but driving up close via the narrow switchback roads takes some nerve. And once you get to the parking lot, the rocky hike down is for only the most surefooted of beachgoers. On your way down, you'll likely meet some of the goats that populate the area. The narrow cove is flanked by steep rock walls that zig one way, then zag the other. When you reach the beach, you'll find yourself on one of the most beautiful spots on any coast—and a selfie here at Seitan Limania is hard to beat for bragging rights.
+> 果阿邦与印度的大部分地区不同，因为这里曾是葡萄牙的殖民地，而当时印度其他地区是英国殖民地。葡萄牙帝国在16世纪初征服并开始统治果阿邦，直到1961年该地区被印度收复。你可以在果阿邦的天主教教堂和修道院中看到葡萄牙人对该地区的影响，该州最大城市是瓦斯科·达伽马，正是以曾经统治果阿邦的探险家的名字命名。
+> 
+> 如果你对历史不感兴趣，在太阳下山前的几个小时里，阿兰博尔还会举办非常出名的鼓圈活动和跳蚤市场。这个时候的阿兰博尔既是市场，又是海滩派对。手工艺人在这里出售手工制品，而音乐家则进行即兴表演。人们在沙滩、香料和阳光中结束在果阿完美的一天。
+
+</details>
+
+| ![印度果阿邦的阿兰博尔海滩](https://cn.bing.com/th?id=OHR.ArambolBeach_ZH-CN2149857876_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![印度果阿邦的阿兰博尔海滩](https://cn.bing.com/th?id=OHR.ArambolBeach_ZH-CN2149857876_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArambolBeach_ZH-CN2149857876_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArambolBeach_ZH-CN2149857876_1080x1920.jpg) |
+
+### 20220903
+
+> 吉隆坡石油双塔，马来西亚 (© tampatra/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 吉隆坡石油双塔是马来西亚首都吉隆坡（简称KL）的名片。这两座圆柱形塔楼有88层，高达1483英尺，于1998年完工，是当时世界上最高的建筑。直到2004年，中国台湾建成了台北101，比它高出近200英尺。但它仍然是世界上最高的双子摩天大楼。今天是摩天大楼日，在这个日子呈现吉隆坡石油双塔正合乎时宜。让我们来欣赏这些工程和建筑壮举吧。
+> 
+> 吉隆坡石油双塔以马来西亚国家石油公司的名字命名，由已故阿根廷裔美国建筑师塞萨尔·佩利设计，他将伊斯兰艺术的图案融入到他后现代风格的设计中。吉隆坡石油双塔现在仍是一项杰作，在满是摩天大楼的大地上，吉隆坡石油双塔仍是其中的佼佼者。从照片上，我们可以看到双子塔最独特的特征之一：连接41层和42层塔楼的两层天桥。这座天桥实际上并没有固定在主体结构上，而是可以自由地滑入两个塔楼之中，以顺应风引起的任何摇摆。
+> 
+> 亚洲有许多超高层建筑，这并非巧合。人口多、土地短缺、经济繁荣的地方，摩天大楼就多。此外，对于一个崭露头角的城市而言，没有什么比一座（或者一双）闪闪发光的摩天大楼更能说明这座城市的潜力了。所以吉隆坡并未止步于此。虽然石油双塔是吉隆坡天际线的象征，但随着2227英尺的默迪卡118的到来，石油双塔将不再是马来西亚街区里最高的建筑。默迪卡118建筑将于今年完工，成为世界第二高的建筑。
+
+</details>
+
+| ![摩天大楼日](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_ZH-CN1989513449_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![摩天大楼日](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_ZH-CN1989513449_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_ZH-CN1989513449_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_ZH-CN1989513449_1080x1920.jpg) |
+
+### 20220902
+
+> 克里特岛上的海滩，希腊 (© Georgios Tsichlis/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> 克里特岛是希腊所有岛屿中面积最大、人口最多、离大陆最远的岛屿。从山脉到峡谷，再到美丽的海滩，这个岛上处处是奇观。比如港口城市哈尼亚附近这片海水，漂亮得像珠宝盒里的绿松石。克里特岛的西北海岸线有三个半岛像三只角一样凸出来，赛坦利马尼亚海滩就位于三个半岛的最东端，是岛上上镜最多的海滩之一。
+> 
+> 赛坦利马尼亚海滩从远处看起来很美，但从狭窄弯曲的道路上开车过来则需要一些勇气。而抵达停车场后，只有最大胆稳健的海滩游客才敢徒步往下走。在下去海滩的路上，你可能会遇到山羊。狭窄的海湾两侧是陡峭迂回的峭壁。当你到达海滩时，你会发现自己置身于世界上最独特的海岸，在这里的自拍可以说是称霸朋友圈。
 > 
 > 
 
 </details>
 
-| ![Seitan Limania Beach, Crete](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Seitan Limania Beach, Crete](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![赛坦利马尼亚海滩，克里特岛](https://cn.bing.com/th?id=OHR.SeitanLimania_ZH-CN3831790369_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![赛坦利马尼亚海滩，克里特岛](https://cn.bing.com/th?id=OHR.SeitanLimania_ZH-CN3831790369_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeitanLimania_ZH-CN3831790369_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeitanLimania_ZH-CN3831790369_1080x1920.jpg) |
 
 ### 20220901
 
-> Wildlife crossing in Wierden, Netherlands (© Frans Lemmens/Alamy)
+> 维尔登的野生动物通道，荷兰 (© Frans Lemmens/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> It's not just chickens that cross the road. Wild creatures from frogs to elk roll the dice with death when they need to traverse the thousands of highways humans have threaded through wildlife habitat. Sadly, the dice don't fall favorably for millions of animals each year, and collisions with vehicles often cause fatalities for both them and the drivers who hit them.
+> 过马路的不止有鸡，还有青蛙、麋鹿等等许多野生动物。当穿越人类活动区与野生动物栖息地之间的数千条高速公路时，这些动物不得不面临生死难料的命运。可悲的是，每年有数百万只动物的命运并不如意。而动物与车辆相撞，还会导致司机的死亡。
 > 
-> Many countries now construct wildlife crossings—also called green bridges, ecoducts, natuurbrugs (like this one in Wierden in the Netherlands), and écoponts (in France). These can be either overpasses or underpasses, and they are an expensive venture. Are they worth it? Well, officials in Banff National Park in Alberta, Canada, would say categorically yes. Over 20 years they built 44 bridges and underpasses so wildlife could cross the Trans-Canada Highway, which divides the park; traffic accidents involving wildlife dropped by 80%.
+> 令人欣慰的是，现在许多国家都在建造野生动物通道。野生动物通道造价昂贵，可以是天桥式的，也可以是地道式的。它们值得吗？加拿大阿尔伯塔省班夫国家公园的工作人员会斩钉截铁地告诉你，值得。二十多年来，他们修建了44座桥梁和地道，使得野生动物可以穿过横跨班夫国家公园的加拿大横贯公路，这让与野生动物相关的交通事故数量减少了80%。
 > 
-> France built the first overland wildlife crossings in the 1950s and continues to invest in many elaborate safe passageways. But the Netherlands leads the initiative, with an impressive 600-plus wildlife crossings, and counting. In fact, the Dutch can claim the honors for the world's longest animal crossing too—the Natuurbrug Zanderij Crailoo is an overpass that's half a mile long and 55 yards wide. Now chickens and their four-legged friends can cross the road anytime, no questions asked.
+> 法国于1960年建造了第一个野生动物通道。目前，私营高速公路公司AFRR仍然在那里继续建造精心设计的安全通道。不过，荷兰却以600多个野生动物通道在数量上领先，而且这个数字还在不断增加。事实上，荷兰人还建造了世界上最长的动物通道——一座长半英里、宽55码的立交桥。现在，小鸡和它的四只脚的小伙伴们可以随时过马路，完全不用担心。
 
 </details>
 
-| ![Wildlife crossing, Wierden, Netherlands](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wildlife crossing, Wierden, Netherlands](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![野生动物通道，维尔登，荷兰](https://cn.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![野生动物通道，维尔登，荷兰](https://cn.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_1080x1920.jpg) |
 
 ### 20220831
 
-> Blue linckia sea stars off New Ireland in Papua New Guinea (© Jurgen Freund/Minden Pictures)
+> 新爱尔兰岛上的蓝指海星，巴布亚新几内亚 (© Jurgen Freund/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> In shallow areas of the tropical Indo-Pacific, you'll come across the blue linckia sea star. Oftentimes it's found anchored to or hiding under rocks. This duo was spotted near the coast of New Ireland, an island in Papua New Guinea. Even though 'blue' is in the name, this species of sea star has also been observed in purple, pink, or orange. The vibrant colors make the linckia popular in the seashell trade, unfortunately, and intensive poaching has diminished their populations. But new research could lead to calls for their protection: Scientists have studied potential anti-tumor and antibacterial properties inherent to the blue linckia.
+> 在印度洋-太平洋海域的浅水区，你会遇见蓝指海星。它们通常依附或隐藏在岩石的下面。图中的这对海星是在巴布亚新几内亚的新爱尔兰区域被发现的。尽管它们的名字中带着“蓝色”，但这种海星也有紫色、粉色和橙色的。这些美丽的颜色使得蓝指海星备受人们的欢迎。持续捕捞导致它们的种群数量受到了很大威胁。在不受干扰的情况下，蓝指海星可以在野外存活长达10年。科学家们还研究了蓝指海星与生俱来的潜在抗肿瘤和抗菌的特性。
 > 
 > 
 > 
@@ -53,85 +91,47 @@
 
 </details>
 
-| ![Blue linckia sea stars in Papua New Guinea](https://cn.bing.com/th?id=OHR.BlueLinckia_EN-US7078787133_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blue linckia sea stars in Papua New Guinea](https://cn.bing.com/th?id=OHR.BlueLinckia_EN-US7078787133_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![巴布亚新几内亚的蓝指海星](https://cn.bing.com/th?id=OHR.BlueLinckia_ZH-CN1103817183_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![巴布亚新几内亚的蓝指海星](https://cn.bing.com/th?id=OHR.BlueLinckia_ZH-CN1103817183_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueLinckia_EN-US7078787133_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueLinckia_EN-US7078787133_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueLinckia_ZH-CN1103817183_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueLinckia_ZH-CN1103817183_1080x1920.jpg) |
 
 ### 20220830
 
-> Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy (© Stefano Valeri/Alamy)
+> 米利亚里诺自然公园，圣罗索尔，意大利马萨西犹可利 (© Stefano Valeri/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> This idyllic road is a path to one of Italy's magnificent natural gifts. Just outside of the ancient city of Pisa in Tuscany is the Regional Park of Migliarino, San Rossore, Massaciuccoli. This immense and diverse park boasts numerous distinct environments. A visitor will discover, by turns, seaside sand dunes, marshlands, and vast forests of pine, oak, and elm. A wide array of birds can also be found in the park, along with ample wild boar, rabbits, red foxes, and the impressively antlered fallow deer. It's even been suggested that there are wolves living in the deep reaches of the woods.
+> 这条如田园诗歌般的小道通往意大利壮丽的自然瑰宝之一——米利亚里诺自然公园。公园位于托斯卡纳省比萨古城的外面，面积巨大，还拥有种类繁多又各具特色的生态环境。海边的沙丘、归鸟的沼泽地、深邃的松树林、广阔的橡树林和无边的榆树林，这些生态环境都比邻而居。公园里栖息着各种各样的鸟类，以及许多野猪、兔子、赤狐和长着奇特鹿角的黇鹿。有人认为，树林深处还有狼群。
 > 
-> While the park is popular for its beaches, forests, and wildlife, it offers cultural attractions as well. There are Roman ruins to be explored here, along with working farms, and environmental education opportunities. It's also home to the Villa del Gombo, once an official residence of the president of Italy. The villa was built in the 1950s on the site of a ruined old hunting lodge once owned by the Royal House of Savoy. Today the facility hosts conferences and tourists.
+> 虽然米利亚里诺自然公园因其海滩、徒步和野生动物而备受欢迎，但它的魅力不仅仅只在自然风光。你还可以在这里探索罗马遗迹，参观农场，获得环保教育机会。米利亚里诺自然公园也曾是意大利总统府的所在地。在此之前，它还是萨伏依王室（欧洲最古老、最强大的王朝之一）的宫殿。今天，这里常常被用以举办会议和接待游客。
 > 
 > 
 
 </details>
 
-| ![Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy](https://cn.bing.com/th?id=OHR.Migliarino_EN-US6999892958_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy](https://cn.bing.com/th?id=OHR.Migliarino_EN-US6999892958_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![意大利的米利亚里诺自然公园](https://cn.bing.com/th?id=OHR.Migliarino_ZH-CN0744250844_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![意大利的米利亚里诺自然公园](https://cn.bing.com/th?id=OHR.Migliarino_ZH-CN0744250844_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Migliarino_EN-US6999892958_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Migliarino_EN-US6999892958_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Migliarino_ZH-CN0744250844_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Migliarino_ZH-CN0744250844_1080x1920.jpg) |
 
 ### 20220829
 
-> Baltic Sea in Estonia (© fotoman-kharkov/Getty Images)
+> 爱沙尼亚波罗的海 (© fotoman-kharkov/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> The Baltic Sea in northeast Europe is a peculiar body of water, combining the characteristics of a sea with those of a lake and an estuary, too. Strictly speaking, it is in fact a sea and thus appropriately named, joined to the Atlantic Ocean through three straits in Denmark: the Öresund, Great Belt, and Little Belt. Technically, the Baltic is classified as a brackish sea, meaning it is not entirely fresh and not entirely saline. The Baltic Sea isn't landlocked, but it does border many countries, including Russia, Finland, Sweden, Denmark, Germany, Poland, Lithuania, Latvia, and Estonia—and it's the Estonian coast featured in today's image.
+> 欧洲东北部的波罗的海是一片独特的水域，具有海洋、湖泊和河口的特征。严格地说，它实际上是一个海洋，因此它的名字倒也恰当，它通过丹麦的三个海峡（厄勒海峡、大贝尔特海峡和小贝尔特海峡）与大西洋相连。严格来说，波罗的海被归类为半咸水海，这意味着它既不完全是淡水，也不完全是盐水。波罗的海并非被陆地环绕，不过它确实与许多国家接壤，包括俄罗斯、芬兰、瑞典、丹麦、德国、波兰、立陶宛、拉脱维亚和爱沙尼亚。今天照片里的是爱沙尼亚的波罗的海海岸。
 > 
-> Like a lake, the Baltic is relatively shallow with an average depth of 150 feet. Its salinity is so low it nearly qualifies as a freshwater sea. That's because hundreds of rivers and streams empty into the sea, and more fresh water falls on the sea in the form of rain and snow than evaporates. The Baltic can also be described as a giant estuary, into which flow several major rivers. Sailors favor the Baltic because there is very little current and tide to contend with, and even when surface winds pick up, the seas remain relatively calm. Easy to navigate, gateway to so many lands, the Baltic has been integral to trade and commerce—and inevitable conflict—in the region for centuries. It has been known by many names, proof the Baltic is a true meeting place.
+> 波罗的海和湖泊一样，相对较浅，平均深度为150英尺。它的盐度很低，几乎可以称得上是淡水。这是因为数以百计的河流汇入这片海，还有更多的淡水以雨雪的形式落到大海上，导致它得到的淡水远多于蒸发掉的。波罗的海也可以被称为是一个巨大的入海口，有几十条河流流入。水手们青睐波罗的海，因为那里几乎没有海流和潮汐，即使刮起海风，海面也相对平静。波罗的海交通便利，是通往众多陆地的门户，几个世纪以来，波罗的海一直是该地区贸易和商业不可或缺的一部分，但也不可避免地发生过冲突。它有很多名字，这证明波罗的海是一个见面的好地方。
 > 
 > 
 
 </details>
 
-| ![Baltic Sea, Estonia](https://cn.bing.com/th?id=OHR.EstoniaBaltic_EN-US6923966670_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Baltic Sea, Estonia](https://cn.bing.com/th?id=OHR.EstoniaBaltic_EN-US6923966670_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![爱沙尼亚的波罗的海](https://cn.bing.com/th?id=OHR.EstoniaBaltic_ZH-CN0314555299_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![爱沙尼亚的波罗的海](https://cn.bing.com/th?id=OHR.EstoniaBaltic_ZH-CN0314555299_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EstoniaBaltic_EN-US6923966670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EstoniaBaltic_EN-US6923966670_1080x1920.jpg) |
-
-### 20220828
-
-> Bearded reedlings at a wetland in Flevoland, Netherlands (© Gert-Jan IJzerman/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Flevoland, the 12th and newest province in the Netherlands, has only been around since 1986. Not only was it not established until this late date, but before the mid-20th century, much of the land here simply didn't exist. Flevoland was created through vast land reclamation projects in the 1950s and '60s. While the Dutch had been reforming their landscape to meet their changing needs for hundreds of years, the 20th century would see their most dramatic and ambitious projects realized. The province's anthem is the fitting 'Waar Wij Steden Doen Verrijzen' ('Where We Let Cities Arise'). It's an ode to pushing back the sea and creating a 'province that's not bad, youngest part of the Netherlands. Where it is nice to live, my beloved Flevoland!'
-> 
-> With its landscape of bogs, marshes, and swamps, Flevoland is a perfect nesting ground for these bearded reedlings. The reedlings are sometimes referred to as bearded tits, due to their passing resemblance to the long-tailed tit, but not only are they not tits, they don't really have beards either (though the males have something closer to a mustache). Found across Eurasia, the bearded reedling is considered a unique songbird, with no other living species closely related to it.
-> 
-> 
-
-</details>
-
-| ![Bearded reedlings in Flevoland](https://cn.bing.com/th?id=OHR.BeardedTit_EN-US6692547915_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bearded reedlings in Flevoland](https://cn.bing.com/th?id=OHR.BeardedTit_EN-US6692547915_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeardedTit_EN-US6692547915_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeardedTit_EN-US6692547915_1080x1920.jpg) |
-
-### 20220827
-
-> Boundary Trail in Mount St. Helens National Volcanic Monument, Washington (© Don Geyer/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> We're standing on the Boundary Trail at Johnston Ridge in the Mount St. Helens National Volcanic Monument. This view of the volcano shows how the eruption of Mount St. Helens on May 18, 1980, ripped apart the once-conical summit, forever changing the Washington landscape. Forty years ago today, 110,000 acres within Gifford Pinchot National Forest were set aside to memorialize the deadliest and most destructive volcanic eruption in the United States.
-> 
-> President Ronald Reagan established the monument to preserve the area for research, recreation, and education. Left to recover naturally from the eruption, the land has been open to recreational users since 1986. Though scientists believe that Mount St. Helens will erupt again sometime in the next few centuries, hikers and climbers are undeterred.
-> 
-> 
-
-</details>
-
-| ![Mount St. Helens National Volcanic Monument, Washington](https://cn.bing.com/th?id=OHR.MSHV_EN-US5482864526_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount St. Helens National Volcanic Monument, Washington](https://cn.bing.com/th?id=OHR.MSHV_EN-US5482864526_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MSHV_EN-US5482864526_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MSHV_EN-US5482864526_1080x1920.jpg) |trait 4K](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_1080x1920.jpg) |ctures, or signs of human impact. It is relatively isolated even though it's within 100 miles (as the crow flies) from the metropolises of Seattle and Vancouver, Canada. This proximity of wilderness to human development reminds us why we created the NPS, to preserve some of the nation's most special places in their natural state.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EstoniaBaltic_ZH-CN0314555299_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EstoniaBaltic_ZH-CN0314555299_1080x1920.jpg) |flies) from the metropolises of Seattle and Vancouver, Canada. This proximity of wilderness to human development reminds us why we created the NPS, to preserve some of the nation's most special places in their natural state.
 
 </details>
 
