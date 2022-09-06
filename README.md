@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220905
+
+> 北魁北克的公路，加拿大 (© Posnov/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 如果你想要来一趟孤独的旅程，挑战自己的生理极限或检验自己的心理健康程度，你可以考虑踏上加拿大的跨太加路。这条路修建之初，是为了通往魁北克北部的几座水电大坝，路上极少有行人，更是几乎没有游客。
+> 
+> 跨太加路穿过北美大陆最与世隔绝的地区。它从詹姆斯湾公路的544公里处分支出来，其修建之初，是为了通往魁北克水电公司在格朗德河和卡尼亚皮斯科河修建的几座水电大坝。
+> 
+> 在这条路上，你会欣赏到开阔的风景，低矮的山丘和云杉树。这里没有什么醒目的地标，不过你会在39英里处和362英里处各看到一个水库。
+
+</details>
+
+| ![跨太加路，魁北克](https://cn.bing.com/th?id=OHR.TaigaRoad_ZH-CN2567537158_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![跨太加路，魁北克](https://cn.bing.com/th?id=OHR.TaigaRoad_ZH-CN2567537158_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TaigaRoad_ZH-CN2567537158_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TaigaRoad_ZH-CN2567537158_1080x1920.jpg) |
+
 ### 20220904
 
 > 果阿邦的阿兰博尔海滩，印度 (© Ben Pipe/Alamy)
@@ -112,18 +131,7 @@
 
 | ![意大利的米利亚里诺自然公园](https://cn.bing.com/th?id=OHR.Migliarino_ZH-CN0744250844_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![意大利的米利亚里诺自然公园](https://cn.bing.com/th?id=OHR.Migliarino_ZH-CN0744250844_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Migliarino_ZH-CN0744250844_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Migliarino_ZH-CN0744250844_1080x1920.jpg) |
-
-### 20220829
-
-> 爱沙尼亚波罗的海 (© fotoman-kharkov/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 欧洲东北部的波罗的海是一片独特的水域，具有海洋、湖泊和河口的特征。严格地说，它实际上是一个海洋，因此它的名字倒也恰当，它通过丹麦的三个海峡（厄勒海峡、大贝尔特海峡和小贝尔特海峡）与大西洋相连。严格来说，波罗的海被归类为半咸水海，这意味着它既不完全是淡水，也不完全是盐水。波罗的海并非被陆地环绕，不过它确实与许多国家接壤，包括俄罗斯、芬兰、瑞典、丹麦、德国、波兰、立陶宛、拉脱维亚和爱沙尼亚。今天照片里的是爱沙尼亚的波罗的海海岸。
-> 
-> 波罗的海和湖泊一样，相对较浅，平均深度为150英尺。它的盐度很低，几乎可以称得上是淡水。这是因为数以百计的河流汇入这片海，还有更多的淡水以雨雪的形式落到大海上，导致它得到的淡水远多于蒸发掉的。波罗的海也可以被称为是一个巨大的入海口，有几十条河流流入。水手们青睐波罗的海，因为那里几乎没有海流和潮汐，即使刮起海风，海面也相对平静。波罗的海交通便利，是通往众多陆地的门户，几个世纪以来，波罗的海一直是该地区贸易和商业不可或缺的一部分，但也不可避免地发生过冲突。它有很多名字，这证明波罗的海是一个见面的好地方。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Migliarino_ZH-CN0744250844_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Migliarino_ZH-CN0744250844_1080x1920.jpg) |��个世纪以来，波罗的海一直是该地区贸易和商业不可或缺的一部分，但也不可避免地发生过冲突。它有很多名字，这证明波罗的海是一个见面的好地方。
 > 
 > 
 
