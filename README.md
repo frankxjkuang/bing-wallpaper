@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220907
+
+> 英格兰怀特岛上的尼德尔斯白垩岩石和19世纪的灯塔。 (© CBCK Christine/iStock/Getty Images Plus)
+
+<details>
+<summary>Description</summary>
+
+> 这些被阳光亲吻的海栈是怀特岛上的尼德尔斯白垩岩石，是白垩山脊的一部分，在上一个冰河时代，人们认为这些山脊一直延伸到波贝克岛上的索伦特岩石和老哈里岩石。 融化的冰随后释放出一股洪水，淹没了陆地并侵蚀了白垩脊，将怀特岛与大陆分离，并在间隙两侧留下了岩层。今天剩下的三个烟囱皆是以曾经的第四个被称为“罗特的妻子”的针状岩石顶峰命名，该顶峰在1764年的一场风暴中倒塌入海。
+> 
+> 在退潮时，它的残根仍然清晰可见，形成了一个危险的暗礁——这是水手们面临的几个障碍之一。怀特岛的顶端暴露在恶劣的天气中，气象站经常记录英国最强的风，许多船只在这个受保护的沉船地点遇到了麻烦。这里发现了两艘战舰的残骸。“波蒙”号于1811年在这里沉没，当时它正带着威斯敏斯特的情报赶回英国，而“保证”号也在1753年从牙买加返回朴茨茅斯时丢失。
+> 
+> 在海栈的尽头坐落着尼德尔斯灯塔，现在已经自动化，自1859年以来一直在警告船只远离此处的危险岩石。图片顶部是尼德尔斯老炮台，这是一座建于1862年的二级保护维多利亚式堡垒，在两次世界大战期间都曾服役。怀特岛上有很多值得一看的地方，无论是令人惊叹的自然风光还是历史遗迹。本周，它举办了著名的大蒜节，以支持岛上的大蒜产业并庆祝辛辣的鳞茎，并提供美食、现场音乐和家庭活动。
+
+</details>
+
+| ![尼德尔斯白垩岩石](https://cn.bing.com/th?id=OHR.TheNeedles_ZH-CN6578835963_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![尼德尔斯白垩岩石](https://cn.bing.com/th?id=OHR.TheNeedles_ZH-CN6578835963_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TheNeedles_ZH-CN6578835963_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TheNeedles_ZH-CN6578835963_1080x1920.jpg) |
+
 ### 20220906
 
 > 叼着蘑菇的红松鼠 (© Michael Quinton/Minden Pictures)
@@ -112,36 +131,7 @@
 
 | ![野生动物通道，维尔登，荷兰](https://cn.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![野生动物通道，维尔登，荷兰](https://cn.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_1080x1920.jpg) |
-
-### 20220831
-
-> 新爱尔兰岛上的蓝指海星，巴布亚新几内亚 (© Jurgen Freund/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> 在印度洋-太平洋海域的浅水区，你会遇见蓝指海星。它们通常依附或隐藏在岩石的下面。图中的这对海星是在巴布亚新几内亚的新爱尔兰区域被发现的。尽管它们的名字中带着“蓝色”，但这种海星也有紫色、粉色和橙色的。这些美丽的颜色使得蓝指海星备受人们的欢迎。持续捕捞导致它们的种群数量受到了很大威胁。在不受干扰的情况下，蓝指海星可以在野外存活长达10年。科学家们还研究了蓝指海星与生俱来的潜在抗肿瘤和抗菌的特性。
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![巴布亚新几内亚的蓝指海星](https://cn.bing.com/th?id=OHR.BlueLinckia_ZH-CN1103817183_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![巴布亚新几内亚的蓝指海星](https://cn.bing.com/th?id=OHR.BlueLinckia_ZH-CN1103817183_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueLinckia_ZH-CN1103817183_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueLinckia_ZH-CN1103817183_1080x1920.jpg) |&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Migliarino_ZH-CN0744250844_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Migliarino_ZH-CN0744250844_1080x1920.jpg) |��个世纪以来，波罗的海一直是该地区贸易和商业不可或缺的一部分，但也不可避免地发生过冲突。它有很多名字，这证明波罗的海是一个见面的好地方。
-> 
-> 
-
-</details>
-
-| ![爱沙尼亚的波罗的海](https://cn.bing.com/th?id=OHR.EstoniaBaltic_ZH-CN0314555299_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![爱沙尼亚的波罗的海](https://cn.bing.com/th?id=OHR.EstoniaBaltic_ZH-CN0314555299_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EstoniaBaltic_ZH-CN0314555299_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EstoniaBaltic_ZH-CN0314555299_1080x1920.jpg) |flies) from the metropolises of Seattle and Vancouver, Canada. This proximity of wilderness to human development reminds us why we created the NPS, to preserve some of the nation's most special places in their natural state.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_1080x1920.jpg) |es of Seattle and Vancouver, Canada. This proximity of wilderness to human development reminds us why we created the NPS, to preserve some of the nation's most special places in their natural state.
 
 </details>
 
