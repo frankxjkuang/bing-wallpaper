@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220908
+
+> View of the city from the Setas de Sevilla (Metropol Parasol) in Seville, Spain (© LucVi/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> The first recorded expedition to successfully circumnavigate the Earth returned here to Seville, Spain, 500 years ago today. This was the remnants of the Spanish fleet that had set sail under the command of Ferdinand Magellan almost exactly three years previously with the goal of finding a western sea route to the rich Spice Islands of Indonesia. While Magellan gets the glory as leader of the expedition, he didn't actually complete the marathon voyage—he had been killed in a skirmish in the Philippines in April 1521. In the end, his place as leader of the five-ship voyage was filled by Juan Sebastián Elcano, whose command ship, the 'Vittoria,' was the only one in the convoy that survived the trip. Harsh conditions, starvation, scurvy, hostile encounters, and other struggles had taken their toll: Of the roughly 270 crew members who set out, only 18 returned with the expedition.
+> 
+> Although he made only half of this globe-circling journey, Magellan is rightly honored as an outstanding navigator, especially given the rudimentary knowledge of world geography and relatively primitive navigational tools of the time. He was the first European to traverse the strait that now bears his name near the tip of South America, trailblazing the first known passage between the Atlantic and Pacific oceans. The eventual success of Magellan's expedition, however bedraggled its remaining crew, also offered the first practical proof of a notion many 16th-century people were still skeptical about: The Earth is round.
+> 
+> 
+
+</details>
+
+| ![Seville, Spain](https://cn.bing.com/th?id=OHR.CircumnavigationAnni_EN-US9635067459_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Seville, Spain](https://cn.bing.com/th?id=OHR.CircumnavigationAnni_EN-US9635067459_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CircumnavigationAnni_EN-US9635067459_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CircumnavigationAnni_EN-US9635067459_1080x1920.jpg) |
+
 ### 20220907
 
 > Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Seitan Limania Beach, Crete](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Seitan Limania Beach, Crete](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_1080x1920.jpg) |
-
-### 20220901
-
-> Wildlife crossing in Wierden, Netherlands (© Frans Lemmens/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> It's not just chickens that cross the road. Wild creatures from frogs to elk roll the dice with death when they need to traverse the thousands of highways humans have threaded through wildlife habitat. Sadly, the dice don't fall favorably for millions of animals each year, and collisions with vehicles often cause fatalities for both them and the drivers who hit them.
-> 
-> Many countries now construct wildlife crossings—also called green bridges, ecoducts, natuurbrugs (like this one in Wierden in the Netherlands), and écoponts (in France). These can be either overpasses or underpasses, and they are an expensive venture. Are they worth it? Well, officials in Banff National Park in Alberta, Canada, would say categorically yes. Over 20 years they built 44 bridges and underpasses so wildlife could cross the Trans-Canada Highway, which divides the park; traffic accidents involving wildlife dropped by 80%.
-> 
-> France built the first overland wildlife crossings in the 1950s and continues to invest in many elaborate safe passageways. But the Netherlands leads the initiative, with an impressive 600-plus wildlife crossings, and counting. In fact, the Dutch can claim the honors for the world's longest animal crossing too—the Natuurbrug Zanderij Crailoo is an overpass that's half a mile long and 55 yards wide. Now chickens and their four-legged friends can cross the road anytime, no questions asked.
-
-</details>
-
-| ![Wildlife crossing, Wierden, Netherlands](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wildlife crossing, Wierden, Netherlands](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_1080x1920.jpg) |long this fragile deal will hold and whether it will bring relief to the world's hungry or to Ukraine's economy. We can only hope the people of the besieged nation are granted the independence they have strived for.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_1080x1920.jpg) |n only hope the people of the besieged nation are granted the independence they have strived for.
 
 </details>
 
