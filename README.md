@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220910
+
+> Moon installation for the Mid-Autumn Festival in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)
+
+<details>
+<summary>Description</summary>
+
+> Many people in Asia celebrate the fall harvest season with the Mid-Autumn Festival—and since the moon is the, um, star of the show, it's also known as the Moon Festival. The holiday falls on the 15th day of the eighth lunar month each year and coincides with the full moon. Our photo features a moon installation from the festivities in Kuala Lumpur, the capital of Malaysia. The city is known for its colorful decorations and lively activities during the festival: Crowds flood the city to watch puppet shows, dragon dances, and parades lit by lanterns.
+> 
+> Of course, no festival is complete without food. Mooncakes are the most abundant treat at the Mid-Autumn Festival. These small, tasty pastries vary in style and flavor depending on the country where you're celebrating. Here in Kuala Lumpur, you can find traditional Chinese mooncakes but also unique local varieties, like some made with durian (a prickly tropical fruit known for both great flavor and ghastly smell) and cubilose (said to be delicious despite being made from dried bird spit).
+> 
+> But even if you're not keen to sample every kind of mooncake, you can come together with people of all races and creeds to celebrate Mid-Autumn. After all, the moon lights the way for us all.
+
+</details>
+
+| ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_1080x1920.jpg) |
+
 ### 20220909
 
 > Lighthouse Reef, Blue Hole Natural Monument, Belize (© Tom Till/Alamy)
@@ -112,24 +131,7 @@
 
 | ![Arambol Beach, Goa, India](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arambol Beach, Goa, India](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_1080x1920.jpg) |
-
-### 20220903
-
-> Petronas Twin Towers, Kuala Lumpur, Malaysia (© tampatra/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The Petronas Twin Towers are the unmistakable calling card of the Malaysian capital city of Kuala Lumpur, affectionately called KL. The 88-story, 1,483-foot cylindrical towers were the tallest buildings in the world when they were completed in 1996, until 2004 when Taiwan's Taipei 101 topped them by almost 200 feet. Still the tallest twin skyscrapers in the world, they're our perfect inspiration today on Skyscraper Day, set aside to appreciate such engineering and architectural feats.
-> 
-> The Petronas Towers, named for Malaysia's state-owned oil and gas company, were designed by the late Argentine American architect César Pelli, who incorporated motifs of Islamic art into his postmodern design. It remains his masterpiece, and a true standout in a country and continent full of skyscrapers. One of the most notable features of the buildings is a two-level skybridge that connects the towers at the 41st and 42nd floors. The bridge is not actually anchored to the main structure, but freely slides into each tower to accommodate any swaying caused by wind.
-> 
-> The preponderance of supertall structures in Asia isn't a coincidence. Skyscrapers spring up where populations are high, land is in short supply, and economies flourish. Plus, for an up-and-coming city, nothing says you've arrived like a gleaming skyscraper—or a pair of them. And why stop there? Even the Petronas Towers, though emblematic of the KL skyline, are no longer the tallest kids on the block in Malaysia: A new skyscraper, the 2,227-foot Merdeka 118, is expected to be completed in 2023 as the second-highest building in the world.
-
-</details>
-
-| ![Skyscraper Day](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_EN-US7848703415_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Skyscraper Day](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_EN-US7848703415_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_1080x1920.jpg) |yscraper Day](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_EN-US7848703415_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_EN-US7848703415_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_EN-US7848703415_1080x1920.jpg) |nian Independence Day](https://cn.bing.com/th?id=OHR.WheatField_EN-US3537753695_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
