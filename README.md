@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220911
+
+> Statue of Liberty seen behind US flags at half-staff for the anniversary of September 11 in 2014, New York City (© Adam Parent/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Patriot Day is held each September 11 to honor the people who were killed in the terrorist attacks against the United States on September 11, 2001. US government buildings throughout the world fly the American flag at half-staff on this day, as do many private homes and establishments. Although schools, government offices, and businesses typically remain open on Patriot Day, communities throughout the country hold remembrances and events to honor the 2,977 people who died.
+> 
+> Patriot Day is also a time to honor thousands of first responders who worked tirelessly and put themselves in harm's way in the horrific aftermath of the attacks. Tribute is also paid to the many men and women who fought in Afghanistan in the months following the attacks.
+> 
+> 
+
+</details>
+
+| ![Patriot Day](https://cn.bing.com/th?id=OHR.SOLHalfStaff_EN-US6710129226_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.SOLHalfStaff_EN-US6710129226_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SOLHalfStaff_EN-US6710129226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SOLHalfStaff_EN-US6710129226_1080x1920.jpg) |
+
 ### 20220910
 
 > Moon installation for the Mid-Autumn Festival in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)
@@ -112,24 +131,7 @@
 
 | ![1934 Labor Day parade, Gastonia, North Carolina](https://cn.bing.com/th?id=OHR.GastoniaParade_EN-US8873564493_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![1934 Labor Day parade, Gastonia, North Carolina](https://cn.bing.com/th?id=OHR.GastoniaParade_EN-US8873564493_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GastoniaParade_EN-US8873564493_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GastoniaParade_EN-US8873564493_1080x1920.jpg) |
-
-### 20220904
-
-> Arambol Beach in Goa, India (© Ben Pipe/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Known for its immense, densely populated cities, India also has a seemingly endless coastline. And no part of it is more languid and lovely than Arambol, in the small and special state of Goa on the southwestern coast. Arambol is a popular holiday town with the vibe of a sleepy fishing village—which it was once was. Now visitors from around the world are drawn to its tropical climate, rainforest valleys, historic architecture, and sandy beaches.
-> 
-> Goa is distinct from much of India as it was colonized by Portugal while Great Britain occupied the rest. The Portuguese Empire conquered Goa in the early 1500s and ruled it until 1961, when it was annexed by India. The influence of the Portuguese can be seen in Goa's Catholic churches and convents, as well as in the name of the state's largest city: Vasco da Gama, after the explorer who once governed Goa.
-> 
-> If history isn't your thing, Arambol is famous for a drum circle and flea market held on the beach a few hours before sunset. It's just as much a beach party as a market. Craftspeople sell handmade wares while musicians join impromptu performances. There's no better way to end your day in Goa, land of sand and spice and sun.
-
-</details>
-
-| ![Arambol Beach, Goa, India](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arambol Beach, Goa, India](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GastoniaParade_EN-US8873564493_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GastoniaParade_EN-US8873564493_1080x1920.jpg) |h=224&rs=1&c=4) | ![Arambol Beach, Goa, India](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_1080x1920.jpg) |yscraper Day](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_EN-US7848703415_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
