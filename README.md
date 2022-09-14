@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220912
+
+> Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Today we're following our nose to the Pantanal in Brazil to visit this member of the toucan family named for the brownish plumage around its ears. What, you've never heard of a chestnut-eared aracari? That could be because aracaris don't really stand out among toucans at a glance: They have long, colorful bills, and they mate for life, always laying eggs in the same nest year after year. But aracaris are much more social nesters: Up to six aracari adults and all their babies might live in one nest.
+> 
+> Toucans are found in tropical climates in Central and South America, mainly in rainforests—our chestnut-eared friend tends to live in the southern Amazon Basin. Known frugivores, or fruit eaters, toucans have also been spotted eating the occasional lizard or even rival bird. They tend to be friendly with humans and have been successfully kept as pets—but probably prefer the wild life.
+> 
+> 
+
+</details>
+
+| ![Chestnut-eared aracari in the Pantanal, Brazil](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chestnut-eared aracari in the Pantanal, Brazil](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_1080x1920.jpg) |
+
 ### 20220911
 
 > Statue of Liberty seen behind US flags at half-staff for the anniversary of September 11 in 2014, New York City (© Adam Parent/Shutterstock)
@@ -112,18 +131,7 @@
 
 | ![National Mushroom Month](https://cn.bing.com/th?id=OHR.SquirrelMushroom_EN-US8955570535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Mushroom Month](https://cn.bing.com/th?id=OHR.SquirrelMushroom_EN-US8955570535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SquirrelMushroom_EN-US8955570535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SquirrelMushroom_EN-US8955570535_1080x1920.jpg) |
-
-### 20220905
-
-> Labor Day parade in 1934, Gastonia, North Carolina (© Bettmann/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Our historical Labor Day photo shows striking textile workers taking to the streets of Gastonia, North Carolina, voicing their grievances and seeking support for their cause. By the time of this 1934 strike, the textile industry had been struggling for years to keep pace with the economic times, and workers were struggling as their wages were cut while their workloads increased. Things came to a head after the National Industrial Recovery Act became law in 1933, leading to the formation of the Textile Industry Committee meant to represent the interests of business owners, consumers, and workers—but this only led to shortened workweeks, effectively reducing wages by 25%. Workers rushed to join the United Textile Workers union to get their voices heard and demand improved conditions.
-> 
-> On Sept. 1, 1934, some 65,000 North Carolina textile workers stayed home, shuttering the state's mills. When this photo was taken on Sept. 3, the workers were hopeful that they could achieve change. The governor called out the National Guard to protect the mills, and a couple of weeks later the strike effort crumbled due to lack of union resources and a surplus of fabric on the market. President Franklin Delano Roosevelt did go on to appoint a committee to mediate the situation, and the consensus was that the textile workers' grievances had substance and should be investigated further. Unfortunately, the actual investigation never happened.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SquirrelMushroom_EN-US8955570535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SquirrelMushroom_EN-US8955570535_1080x1920.jpg) |ion never happened.
 > 
 > 
 
