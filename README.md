@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220913
+
+> Great Sand Dunes National Park and Preserve, Colorado (© Y Paudel/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today we celebrate the birthday of Great Sand Dunes National Park and Preserve, which boasts 750-foot (and higher) sand dunes that cover more than 30 square miles. But the towering hills of sand—the tallest in North America—are just one feature of an eye-popping Colorado landscape that includes conifer forests, alpine lakes, and wetlands. The 150,000-acre park and preserve even encompasses stretches of tundra at the higher elevations, where it edges up against the base of the Sangre de Cristo Mountains.
+> 
+> Initially proclaimed a national monument in 1932 by President Herbert Hoover, the territory was redesignated as Great Sand Dunes National Park and Preserve on September 13, 2004, and the size of the park was quadrupled. The protected landscape provides ample opportunities for visitors to enjoy a wide range of activities, from sandboarding and sand sledding down the steep dunes to hiking, camping, horseback riding, and fat-tire biking.
+> 
+> 
+
+</details>
+
+| ![Great Sand Dunes National Park and Preserve](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Sand Dunes National Park and Preserve](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_1080x1920.jpg) |
+
 ### 20220912
 
 > Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![200th anniversary of Brazilian independence](https://cn.bing.com/th?id=OHR.MuseudoAmanha_EN-US9576177041_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![200th anniversary of Brazilian independence](https://cn.bing.com/th?id=OHR.MuseudoAmanha_EN-US9576177041_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseudoAmanha_EN-US9576177041_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseudoAmanha_EN-US9576177041_1080x1920.jpg) |
-
-### 20220906
-
-> Red squirrel carrying a mushroom (© Michael Quinton/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Oh, to be a squirrel with a feast such as this! It's National Mushroom Month, and it seems our red squirrel friend here in Alaska got a literal jump on celebrating. It might surprise you, but squirrels don't only eat nuts. They'll eat just about whatever's around and that includes big mushrooms. Though a small percentage of wild mushrooms can be poisonous to humans, squirrels can eat many of these frightening fungi without worry, thanks to special proteins in their guts. Nice to know someone's enjoying them.
-> 
-> Did you know the United States has a Mushroom Council? Since the early 1990s, the US Mushroom Council has worked as a Research and Promotion program of the Department of Agriculture. After an informal declaration during a Pennsylvania mushroom festival, the council proposed National Mushroom Month not just to highlight mushrooms as a culinary delicacy, but also showcase many other uses for the more than 900 million pounds of mushrooms the US produces each year. Believe it or not, we use mushrooms to build, clean, medicate, and even make leather—and so much more.
-> 
-> 
-
-</details>
-
-| ![National Mushroom Month](https://cn.bing.com/th?id=OHR.SquirrelMushroom_EN-US8955570535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Mushroom Month](https://cn.bing.com/th?id=OHR.SquirrelMushroom_EN-US8955570535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SquirrelMushroom_EN-US8955570535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SquirrelMushroom_EN-US8955570535_1080x1920.jpg) |ion never happened.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseudoAmanha_EN-US9576177041_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseudoAmanha_EN-US9576177041_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SquirrelMushroom_EN-US8955570535_1080x1920.jpg) |ion never happened.
 > 
 > 
 
