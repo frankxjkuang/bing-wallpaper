@@ -2,157 +2,136 @@
 
 ### 20220915
 
-> 罗兰豁口上空的银河，法国上比利牛斯省 (© SPANI Arnaud/Alamy)
+> Mural by Betsy Casañas in Buffalo, New York (© Tom Loonan)
 
 <details>
 <summary>Description</summary>
 
-> 如此美景在前，让人惊叹不已。这是罗兰豁口，位于上比利牛斯省的加瓦尔尼冰斗，豁口的那头流淌着星光灿烂的银河。这个豁口是天然形成的，宽40米，深70米，深受徒步旅行者的欢迎。它位于海拔2807米的地方，扮演着山口的角色，也标示着西班牙和法国之间的边界。
+> We're kicking off Hispanic Heritage Month with this beautiful mural celebrating the contributions made to the Buffalo, New York, region by the Hispanic and Latinx communities. Artist, community activist, and educator Betsy Casañas, with the assistance of many local artists, created this mural called 'Homeland, Perhaps It Is Because I Wish to See You Fly, That My Flight Continues to Be Yours.' Its subjects highlight local cultural heritage, including portrayals of agricultural production and industrial work. Through conversations with members of the community, Casañas incorporated symbolism inspired by the mixed and integrated Latinx community of Buffalo.
 > 
-> 根据传说，这个豁口是查理曼大帝的侄子罗兰造成的，当时他试图用剑击打岩石来摧毁剑。
+> Hispanic Heritage Month, a celebration of Hispanic and Latinx contributions to the United States, takes place each year from September 15 to October 15. Why doesn't it start at the beginning of the month? Because September 15 and 16 are important dates for many Hispanic communities in the Americas. On September 15, 1821, five Central American nations (Costa Rica, El Salvador, Guatemala, Honduras, and Nicaragua) declared their independence from Spain, almost 11 years to the day (September 16, 1810) after Mexico had declared its independence. These countries were specifically mentioned when US President Lyndon Johnson proclaimed the enactment of what was then Hispanic Heritage Week. In the 1980s, the week became a month, and Belize (which had declared independence from the UK on September 21, 1981) was added to the list of celebrated nations.
 > 
-> 加瓦尔尼冰斗是法国比利牛斯山脉最吸引人的景点之一，于1997年被联合国教科文组织列为了世界遗产。
+> 
 
 </details>
 
-| ![比利牛斯山脉的罗兰豁口](https://cn.bing.com/th?id=OHR.PyreneesPark_ZH-CN1341030921_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![比利牛斯山脉的罗兰豁口](https://cn.bing.com/th?id=OHR.PyreneesPark_ZH-CN1341030921_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PyreneesPark_ZH-CN1341030921_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PyreneesPark_ZH-CN1341030921_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_1080x1920.jpg) |
 
 ### 20220914
 
-> 大理石峡谷中横跨科罗拉多河的纳瓦霍桥，美国亚利桑那州北部 (© trekandshoot/Alamy)
+> Navajo Bridge over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 这里位于亚利桑那州北部，科罗拉多河以及深邃的峡谷将这里与该州的其他地区隔离开来。毫无疑问，你对科罗拉多大峡谷早有耳闻。但是，今天对另一个距离它大约70英里的峡谷来说却是一个重要的纪念日。1995年的今天，随着第二座桥的建成，大理石峡谷双桥正式投入使用。这两座桥也被合称为纳瓦霍桥。
+> In the late 1800s, pioneers in Utah who wanted to expand their settlements south into Arizona were confronted by 600 miles of deep canyons carved by the Colorado River. By 1873 a ferry was established to cross the Colorado at the mouth of Glen Canyon—Lees Ferry, as it was called, remained vital to settlers in the area for more than 50 years, until authorities decided a bridge would provide more reliable and safer crossing. Construction began in 1927 of a span across the 834-foot gap of Marble Canyon, at the head of the Grand Canyon. When Grand Canyon Bridge opened to traffic in 1929 it was hailed as a 'modern marvel' and 'the biggest news in Southwest history.'
 > 
-> 第一座桥建于1929年，它被誉为“现代奇迹”和“美国西南部历史上的头条新闻”，一直是穿越大理石峡谷长达834英尺裂缝的关键。但随着时间的推移，这里的车辆越来越重也越来越多。经过激烈的（关于土著土地、濒危植物、渣土可能掉入下方河流的）讨论后，人们制定了耗资1470万美元的计划，决定再修建一座一模一样的大桥。如今，大理石峡谷有着两座横跨科罗拉多河、高约470英尺的大桥。旧桥过人过马，新桥过车。虽然新桥比旧桥高约3英尺，但这两座桥都被称为是美国高度排名第九的桥。
+> But as time passed, the bridge, which was officially renamed Navajo Bridge in 1934, saw heavier vehicles and more traffic. Debates raged over the traffic’s impact on Native land and endangered plants, and the likelihood of debris falling into the river below. The solution was a new, nearly identical but wider second bridge just downstream from the original bridge. It was dedicated on September 14, 1995, to much fanfare. Both bridges, collectively known as Navajo Bridge, are about 470 feet above the river below. The original span serves as a path for humans and horses while the new bridge carries vehicles.
 > 
 > 
 
 </details>
 
-| ![大理石峡谷桥](https://cn.bing.com/th?id=OHR.MarbleCanyon_ZH-CN1066862981_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大理石峡谷桥](https://cn.bing.com/th?id=OHR.MarbleCanyon_ZH-CN1066862981_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Navajo Bridge in Marble Canyon](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Navajo Bridge in Marble Canyon](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_ZH-CN1066862981_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_ZH-CN1066862981_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_1080x1920.jpg) |
 
 ### 20220913
 
-> 大沙丘国家公园和保护区，美国科罗拉多州 (© Y Paudel/Getty Images)
+> Great Sand Dunes National Park and Preserve, Colorado (© Y Paudel/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 大沙丘国家公园及保护区拥有750英尺（甚至更高）的沙丘，覆盖面积超过30平方英里。但是这些北美最高的巍峨沙丘只是科罗拉多州众多惊人景观之一，这里还有针叶林、高山湖泊和湿地。这个面积为85000英亩的公园及保护区里，甚至还有高山冻原在桑格雷-德克里斯托山脚下蔓延。
+> Today we celebrate the birthday of Great Sand Dunes National Park and Preserve, which boasts 750-foot (and higher) sand dunes that cover more than 30 square miles. But the towering hills of sand—the tallest in North America—are just one feature of an eye-popping Colorado landscape that includes conifer forests, alpine lakes, and wetlands. The 150,000-acre park and preserve even encompasses stretches of tundra at the higher elevations, where it edges up against the base of the Sangre de Cristo Mountains.
 > 
-> 1932年，美国总统休伯特·汉弗莱宣布该地区正式成为国家纪念地。2004年9月13日，该地区被重新命名为大沙丘国家公园及保护区，其公园规模也扩大了四倍。这里为游客提供了丰富多样的娱乐活动，比如玩沙盘、坐沙橇从陡峭的沙丘滑下来、徒步露营、骑马和骑宽胎自行车。
+> Initially proclaimed a national monument in 1932 by President Herbert Hoover, the territory was redesignated as Great Sand Dunes National Park and Preserve on September 13, 2004, and the size of the park was quadrupled. The protected landscape provides ample opportunities for visitors to enjoy a wide range of activities, from sandboarding and sand sledding down the steep dunes to hiking, camping, horseback riding, and fat-tire biking.
 > 
 > 
 
 </details>
 
-| ![大沙丘国家公园和保护区](https://cn.bing.com/th?id=OHR.GSDNPest_ZH-CN0818304791_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大沙丘国家公园和保护区](https://cn.bing.com/th?id=OHR.GSDNPest_ZH-CN0818304791_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Great Sand Dunes National Park and Preserve](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Sand Dunes National Park and Preserve](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GSDNPest_ZH-CN0818304791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GSDNPest_ZH-CN0818304791_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_1080x1920.jpg) |
 
 ### 20220912
 
-> 栗耳簇舌巨嘴鸟，巴西潘塔纳尔保护区里 (© Ana Gram/Shutterstock)
+> Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 今天，我们将前往巴西潘塔纳尔保护区，探访这种巨嘴鸟家族的成员，它们因耳朵周围的棕色羽毛而得名。什么，你从来没有听说过栗耳簇舌巨嘴鸟？这可能是因为栗耳簇舌巨嘴鸟在巨嘴鸟中并不显眼：它们有长长的、色彩鲜艳的喙，它们坚持终生伴侣制，总是年复一年地在同一个巢中养育后代。不过栗耳簇舌巨嘴鸟可是群居的哦：一个巢里可能同时住着多达六只成年巨嘴鸟和它们的所有雏鸟。
+> Today we're following our nose to the Pantanal in Brazil to visit this member of the toucan family named for the brownish plumage around its ears. What, you've never heard of a chestnut-eared aracari? That could be because aracaris don't really stand out among toucans at a glance: They have long, colorful bills, and they mate for life, always laying eggs in the same nest year after year. But aracaris are much more social nesters: Up to six aracari adults and all their babies might live in one nest.
 > 
-> 巨嘴鸟生活在中美洲和南美洲的热带气候地区，主要是热带雨林里。栗耳簇舌巨嘴鸟则往往生活在亚马逊盆地和玻利维亚境内。巨嘴鸟是果食动物，但它们偶尔也吃蜥蜴甚至是敌人的雏鸟。它们能与人类友好相处，因此也被当做宠物饲养，不过它们可能更喜欢野外生活。
+> Toucans are found in tropical climates in Central and South America, mainly in rainforests—our chestnut-eared friend tends to live in the southern Amazon Basin. Known frugivores, or fruit eaters, toucans have also been spotted eating the occasional lizard or even rival bird. They tend to be friendly with humans and have been successfully kept as pets—but probably prefer the wild life.
 > 
 > 
 
 </details>
 
-| ![巴西潘塔纳尔保护区里的栗耳簇舌巨嘴鸟](https://cn.bing.com/th?id=OHR.Aracari_ZH-CN0383753817_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![巴西潘塔纳尔保护区里的栗耳簇舌巨嘴鸟](https://cn.bing.com/th?id=OHR.Aracari_ZH-CN0383753817_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Chestnut-eared aracari in the Pantanal, Brazil](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chestnut-eared aracari in the Pantanal, Brazil](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Aracari_ZH-CN0383753817_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Aracari_ZH-CN0383753817_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_1080x1920.jpg) |
 
 ### 20220911
 
-> 在喀拉拉邦河流中行驶的一艘小船，印度 (© Shutterstock)
+> Statue of Liberty seen behind US flags at half-staff for the anniversary of September 11 in 2014, New York City (© Adam Parent/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 喀拉拉邦是印度最南端的邦，自古就是因香料而享誉世界。 这里郁郁葱葱的绿色景观和水晶般清澈的海滩会让您惊叹不已。喀拉拉邦拥有大自然的所有元素，属于热带森林气候，炎热多雨，森林约占总面积的三分之一。
+> Patriot Day is held each September 11 to honor the people who were killed in the terrorist attacks against the United States on September 11, 2001. US government buildings throughout the world fly the American flag at half-staff on this day, as do many private homes and establishments. Although schools, government offices, and businesses typically remain open on Patriot Day, communities throughout the country hold remembrances and events to honor the 2,977 people who died.
 > 
-> 喀拉拉邦这个名字来源于喀拉，当地马拉雅拉姆语中是椰子的意思，全州有大量的椰子树和棕榈树。 尖尖的深绿色叶子就像天然的遮阳伞，可以抵御刺眼的阳光。椰子不仅为是这片土地命名的来源说法之一，而且还是一种无处不在且适应性强的自然资源，从中衍生出无数产品，例如椰壳纤维，一种多功能纤维，以及当地著名酿造酒（toddy）的酿造材料。
+> Patriot Day is also a time to honor thousands of first responders who worked tirelessly and put themselves in harm's way in the horrific aftermath of the attacks. Tribute is also paid to the many men and women who fought in Afghanistan in the months following the attacks.
 > 
 > 
 
 </details>
 
-| ![喀拉拉邦，印度](https://cn.bing.com/th?id=OHR.KeralaIndia_ZH-CN0125201857_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![喀拉拉邦，印度](https://cn.bing.com/th?id=OHR.KeralaIndia_ZH-CN0125201857_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Patriot Day](https://cn.bing.com/th?id=OHR.SOLHalfStaff_EN-US6710129226_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.SOLHalfStaff_EN-US6710129226_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KeralaIndia_ZH-CN0125201857_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KeralaIndia_ZH-CN0125201857_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SOLHalfStaff_EN-US6710129226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SOLHalfStaff_EN-US6710129226_1080x1920.jpg) |
 
 ### 20220910
 
-> 中秋之夜, 上海豫园 (© Zyxeos30/Getty images)
+> Moon installation for the Mid-Autumn Festival in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)
 
 <details>
 <summary>Description</summary>
 
-> 中秋节源自天象崇拜，由上古时代秋夕祭月演变而来。中秋节普及于汉代，汉代是中国南北各地的经济文化交流融合时期，各地文化上的交流使节俗融合传播。唐代时中秋风俗在中国北方地区已流行。
+> Many people in Asia celebrate the fall harvest season with the Mid-Autumn Festival—and since the moon is the, um, star of the show, it's also known as the Moon Festival. The holiday falls on the 15th day of the eighth lunar month each year and coincides with the full moon. Our photo features a moon installation from the festivities in Kuala Lumpur, the capital of Malaysia. The city is known for its colorful decorations and lively activities during the festival: Crowds flood the city to watch puppet shows, dragon dances, and parades lit by lanterns.
 > 
-> 根据中国的历法，农历八月在秋季中间，为秋季的第二个月，称为“仲秋”，而八月十五又在“仲秋”之中，所以称“中秋”。中秋节有许多别称：古时有秋分夕月（拜月）的活动，故称“月夕”或“祭月节”。因节期在八月十五，所以称“八月节”、“八月半”；因中秋节的主要活动都是围绕“月”进行的，所以又俗称“月节”；中秋节月亮圆满，象征团圆，因而又叫“团圆节”。
+> Of course, no festival is complete without food. Mooncakes are the most abundant treat at the Mid-Autumn Festival. These small, tasty pastries vary in style and flavor depending on the country where you're celebrating. Here in Kuala Lumpur, you can find traditional Chinese mooncakes but also unique local varieties, like some made with durian (a prickly tropical fruit known for both great flavor and ghastly smell) and cubilose (said to be delicious despite being made from dried bird spit).
 > 
-> 
+> But even if you're not keen to sample every kind of mooncake, you can come together with people of all races and creeds to celebrate Mid-Autumn. After all, the moon lights the way for us all.
 
 </details>
 
-| ![中秋节](https://cn.bing.com/th?id=OHR.MidAutumn2022_ZH-CN9825550508_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![中秋节](https://cn.bing.com/th?id=OHR.MidAutumn2022_ZH-CN9825550508_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MidAutumn2022_ZH-CN9825550508_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MidAutumn2022_ZH-CN9825550508_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_1080x1920.jpg) |
 
 ### 20220909
 
-> 伯利兹堡礁保护区, 伯利兹 (© Tom Till/Alamy)
+> Lighthouse Reef, Blue Hole Natural Monument, Belize (© Tom Till/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 伯利兹大堡礁沿着中美洲的加勒比海岸绵延190英里，是海洋世界最伟大的奇迹之一。它是中美洲大堡礁系统的一部分，该系统从墨西哥的尤卡坦半岛延伸到洪都拉斯，是世界上仅次于澳大利亚大堡礁的第二大珊瑚礁。1996年，伯利兹大堡礁被联合国教科文组织列为世界遗产。即使地球上许多珊瑚礁受到气候变化的威胁，它仍然相对健康。
+> One of the greatest marvels of the marine world, the Belize Barrier Reef runs 190 miles along the Central American country's Caribbean coast. It's part of the larger Mesoamerican Barrier Reef System that stretches from Mexico's Yucatan Peninsula to Honduras and is the second-largest reef in the world behind the Great Barrier Reef in Australia. Declared a UNESCO World Heritage Site in 1996, the Belize Barrier Reef has remained relatively healthy even as many of the planet's reefs are threatened by climate change.
 > 
-> 这里的特色是灯塔环礁上的红树林，灯塔环礁是珊瑚礁系统中三个主要的环礁之一。大多数游客到访灯塔环礁就一个目的：在它的中心有一个大蓝洞，这是一个直径1043英尺，深407英尺的海洋天坑，是水肺潜水员必去的目的地。1971年，海洋学家雅克·库斯托勘探绘制了蓝洞的深度图，大蓝洞随即名声大噪。
+> Featured here is a mangrove forest on Lighthouse Reef, one of three major atolls (above-water sections of reef that form ringlike, often lush island chains) in the reef system. It's the most visited of the atolls for one reason: Near its center is the Great Blue Hole, a marine sinkhole that's 1,043 feet across, 407 feet deep, and a bucket-list destination for serious scuba divers. Now protected within the Blue Hole Natural Monument, the hole was made famous when oceanographer Jacques Cousteau charted its depths in 1971.
 > 
-> 目前，堡礁是伯利兹最受欢迎的旅游景点，是潜水、钓鱼和观光的胜地。作为世界上生物多样性最丰富的地方之一，这里有着400多个珊瑚礁或岛屿、红树林、沿海泻湖和河口，是西半球唯一发现珊瑚环礁的地方。虽然这里是北半球，你却可以在这里领略到南太平洋的风情。
+> The barrier reef is by far Belize's most popular tourist attraction, a destination for diving and fishing as well as sightseeing. An exceptionally diverse ecosystem, it includes more than 400 cays or islands, mangrove forests, coastal lagoons, estuaries, and coral atolls. Think of it as a taste of the South Pacific, but a lot closer to home.
 
 </details>
 
-| ![伯利兹大堡礁](https://cn.bing.com/th?id=OHR.BHNMBelize_ZH-CN9422261941_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![伯利兹大堡礁](https://cn.bing.com/th?id=OHR.BHNMBelize_ZH-CN9422261941_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Belize Barrier Reef](https://cn.bing.com/th?id=OHR.BHNMBelize_EN-US6404020386_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Belize Barrier Reef](https://cn.bing.com/th?id=OHR.BHNMBelize_EN-US6404020386_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BHNMBelize_ZH-CN9422261941_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BHNMBelize_ZH-CN9422261941_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.CircumnavigationAnni_EN-US9635067459_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CircumnavigationAnni_EN-US9635067459_1080x1920.jpg) |
-
-### 20220907
-
-> Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Today we visit the Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro to celebrate 200 years of Brazilian independence. Designed by Spanish neofuturist architect Santiago Calatrava, the unique structure was commissioned to showcase Rio's revitalized waterfront ahead of the 2016 Olympics. The museum comprises five main areas: Cosmos, Earth, Anthropocene, Tomorrow, and Us, each inviting visitors to interact in different ways and learn about living in a sustainable world.
-> 
-> Brazil gained independence from Portugal just a few decades after the United States broke off from Great Britain, though it happened in a decidedly different way. Don Pedro I, first emperor of Brazil, was a member of the Portuguese ruling family (he would eventually briefly rule Portugal too). When Portugal threatened to take back the political autonomy Brazil had enjoyed since 1808, Pedro sided with his adopted homeland against the Portuguese. After a three-year war that was largely bloodless, the Empire of Brazil, which preceded the vibrantly diverse democracy we know today, was born on September 7, 1822.
-> 
-> 
-
-</details>
-
-| ![200th anniversary of Brazilian independence](https://cn.bing.com/th?id=OHR.MuseudoAmanha_EN-US9576177041_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![200th anniversary of Brazilian independence](https://cn.bing.com/th?id=OHR.MuseudoAmanha_EN-US9576177041_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseudoAmanha_EN-US9576177041_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseudoAmanha_EN-US9576177041_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SquirrelMushroom_EN-US8955570535_1080x1920.jpg) |ion never happened.
-> 
-> 
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BHNMBelize_EN-US6404020386_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BHNMBelize_EN-US6404020386_1080x1920.jpg) |> 
 
 </details>
 
