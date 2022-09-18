@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220916
+
+> Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Odds are this very focused puma has its eyes locked on a guanaco, a relative of the llama that's firmly at the top of its daily menu. In this case, dinner will be served in Torres del Paine National Park in the Patagonia region of Chile, the sprawling park recognized as one of the most famous places in the world to watch and photograph wild pumas. While tourists will sometimes see the big cats on their own, trained guides take visitors on hikes or all-terrain vehicle tours to look for the stealthy pumas. The wild cats have been officially protected for the last few years, bolstering their population, and there are abundant guanacos in the Patagonian steppes, which also helps.
+> 
+> The puma (which is the same big cat you might call a mountain lion or cougar) is the fourth-largest cat in the world, following the lion, tiger, and jaguar. Pumas don't roar like their large cousins—instead, they purr like house cats. That might explain why people in Patagonia simply call pumas gatos ('cats' in Spanish). With their characteristic slim build and impressive camouflage coloring, these canny hunters can live 10 years in their remote Patagonian home.
+> 
+> 
+
+</details>
+
+| ![Puma in Patagonia](https://cn.bing.com/th?id=OHR.PianePuma_EN-US7221521942_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Puma in Patagonia](https://cn.bing.com/th?id=OHR.PianePuma_EN-US7221521942_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PianePuma_EN-US7221521942_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PianePuma_EN-US7221521942_1080x1920.jpg) |
+
 ### 20220915
 
 > Mural by Betsy Casañas in Buffalo, New York (© Tom Loonan)
@@ -112,24 +131,7 @@
 
 | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_1080x1920.jpg) |
-
-### 20220909
-
-> Lighthouse Reef, Blue Hole Natural Monument, Belize (© Tom Till/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> One of the greatest marvels of the marine world, the Belize Barrier Reef runs 190 miles along the Central American country's Caribbean coast. It's part of the larger Mesoamerican Barrier Reef System that stretches from Mexico's Yucatan Peninsula to Honduras and is the second-largest reef in the world behind the Great Barrier Reef in Australia. Declared a UNESCO World Heritage Site in 1996, the Belize Barrier Reef has remained relatively healthy even as many of the planet's reefs are threatened by climate change.
-> 
-> Featured here is a mangrove forest on Lighthouse Reef, one of three major atolls (above-water sections of reef that form ringlike, often lush island chains) in the reef system. It's the most visited of the atolls for one reason: Near its center is the Great Blue Hole, a marine sinkhole that's 1,043 feet across, 407 feet deep, and a bucket-list destination for serious scuba divers. Now protected within the Blue Hole Natural Monument, the hole was made famous when oceanographer Jacques Cousteau charted its depths in 1971.
-> 
-> The barrier reef is by far Belize's most popular tourist attraction, a destination for diving and fishing as well as sightseeing. An exceptionally diverse ecosystem, it includes more than 400 cays or islands, mangrove forests, coastal lagoons, estuaries, and coral atolls. Think of it as a taste of the South Pacific, but a lot closer to home.
-
-</details>
-
-| ![Belize Barrier Reef](https://cn.bing.com/th?id=OHR.BHNMBelize_EN-US6404020386_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Belize Barrier Reef](https://cn.bing.com/th?id=OHR.BHNMBelize_EN-US6404020386_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KLMidAutumn_EN-US6642842911_1080x1920.jpg) |&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BHNMBelize_EN-US6404020386_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BHNMBelize_EN-US6404020386_1080x1920.jpg) |> 
 
