@@ -1,127 +1,137 @@
 ## bing wallpaper
 
-### 20220916
+### 20220918
 
-> Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)
+> 幽鹤国家公园的翡翠湖, 加拿大不列颠哥伦比亚省 (© Cavan Images/Offset)
 
 <details>
 <summary>Description</summary>
 
-> Odds are this very focused puma has its eyes locked on a guanaco, a relative of the llama that's firmly at the top of its daily menu. In this case, dinner will be served in Torres del Paine National Park in the Patagonia region of Chile, the sprawling park recognized as one of the most famous places in the world to watch and photograph wild pumas. While tourists will sometimes see the big cats on their own, trained guides take visitors on hikes or all-terrain vehicle tours to look for the stealthy pumas. The wild cats have been officially protected for the last few years, bolstering their population, and there are abundant guanacos in the Patagonian steppes, which also helps.
+> 今天，我们将在加拿大不列颠哥伦比亚省幽鹤国家公园欣赏翡翠湖的美景。 荒野中的这颗宝石是一个主要的旅游景点，是公园内最大的湖泊。 翡翠湖距离 TransCanada 高速公路不远，交通便利，整个夏季都吸引了数名游客。 它是由导游汤姆威尔逊于 1882 年发现的，他无意中通过收集逃跑的马匹偶然发现了湖。
 > 
-> The puma (which is the same big cat you might call a mountain lion or cougar) is the fourth-largest cat in the world, following the lion, tiger, and jaguar. Pumas don't roar like their large cousins—instead, they purr like house cats. That might explain why people in Patagonia simply call pumas gatos ('cats' in Spanish). With their characteristic slim build and impressive camouflage coloring, these canny hunters can live 10 years in their remote Patagonian home.
+> 
 > 
 > 
 
 </details>
 
-| ![Puma in Patagonia](https://cn.bing.com/th?id=OHR.PianePuma_EN-US7221521942_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Puma in Patagonia](https://cn.bing.com/th?id=OHR.PianePuma_EN-US7221521942_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![幽鹤国家公园](https://cn.bing.com/th?id=OHR.EmeraldYoho_ZH-CN4524610330_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![幽鹤国家公园](https://cn.bing.com/th?id=OHR.EmeraldYoho_ZH-CN4524610330_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PianePuma_EN-US7221521942_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PianePuma_EN-US7221521942_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EmeraldYoho_ZH-CN4524610330_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EmeraldYoho_ZH-CN4524610330_1080x1920.jpg) |
+
+### 20220917
+
+> 布莱克浦塔和中央码头，英国兰开夏郡 (© Bailey-Cooper Photography/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> 随着夏季的结束，这个著名的兰开夏海滨度假胜地正在为其主要活动做准备。自第二次世界大战结束以来，布莱克浦的灯饰一直是该镇每年的固定设施。第一次照明发生在1879年，当时在长廊上竖立了八盏弧光灯，在人们仍用蜡烛照明的时候，引起了人们的极大兴趣。第一次大规模灯饰照明于1912年5月到来，当时有10000盏灯用于装饰长廊，布莱克浦迎接了首次的皇家访问。由于两次世界大战，在接下来的几十年里，这场活动会有点断断续续，但在1949年，它们又开始进行，随着时间的推移，它的规模在不断扩大。
+> 
+> 如今，超过100万盏灯在6英里长的长廊上闪烁，覆盖了建筑物、电车、码头、游乐场游乐设施和布莱克浦塔，还有照明的舞台和互动装置。这些照明设备每年运行约66晚，耗资超过200万英镑——光是电费就被认为高达5万英镑左右。然而，据估计，它们为这个西北部城镇带来了约2.5亿英镑的额外收入。
+> 
+> 近年来，该活动已转向使用LED灯和可再生能源，以降低成本和碳足迹，同时每年仍吸引约350万游客来到费尔德海岸的这个角落。
+
+</details>
+
+| ![布莱克浦的灯光节](https://cn.bing.com/th?id=OHR.BlackpoolBeach_ZH-CN2646268897_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![布莱克浦的灯光节](https://cn.bing.com/th?id=OHR.BlackpoolBeach_ZH-CN2646268897_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlackpoolBeach_ZH-CN2646268897_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlackpoolBeach_ZH-CN2646268897_1080x1920.jpg) |
+
+### 20220916
+
+> 百内国家公园中的一头美洲狮，智利巴塔哥尼亚 (© Ingo Arndt/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> 照片上，这头专注的美洲狮将目光锁定在一只原驼（美洲驼的近亲）身上，这是美洲狮日常菜单上的食物。这一幕发生在智利巴塔哥尼亚地区的托雷德裴恩国家公园，这个庞大的公园是世界上最著名的观赏及拍摄野生美洲狮的地点之一。虽然大部分游客更乐于享受巴塔哥尼亚地区温暖的季节，但美洲狮爱好者们会在5月至8月期间前往托雷德裴恩国家公园。这段时间在当地被称为“秘密季节”，届时训练有素的导游会带游客徒步或坐车去寻找隐秘的美洲狮。在过去的几年里，野生美洲狮获得了官方的保护，而且巴塔哥尼亚大草原上有大量的原驼，使得美洲狮的数量得以增加。
+> 
+> 美洲狮是世界上第四大猫科动物，仅次于狮子、老虎和美洲豹。美洲狮可不像它们的大表亲那样咆哮，相反，它们像家猫一样发出咕噜声。因此巴塔哥尼亚人简单地称美洲狮为“gatos”（西班牙语意为“猫”）。凭借其独特的苗条身材和令人印象深刻的保护色皮肤，这些住在巴塔哥尼亚的精明猎手寿命可达10余年。
+> 
+> 
+
+</details>
+
+| ![巴塔哥尼亚的美洲狮](https://cn.bing.com/th?id=OHR.PianePuma_ZH-CN1482049046_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![巴塔哥尼亚的美洲狮](https://cn.bing.com/th?id=OHR.PianePuma_ZH-CN1482049046_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PianePuma_ZH-CN1482049046_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PianePuma_ZH-CN1482049046_1080x1920.jpg) |
 
 ### 20220915
 
-> Mural by Betsy Casañas in Buffalo, New York (© Tom Loonan)
+> 罗兰豁口上空的银河，法国上比利牛斯省 (© SPANI Arnaud/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> We're kicking off Hispanic Heritage Month with this beautiful mural celebrating the contributions made to the Buffalo, New York, region by the Hispanic and Latinx communities. Artist, community activist, and educator Betsy Casañas, with the assistance of many local artists, created this mural called 'Homeland, Perhaps It Is Because I Wish to See You Fly, That My Flight Continues to Be Yours.' Its subjects highlight local cultural heritage, including portrayals of agricultural production and industrial work. Through conversations with members of the community, Casañas incorporated symbolism inspired by the mixed and integrated Latinx community of Buffalo.
+> 如此美景在前，让人惊叹不已。这是罗兰豁口，位于上比利牛斯省的加瓦尔尼冰斗，豁口的那头流淌着星光灿烂的银河。这个豁口是天然形成的，宽40米，深70米，深受徒步旅行者的欢迎。它位于海拔2807米的地方，扮演着山口的角色，也标示着西班牙和法国之间的边界。
 > 
-> Hispanic Heritage Month, a celebration of Hispanic and Latinx contributions to the United States, takes place each year from September 15 to October 15. Why doesn't it start at the beginning of the month? Because September 15 and 16 are important dates for many Hispanic communities in the Americas. On September 15, 1821, five Central American nations (Costa Rica, El Salvador, Guatemala, Honduras, and Nicaragua) declared their independence from Spain, almost 11 years to the day (September 16, 1810) after Mexico had declared its independence. These countries were specifically mentioned when US President Lyndon Johnson proclaimed the enactment of what was then Hispanic Heritage Week. In the 1980s, the week became a month, and Belize (which had declared independence from the UK on September 21, 1981) was added to the list of celebrated nations.
+> 根据传说，这个豁口是查理曼大帝的侄子罗兰造成的，当时他试图用剑击打岩石来摧毁剑。
 > 
-> 
+> 加瓦尔尼冰斗是法国比利牛斯山脉最吸引人的景点之一，于1997年被联合国教科文组织列为了世界遗产。
 
 </details>
 
-| ![Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![比利牛斯山脉的罗兰豁口](https://cn.bing.com/th?id=OHR.PyreneesPark_ZH-CN1341030921_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![比利牛斯山脉的罗兰豁口](https://cn.bing.com/th?id=OHR.PyreneesPark_ZH-CN1341030921_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PyreneesPark_ZH-CN1341030921_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PyreneesPark_ZH-CN1341030921_1080x1920.jpg) |
 
 ### 20220914
 
-> Navajo Bridge over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)
+> 大理石峡谷中横跨科罗拉多河的纳瓦霍桥，美国亚利桑那州北部 (© trekandshoot/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> In the late 1800s, pioneers in Utah who wanted to expand their settlements south into Arizona were confronted by 600 miles of deep canyons carved by the Colorado River. By 1873 a ferry was established to cross the Colorado at the mouth of Glen Canyon—Lees Ferry, as it was called, remained vital to settlers in the area for more than 50 years, until authorities decided a bridge would provide more reliable and safer crossing. Construction began in 1927 of a span across the 834-foot gap of Marble Canyon, at the head of the Grand Canyon. When Grand Canyon Bridge opened to traffic in 1929 it was hailed as a 'modern marvel' and 'the biggest news in Southwest history.'
+> 这里位于亚利桑那州北部，科罗拉多河以及深邃的峡谷将这里与该州的其他地区隔离开来。毫无疑问，你对科罗拉多大峡谷早有耳闻。但是，今天对另一个距离它大约70英里的峡谷来说却是一个重要的纪念日。1995年的今天，随着第二座桥的建成，大理石峡谷双桥正式投入使用。这两座桥也被合称为纳瓦霍桥。
 > 
-> But as time passed, the bridge, which was officially renamed Navajo Bridge in 1934, saw heavier vehicles and more traffic. Debates raged over the traffic’s impact on Native land and endangered plants, and the likelihood of debris falling into the river below. The solution was a new, nearly identical but wider second bridge just downstream from the original bridge. It was dedicated on September 14, 1995, to much fanfare. Both bridges, collectively known as Navajo Bridge, are about 470 feet above the river below. The original span serves as a path for humans and horses while the new bridge carries vehicles.
+> 第一座桥建于1929年，它被誉为“现代奇迹”和“美国西南部历史上的头条新闻”，一直是穿越大理石峡谷长达834英尺裂缝的关键。但随着时间的推移，这里的车辆越来越重也越来越多。经过激烈的（关于土著土地、濒危植物、渣土可能掉入下方河流的）讨论后，人们制定了耗资1470万美元的计划，决定再修建一座一模一样的大桥。如今，大理石峡谷有着两座横跨科罗拉多河、高约470英尺的大桥。旧桥过人过马，新桥过车。虽然新桥比旧桥高约3英尺，但这两座桥都被称为是美国高度排名第九的桥。
 > 
 > 
 
 </details>
 
-| ![Navajo Bridge in Marble Canyon](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Navajo Bridge in Marble Canyon](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![大理石峡谷桥](https://cn.bing.com/th?id=OHR.MarbleCanyon_ZH-CN1066862981_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大理石峡谷桥](https://cn.bing.com/th?id=OHR.MarbleCanyon_ZH-CN1066862981_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_ZH-CN1066862981_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_ZH-CN1066862981_1080x1920.jpg) |
 
 ### 20220913
 
-> Great Sand Dunes National Park and Preserve, Colorado (© Y Paudel/Getty Images)
+> 大沙丘国家公园和保护区，美国科罗拉多州 (© Y Paudel/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Today we celebrate the birthday of Great Sand Dunes National Park and Preserve, which boasts 750-foot (and higher) sand dunes that cover more than 30 square miles. But the towering hills of sand—the tallest in North America—are just one feature of an eye-popping Colorado landscape that includes conifer forests, alpine lakes, and wetlands. The 150,000-acre park and preserve even encompasses stretches of tundra at the higher elevations, where it edges up against the base of the Sangre de Cristo Mountains.
+> 大沙丘国家公园及保护区拥有750英尺（甚至更高）的沙丘，覆盖面积超过30平方英里。但是这些北美最高的巍峨沙丘只是科罗拉多州众多惊人景观之一，这里还有针叶林、高山湖泊和湿地。这个面积为85000英亩的公园及保护区里，甚至还有高山冻原在桑格雷-德克里斯托山脚下蔓延。
 > 
-> Initially proclaimed a national monument in 1932 by President Herbert Hoover, the territory was redesignated as Great Sand Dunes National Park and Preserve on September 13, 2004, and the size of the park was quadrupled. The protected landscape provides ample opportunities for visitors to enjoy a wide range of activities, from sandboarding and sand sledding down the steep dunes to hiking, camping, horseback riding, and fat-tire biking.
+> 1932年，美国总统休伯特·汉弗莱宣布该地区正式成为国家纪念地。2004年9月13日，该地区被重新命名为大沙丘国家公园及保护区，其公园规模也扩大了四倍。这里为游客提供了丰富多样的娱乐活动，比如玩沙盘、坐沙橇从陡峭的沙丘滑下来、徒步露营、骑马和骑宽胎自行车。
 > 
 > 
 
 </details>
 
-| ![Great Sand Dunes National Park and Preserve](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Sand Dunes National Park and Preserve](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![大沙丘国家公园和保护区](https://cn.bing.com/th?id=OHR.GSDNPest_ZH-CN0818304791_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大沙丘国家公园和保护区](https://cn.bing.com/th?id=OHR.GSDNPest_ZH-CN0818304791_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GSDNPest_ZH-CN0818304791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GSDNPest_ZH-CN0818304791_1080x1920.jpg) |
 
 ### 20220912
 
-> Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)
+> 栗耳簇舌巨嘴鸟，巴西潘塔纳尔保护区里 (© Ana Gram/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> Today we're following our nose to the Pantanal in Brazil to visit this member of the toucan family named for the brownish plumage around its ears. What, you've never heard of a chestnut-eared aracari? That could be because aracaris don't really stand out among toucans at a glance: They have long, colorful bills, and they mate for life, always laying eggs in the same nest year after year. But aracaris are much more social nesters: Up to six aracari adults and all their babies might live in one nest.
+> 今天，我们将前往巴西潘塔纳尔保护区，探访这种巨嘴鸟家族的成员，它们因耳朵周围的棕色羽毛而得名。什么，你从来没有听说过栗耳簇舌巨嘴鸟？这可能是因为栗耳簇舌巨嘴鸟在巨嘴鸟中并不显眼：它们有长长的、色彩鲜艳的喙，它们坚持终生伴侣制，总是年复一年地在同一个巢中养育后代。不过栗耳簇舌巨嘴鸟可是群居的哦：一个巢里可能同时住着多达六只成年巨嘴鸟和它们的所有雏鸟。
 > 
-> Toucans are found in tropical climates in Central and South America, mainly in rainforests—our chestnut-eared friend tends to live in the southern Amazon Basin. Known frugivores, or fruit eaters, toucans have also been spotted eating the occasional lizard or even rival bird. They tend to be friendly with humans and have been successfully kept as pets—but probably prefer the wild life.
+> 巨嘴鸟生活在中美洲和南美洲的热带气候地区，主要是热带雨林里。栗耳簇舌巨嘴鸟则往往生活在亚马逊盆地和玻利维亚境内。巨嘴鸟是果食动物，但它们偶尔也吃蜥蜴甚至是敌人的雏鸟。它们能与人类友好相处，因此也被当做宠物饲养，不过它们可能更喜欢野外生活。
 > 
 > 
 
 </details>
 
-| ![Chestnut-eared aracari in the Pantanal, Brazil](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chestnut-eared aracari in the Pantanal, Brazil](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![巴西潘塔纳尔保护区里的栗耳簇舌巨嘴鸟](https://cn.bing.com/th?id=OHR.Aracari_ZH-CN0383753817_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![巴西潘塔纳尔保护区里的栗耳簇舌巨嘴鸟](https://cn.bing.com/th?id=OHR.Aracari_ZH-CN0383753817_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_1080x1920.jpg) |
-
-### 20220911
-
-> Statue of Liberty seen behind US flags at half-staff for the anniversary of September 11 in 2014, New York City (© Adam Parent/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Patriot Day is held each September 11 to honor the people who were killed in the terrorist attacks against the United States on September 11, 2001. US government buildings throughout the world fly the American flag at half-staff on this day, as do many private homes and establishments. Although schools, government offices, and businesses typically remain open on Patriot Day, communities throughout the country hold remembrances and events to honor the 2,977 people who died.
-> 
-> Patriot Day is also a time to honor thousands of first responders who worked tirelessly and put themselves in harm's way in the horrific aftermath of the attacks. Tribute is also paid to the many men and women who fought in Afghanistan in the months following the attacks.
-> 
-> 
-
-</details>
-
-| ![Patriot Day](https://cn.bing.com/th?id=OHR.SOLHalfStaff_EN-US6710129226_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.SOLHalfStaff_EN-US6710129226_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SOLHalfStaff_EN-US6710129226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SOLHalfStaff_EN-US6710129226_1080x1920.jpg) |
-
-### 20220910
-
-> Moon installation for the Mid-Autumn Festival in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)
-
-<details>
-<summary>Description</summary>
-
-> Many people in Asia celebrate the fall harvest season with the Mid-Autumn Festival—and since the moon is the, um, star of the show, it's also known as the Moon Festival. The holiday falls on the 15th day of the eighth lunar month each year and coincides with the full moon. Our photo features a moon installation from the festivities in Kuala Lumpur, the capital of Malaysia. The city is known for its colorful decorations and lively activities during the festival: Crowds flood the city to watch puppet shows, dragon dances, and parades lit by lanterns.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Aracari_ZH-CN0383753817_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Aracari_ZH-CN0383753817_1080x1920.jpg) |the Mid-Autumn Festival—and since the moon is the, um, star of the show, it's also known as the Moon Festival. The holiday falls on the 15th day of the eighth lunar month each year and coincides with the full moon. Our photo features a moon installation from the festivities in Kuala Lumpur, the capital of Malaysia. The city is known for its colorful decorations and lively activities during the festival: Crowds flood the city to watch puppet shows, dragon dances, and parades lit by lanterns.
 > 
 > Of course, no festival is complete without food. Mooncakes are the most abundant treat at the Mid-Autumn Festival. These small, tasty pastries vary in style and flavor depending on the country where you're celebrating. Here in Kuala Lumpur, you can find traditional Chinese mooncakes but also unique local varieties, like some made with durian (a prickly tropical fruit known for both great flavor and ghastly smell) and cubilose (said to be delicious despite being made from dried bird spit).
 > 
