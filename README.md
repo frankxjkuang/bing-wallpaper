@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220919
+
+> Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)
+
+<details>
+<summary>Description</summary>
+
+> Britain bids farewell to Queen Elizabeth II today, as her state funeral takes place in London's historic Westminster Abbey. Crowds are lining the streets to pay their final respects to the queen, who died peacefully at her Scottish residence, Balmoral, at age 96 on September 8, after more than 70 years on the throne. The royal family, world leaders, and senior UK politicians are attending the funeral, which is being broadcast across the world. After the service, the queen will be laid to rest in St. George's Chapel in the grounds of Windsor Castle, alongside Prince Philip, her beloved husband of 73 years, whom she described as her "strength and stay."
+> 
+> Queen Elizabeth II is Britain's longest-reigning monarch, and she dedicated her life to public service through turbulent times in the nation and beyond. From jubilees and celebrations to tragedy and political upheaval, she remained a constant, steady force, balancing duty and family responsibilities in her role as the country's head of state.
+> 
+> While Britons are sharing their loss and memories of the queen, some see it as a time to question the very existence of the monarchy, wishing to break with their colonial past by removing the British monarch as head of state and becoming a republic. All eyes are on her son King Charles III as he begins his reign, wondering whether he will follow closely in his mother's footsteps or forge a royal path of his own.
+
+</details>
+
+| ![State funeral of Queen Elizabeth II](https://cn.bing.com/th?id=OHR.QueenFuneral_EN-US7710269016_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![State funeral of Queen Elizabeth II](https://cn.bing.com/th?id=OHR.QueenFuneral_EN-US7710269016_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QueenFuneral_EN-US7710269016_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QueenFuneral_EN-US7710269016_1080x1920.jpg) |
+
 ### 20220918
 
 > Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Great Sand Dunes National Park and Preserve](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Sand Dunes National Park and Preserve](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_1080x1920.jpg) |
-
-### 20220912
-
-> Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Today we're following our nose to the Pantanal in Brazil to visit this member of the toucan family named for the brownish plumage around its ears. What, you've never heard of a chestnut-eared aracari? That could be because aracaris don't really stand out among toucans at a glance: They have long, colorful bills, and they mate for life, always laying eggs in the same nest year after year. But aracaris are much more social nesters: Up to six aracari adults and all their babies might live in one nest.
-> 
-> Toucans are found in tropical climates in Central and South America, mainly in rainforests—our chestnut-eared friend tends to live in the southern Amazon Basin. Known frugivores, or fruit eaters, toucans have also been spotted eating the occasional lizard or even rival bird. They tend to be friendly with humans and have been successfully kept as pets—but probably prefer the wild life.
-> 
-> 
-
-</details>
-
-| ![Chestnut-eared aracari in the Pantanal, Brazil](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chestnut-eared aracari in the Pantanal, Brazil](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_1080x1920.jpg) |OHR.GastoniaParade_EN-US8873564493_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![1934 Labor Day parade, Gastonia, North Carolina](https://cn.bing.com/th?id=OHR.GastoniaParade_EN-US8873564493_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GastoniaParade_EN-US8873564493_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GastoniaParade_EN-US8873564493_1080x1920.jpg) |h=224&rs=1&c=4) | ![Arambol Beach, Goa, India](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_1080x1920.jpg) |08449198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_1080x1920.jpg) |yscraper Day](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_EN-US7848703415_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
