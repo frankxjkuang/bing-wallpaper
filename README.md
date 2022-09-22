@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220920
+
+> Raft of sea otters in Sitka Sound, near Sitka, Alaska (© Robert Harding/Offset/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Officially called Enhydra lutris, and unofficially known as the cutest creatures that float, these sea otters in Sitka Sound, Alaska, are doing what otters do, showing us that it truly does take a village, in this case a flotilla. Groups of either males or females (sometimes with pups), are appropriately named rafts. Male rafts tend to be larger and can number more than 1,000 individuals. Sea otters' buoyant bodies indeed work like literal rafts, standing in as cradles, dinner tables, or any kind of solid surface. That's handy because otters spend the vast majority of their lives in the water, even giving birth in the sea. Although they seem to live carefree lives, frolicking and grooming and diving, they also serve an important role in keeping their aquatic ecosystems healthy, something to remember this week as we mark Sea Otter Awareness Week, observed every year during the last week of September.
+> 
+> Otters keep the giant kelp forests of the Pacific Ocean healthy by eating sea urchins, which would otherwise decimate kelp, an important habitat for many fish and other sea creatures. Otters also eat crabs, shellfish, squid, and other invertebrates. They've learned to crack the shells of some of their shellfish prey by smashing the crustaceans and mollusks against a rock (fetched from the sea floor of course) lodged on their bellies. An otter's caloric needs are huge. It must eat a quarter of its body weight each day to keep up with its cold-water metabolism.
+> 
+> The key to an otter's aquatic lifestyle is its fur, the thickest of any mammal, with about 1 million hairs per square inch, so dense its skin never actually gets wet. Otters need all those gazillion hairs to stay warm as they don't have a layer of blubber like other marine mammals. Their luxuriant coats made them favorite targets for 18th- and 19th-century trappers who hunted otters to near extinction before they were protected by law. Although sea otter populations have rebounded, they are still considered endangered. Otters live along the Pacific Coast of North America, from California up to Alaska. Although they can walk on land, they almost never find the need or desire to, even when it's nap time. When they're ready for a snooze, they'll raft up, wrap themselves in a strand of kelp to keep them from drifting away, and recline on the world's biggest waterbed.
+
+</details>
+
+| ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.SitkaOtters_EN-US7714053956_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.SitkaOtters_EN-US7714053956_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SitkaOtters_EN-US7714053956_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SitkaOtters_EN-US7714053956_1080x1920.jpg) |
+
 ### 20220919
 
 > Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)
@@ -112,36 +131,7 @@
 
 | ![Navajo Bridge in Marble Canyon](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Navajo Bridge in Marble Canyon](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_1080x1920.jpg) |
-
-### 20220913
-
-> Great Sand Dunes National Park and Preserve, Colorado (© Y Paudel/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today we celebrate the birthday of Great Sand Dunes National Park and Preserve, which boasts 750-foot (and higher) sand dunes that cover more than 30 square miles. But the towering hills of sand—the tallest in North America—are just one feature of an eye-popping Colorado landscape that includes conifer forests, alpine lakes, and wetlands. The 150,000-acre park and preserve even encompasses stretches of tundra at the higher elevations, where it edges up against the base of the Sangre de Cristo Mountains.
-> 
-> Initially proclaimed a national monument in 1932 by President Herbert Hoover, the territory was redesignated as Great Sand Dunes National Park and Preserve on September 13, 2004, and the size of the park was quadrupled. The protected landscape provides ample opportunities for visitors to enjoy a wide range of activities, from sandboarding and sand sledding down the steep dunes to hiking, camping, horseback riding, and fat-tire biking.
-> 
-> 
-
-</details>
-
-| ![Great Sand Dunes National Park and Preserve](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Sand Dunes National Park and Preserve](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_1080x1920.jpg) |08449198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArambolBeach_EN-US7908449198_1080x1920.jpg) |yscraper Day](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_EN-US7848703415_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_EN-US7848703415_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_EN-US7848703415_1080x1920.jpg) |nian Independence Day](https://cn.bing.com/th?id=OHR.WheatField_EN-US3537753695_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WheatField_EN-US3537753695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WheatField_EN-US3537753695_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_1080x1920.jpg) |Kitty Hawk on North Carolina's Outer Banks.
-> 
-> Solar Impulse 2 was the second aircraft built by Swiss aviators André Borschberg and Bertrand Piccard. Borschberg is an engineer by training, Piccard a psychiatrist and balloonist who copiloted the first balloon to fly around the world nonstop. The pair took turns piloting the aircraft, which can carry only one person, on a multi-leg, 16-month flight around the world that started and ended in Abu Dhabi in the United Arab Emirates.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_1080x1920.jpg) |Swiss aviators André Borschberg and Bertrand Piccard. Borschberg is an engineer by training, Piccard a psychiatrist and balloonist who copiloted the first balloon to fly around the world nonstop. The pair took turns piloting the aircraft, which can carry only one person, on a multi-leg, 16-month flight around the world that started and ended in Abu Dhabi in the United Arab Emirates.
 > 
 > This image was taken during the final leg from Egypt to Abu Dhabi as Solar Impulse 2 flew over the Great Pyramids of Giza. The superlight plane was powered by thousands of solar cells mounted atop its fuselage and jumbo-jet sized wings. Batteries stored energy so it could fly at night. The going was slow by the standards of modern jet travel—Solar Impulse 2 flew at an average speed of 50 mph. Clearly, solar-powered flight on a commercial scale is still many years away, but as this photo shows, its Kitty Hawk moment is in the books.
 
