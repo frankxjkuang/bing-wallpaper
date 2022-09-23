@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220921
+
+> 'Peace Doves' by artist Peter Walker in Liverpool Cathedral, Liverpool, England (© PAUL ELLIS/AFP via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today we're marking the International Day of Peace, first commemorated in 1981, when the United Nations dedicated the day to 'strengthening the ideals of peace, through observing 24 hours of nonviolence and ceasefire.' This year's theme is 'End racism, build peace.' As the UN says, 'Achieving true peace entails much more than laying down arms. It requires the building of societies where all members feel that they can flourish. It involves creating a world in which people are treated equally, regardless of their race.'
+> 
+> Our photo today shows a striking symbolic artwork that seems as if it were commissioned to commemorate the International Day of Peace. Thousands of hands helped create 'Peace Doves,' an artwork installation from 2021 by sculptor Peter Walker that pulled together children and community groups in Liverpool, England. People wrote personal messages of peace on 18,000 paper doves, then those birds joined a dramatic heavenward flight of doves suspended on 15.5 miles of ribbon from the ceiling of Liverpool Cathedral. The lighting drew the focus to the powerful art installation, and if you stood inside the canopy of doves, you could look up and see where the strings of birds converged into starry points of light. Composer David Harper's musical soundscape added yet another layer to the artwork, which people flocked to—60,000 visitors marveled at the 'Peace Doves' in the first month. The main impressions noted? 'Beautiful' and 'moving.'
+> 
+> 
+
+</details>
+
+| ![International Day of Peace](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Peace](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_1080x1920.jpg) |
+
 ### 20220920
 
 > Raft of sea otters in Sitka Sound, near Sitka, Alaska (© Robert Harding/Offset/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_1080x1920.jpg) |
-
-### 20220914
-
-> Navajo Bridge over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> In the late 1800s, pioneers in Utah who wanted to expand their settlements south into Arizona were confronted by 600 miles of deep canyons carved by the Colorado River. By 1873 a ferry was established to cross the Colorado at the mouth of Glen Canyon—Lees Ferry, as it was called, remained vital to settlers in the area for more than 50 years, until authorities decided a bridge would provide more reliable and safer crossing. Construction began in 1927 of a span across the 834-foot gap of Marble Canyon, at the head of the Grand Canyon. When Grand Canyon Bridge opened to traffic in 1929 it was hailed as a 'modern marvel' and 'the biggest news in Southwest history.'
-> 
-> But as time passed, the bridge, which was officially renamed Navajo Bridge in 1934, saw heavier vehicles and more traffic. Debates raged over the traffic’s impact on Native land and endangered plants, and the likelihood of debris falling into the river below. The solution was a new, nearly identical but wider second bridge just downstream from the original bridge. It was dedicated on September 14, 1995, to much fanfare. Both bridges, collectively known as Navajo Bridge, are about 470 feet above the river below. The original span serves as a path for humans and horses while the new bridge carries vehicles.
-> 
-> 
-
-</details>
-
-| ![Navajo Bridge in Marble Canyon](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Navajo Bridge in Marble Canyon](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_1080x1920.jpg) |Swiss aviators André Borschberg and Bertrand Piccard. Borschberg is an engineer by training, Piccard a psychiatrist and balloonist who copiloted the first balloon to fly around the world nonstop. The pair took turns piloting the aircraft, which can carry only one person, on a multi-leg, 16-month flight around the world that started and ended in Abu Dhabi in the United Arab Emirates.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_1080x1920.jpg) |to fly around the world nonstop. The pair took turns piloting the aircraft, which can carry only one person, on a multi-leg, 16-month flight around the world that started and ended in Abu Dhabi in the United Arab Emirates.
 > 
 > This image was taken during the final leg from Egypt to Abu Dhabi as Solar Impulse 2 flew over the Great Pyramids of Giza. The superlight plane was powered by thousands of solar cells mounted atop its fuselage and jumbo-jet sized wings. Batteries stored energy so it could fly at night. The going was slow by the standards of modern jet travel—Solar Impulse 2 flew at an average speed of 50 mph. Clearly, solar-powered flight on a commercial scale is still many years away, but as this photo shows, its Kitty Hawk moment is in the books.
 
