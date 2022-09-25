@@ -2,170 +2,135 @@
 
 ### 20220923
 
-> 最后一美元公路旁的白杨树，科罗拉多州特鲁莱德市附近 (© Grant Ordelheide/Tandem Stills + Motion)
+> Golden jellyfish in Jellyfish Lake on the island of Eil Malk, Palau (© Nature Picture Library/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 秋分到了，这里的“分”即为“平分”、“半”的意思，除了指昼夜平分外，还有一层意思是平分了秋季。到了秋分时节，人们渐渐开始感受到秋天的韵味。色彩斑斓节，散诗意迷人，是秋天的韵味之一，正如古诗中形容的那样： “山明水净夜来霜，数树深红出浅黄。”五谷丰登，满地金黄亦是秋天的韵味：”一阵秋风起，传来稻谷香。 闻香远望去，遍地黄金黄。“ 也许每个地方的秋天都有不一样的色彩，每个人都有不一样的体会，但我们热爱秋天，热爱这个收获的季节。秋自缤纷，秋自斑斓。
+> If you're lucky enough to see this view through the lens of your diving mask, you must be snorkeling in Jellyfish Lake on the island of Eil Malk in the Pacific island nation of Palau. Golden jellyfish are a subspecies unique to this small lake, on this small island—they're found nowhere else on the planet. Millions of teacup-sized golden jellies inhabit the lake, following the sunlight that nourishes them. Symbiotic algae live inside the jellyfish and provide their hosts with energy as a byproduct of photosynthesis. The more sun the jellies get, the more energy they derive from their hitchhikers. The jellies start the day at the east end of the lake and drift westward until dusk, following the arc of the sun.
 > 
-> 
+> The saltwater marine lake they live in is one of dozens in the Rock Islands, which Eil Malk is part of. The Rock Islands, declared a UNESCO World Heritage Site in 2012, is a scattering of hundreds of very small, mostly unpopulated limestone islands and islets characterized by their mushroom-like shapes. On Eil Malk, Jellyfish Lake appears to be landlocked, but it's connected to the ocean by three shallow tunnels that bring water into and out of the lake with the tides. Nevertheless, the lake is so isolated from the nearby lagoon that the golden jellies evolved in this micro universe mostly cut off from other food sources and predators. As a result, they've lost their ability to sting. So, if you take a dip—snorkeling is allowed, but not scuba diving—there's no need to keep a polite distance.
 > 
 > 
 
 </details>
 
-| ![秋分](https://cn.bing.com/th?id=OHR.LastDollarRoad_ZH-CN1462265798_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![秋分](https://cn.bing.com/th?id=OHR.LastDollarRoad_ZH-CN1462265798_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Golden jellyfish in Jellyfish Lake, Palau](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Golden jellyfish in Jellyfish Lake, Palau](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LastDollarRoad_ZH-CN1462265798_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LastDollarRoad_ZH-CN1462265798_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg) |
 
 ### 20220922
 
-> 春角礁灯塔，缅因州南波特兰 (© Haizhan Zheng/Getty Images)
+> The aspen canopy along the Last Dollar Road near Telluride, Colorado (© Grant Ordelheide/Tandem Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 春角礁灯塔伫立在此处，警告着靠近波特兰港的船只们，注意危险：这里存在着风险系数极高的水下山脊。这条水下山脊伸入航道，在19世纪后期引发了诸多海难，而当时该港口正是整个东海岸最繁忙的港口之一。春角礁灯塔由美国陆军工程兵团建造，自1897年以来一直是卡斯科湾和波特兰港的可靠守护者。1988年，这座灯塔被载入《美国国家历史遗迹名录》。2022年5月，是该灯塔首次点亮125周年。
+> There's a chance this dazzling, ground-up view of fall foliage is not where you think it is. While New England garners most of the leaf-peeping attention in the US this time of year, the high country of Colorado puts on a spectacular show out West. The aspens of the Centennial State turn shades of gold and orange in autumn, which officially starts today. Fall typically marks the end of vacations, the beginning of school, the arrival of chilly nights, and, if you're lucky, a display of leaves turned brilliant shades of gold and red.
 > 
+> This thicket of aspen trees is on the Last Dollar Road, an 18-mile scenic drive in southwest Colorado that is as dramatic as its name suggests, with switchbacks and stunning views of peaks and meadows and of course the aspen trees that paint the land come September. Aspens thrive in the cold winters and cool summers of western North America, where they grow at altitudes between 5,000 to 11,000 feet. Their distinct, round leaves quake in the wind, making it appear as if the trees are glittering in the sunlight. Aspens generally grow on west-facing slopes, gorging on the afternoon sun. They're among the world's largest living organisms because aspen groves share a single root system. They're also the state's only native deciduous tree and cover about a fifth of its forested land.
 > 
-> 
-> 
+> There are many places to see them, but none better than the Last Dollar Road. It's unique among scenic byways in the US. For one, it's not a highway at all, but a road, and a dirt road at that. It joins the towns of Ridgway in the north and Telluride in the south, but this bumpy path twists and turns in every direction as well as up and down. The road is never plowed, so when the first snow falls, the road closes and stays closed until spring arrives. That makes this the last time of year you can take this drive, and it happens to be the most beautiful. Just make sure your tires have plenty of tread and your shock absorbers are ready for a workout.
 
 </details>
 
-| ![春角礁灯塔](https://cn.bing.com/th?id=OHR.SpringPoint_ZH-CN6445792697_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![春角礁灯塔](https://cn.bing.com/th?id=OHR.SpringPoint_ZH-CN6445792697_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![First day of autumn](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![First day of autumn](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringPoint_ZH-CN6445792697_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringPoint_ZH-CN6445792697_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_1080x1920.jpg) |
 
 ### 20220921
 
-> 赫努姆的茅草屋顶, 德国叙尔特岛 (© Francesco Carovillano/eStock Photo)
+> 'Peace Doves' by artist Peter Walker in Liverpool Cathedral, Liverpool, England (© PAUL ELLIS/AFP via Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 欢迎来到德国最北端的岛屿！西尔特岛面积约99平方公里，也是德国北海最大的岛屿——在全国排名第四，仅次于波罗的海岛屿吕根岛、乌泽多姆岛和费马恩岛。这张照片是在宁静的霍纳姆市拍摄的，这里远离岛屿最南端的韦斯特兰、坎彭和温宁施泰特三大温泉小镇。
+> Today we're marking the International Day of Peace, first commemorated in 1981, when the United Nations dedicated the day to 'strengthening the ideals of peace, through observing 24 hours of nonviolence and ceasefire.' This year's theme is 'End racism, build peace.' As the UN says, 'Achieving true peace entails much more than laying down arms. It requires the building of societies where all members feel that they can flourish. It involves creating a world in which people are treated equally, regardless of their race.'
 > 
-> 虽然据说叙尔特岛的南端在早期曾是渔民和海盗的避难所，但直到1900年才开始有在这里永久定居。这使得赫努姆成为岛上最年轻的地方。这次有一座高耸伫立的景观是33.5米高的赫努姆灯塔，它已作为服务了100多年。 如果您想度过一个轻松的假期，您将在阳光明媚的叙尔特岛南部找到理想的宁静与隐居之处。
+> Our photo today shows a striking symbolic artwork that seems as if it were commissioned to commemorate the International Day of Peace. Thousands of hands helped create 'Peace Doves,' an artwork installation from 2021 by sculptor Peter Walker that pulled together children and community groups in Liverpool, England. People wrote personal messages of peace on 18,000 paper doves, then those birds joined a dramatic heavenward flight of doves suspended on 15.5 miles of ribbon from the ceiling of Liverpool Cathedral. The lighting drew the focus to the powerful art installation, and if you stood inside the canopy of doves, you could look up and see where the strings of birds converged into starry points of light. Composer David Harper's musical soundscape added yet another layer to the artwork, which people flocked to—60,000 visitors marveled at the 'Peace Doves' in the first month. The main impressions noted? 'Beautiful' and 'moving.'
 > 
 > 
 
 </details>
 
-| ![叙尔特岛赫努姆附近的茅草屋顶](https://cn.bing.com/th?id=OHR.SyltNordseeHoernum_ZH-CN6316415332_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![叙尔特岛赫努姆附近的茅草屋顶](https://cn.bing.com/th?id=OHR.SyltNordseeHoernum_ZH-CN6316415332_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Day of Peace](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Peace](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SyltNordseeHoernum_ZH-CN6316415332_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SyltNordseeHoernum_ZH-CN6316415332_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_1080x1920.jpg) |
 
 ### 20220920
 
-> 阿拉斯加州锡特卡海峡的海獭，美国 (© Robert Harding/Offset/Shutterstock)
+> Raft of sea otters in Sitka Sound, near Sitka, Alaska (© Robert Harding/Offset/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 海獭被称为最可爱的漂浮动物。照片里这群小家伙们正在阿拉斯加州锡特卡海峡里过着它们日常的生活，像一支漂在水上的小型舰队。这支舰队里，有雄性海獭、雌性海獭，还有海獭宝宝，雄性海獭往往体型更大，数量可超过1000只。它们漂浮的身体可以用来做摇篮和餐桌。这就很方便了，因为海獭大部分时间都在水中度过，甚至在海中分娩。尽管它们似乎过着无忧无虑的生活，整天就是在嬉戏、梳理毛发、潜水，但其实它们在保持水生生态系统的健康方面发挥着重要作用。
+> Officially called Enhydra lutris, and unofficially known as the cutest creatures that float, these sea otters in Sitka Sound, Alaska, are doing what otters do, showing us that it truly does take a village, in this case a flotilla. Groups of either males or females (sometimes with pups), are appropriately named rafts. Male rafts tend to be larger and can number more than 1,000 individuals. Sea otters' buoyant bodies indeed work like literal rafts, standing in as cradles, dinner tables, or any kind of solid surface. That's handy because otters spend the vast majority of their lives in the water, even giving birth in the sea. Although they seem to live carefree lives, frolicking and grooming and diving, they also serve an important role in keeping their aquatic ecosystems healthy, something to remember this week as we mark Sea Otter Awareness Week, observed every year during the last week of September.
 > 
-> 海獭吃海胆，从而维护了太平洋里海藻森林的健康，因为海胆会大量摧毁海藻，而海藻是许多鱼类和其他海洋生物的重要栖息地。海獭还吃螃蟹、贝类、鱿鱼和其他无脊椎动物。它们还学会了从海底捡来石头放在肚皮上，再把壳类动物在石头上砸碎。海獭需要大量的热量。它每天必须吃掉相当于自身体重四分之一的食物，才能提供其在冰冷的海水中新陈代谢消耗的热量。
+> Otters keep the giant kelp forests of the Pacific Ocean healthy by eating sea urchins, which would otherwise decimate kelp, an important habitat for many fish and other sea creatures. Otters also eat crabs, shellfish, squid, and other invertebrates. They've learned to crack the shells of some of their shellfish prey by smashing the crustaceans and mollusks against a rock (fetched from the sea floor of course) lodged on their bellies. An otter's caloric needs are huge. It must eat a quarter of its body weight each day to keep up with its cold-water metabolism.
 > 
-> 海獭生活在水中的关键是它的皮毛。它的皮毛是所有哺乳动物中最厚的，每平方英寸大约有100万根毛发，如此密集的毛发让它的皮肤永远不会被打湿。海獭不像其他海洋哺乳动物那样有一层厚厚的脂肪，所以它们需要大量的毛发来保暖。18世纪和19世纪，它们厚厚的皮毛吸引了许多捕猎者，那时海獭还没有受到法律保护，因此几乎被捕猎殆尽。现在，尽管海獭的数量已有所回升，但它们仍被视为濒危物种。海獭生活在北美太平洋的沿岸，从加利福尼亚一直到阿拉斯加。虽然它们也可以在陆地上行走，但它们并不需要也不想要上陆地来，即使是在午睡时间。当它们准备打个盹的时候，它们会浮上来，在身上裹一丛海带以免漂走，然后躺在世界上最大的水床上开始打盹儿。
+> The key to an otter's aquatic lifestyle is its fur, the thickest of any mammal, with about 1 million hairs per square inch, so dense its skin never actually gets wet. Otters need all those gazillion hairs to stay warm as they don't have a layer of blubber like other marine mammals. Their luxuriant coats made them favorite targets for 18th- and 19th-century trappers who hunted otters to near extinction before they were protected by law. Although sea otter populations have rebounded, they are still considered endangered. Otters live along the Pacific Coast of North America, from California up to Alaska. Although they can walk on land, they almost never find the need or desire to, even when it's nap time. When they're ready for a snooze, they'll raft up, wrap themselves in a strand of kelp to keep them from drifting away, and recline on the world's biggest waterbed.
 
 </details>
 
-| ![海獭宣传周](https://cn.bing.com/th?id=OHR.SitkaOtters_ZH-CN4715326633_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![海獭宣传周](https://cn.bing.com/th?id=OHR.SitkaOtters_ZH-CN4715326633_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.SitkaOtters_EN-US7714053956_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.SitkaOtters_EN-US7714053956_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SitkaOtters_ZH-CN4715326633_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SitkaOtters_ZH-CN4715326633_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SitkaOtters_EN-US7714053956_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SitkaOtters_EN-US7714053956_1080x1920.jpg) |
 
 ### 20220919
 
-> 巴斯利卡塔的卡斯泰尔梅扎诺村，意大利 (© Roberto Moiola/Getty Images)
+> Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)
 
 <details>
 <summary>Description</summary>
 
-> 照片里这条在山间起伏的耀眼“丝带”，其实是一个名叫卡斯泰尔梅扎诺的中世纪村落。它被评为是意大利最美丽和最不为人知的地方之一。它坐落在意大利半岛南部圣马蒂诺山脉的西侧。大约2500年前，希腊人首次在卡斯泰尔梅扎诺定居，他们发现这里的崎岖峭壁可以提供绝佳的保护。今天，那里的村民还说着一种独特但即将消亡的意大利语变体。随着人口老龄化，这个村庄希望能迎来喜欢古朴生活方式的新移民。
+> Britain bids farewell to Queen Elizabeth II today, as her state funeral takes place in London's historic Westminster Abbey. Crowds are lining the streets to pay their final respects to the queen, who died peacefully at her Scottish residence, Balmoral, at age 96 on September 8, after more than 70 years on the throne. The royal family, world leaders, and senior UK politicians are attending the funeral, which is being broadcast across the world. After the service, the queen will be laid to rest in St. George's Chapel in the grounds of Windsor Castle, alongside Prince Philip, her beloved husband of 73 years, whom she described as her "strength and stay."
 > 
-> 想来一次不寻常的旅行吗？可以考虑去卡斯泰尔梅扎诺村，来一次“天使飞行”。这是一条高空滑索，横跨卡斯泰尔梅扎诺和彼得拉珀托萨之间的山谷，距离地面1300多英尺，速度高达每小时70多英里。对做“空中飞人”不感兴趣？那你可以踏上迷人的“七石之路”，听一听当地口口相传的古老故事。这条路上有七座石像，当游客经过，石像会发出声音、讲故事或者演奏音乐。这条1.5英里长的小路连接着卡斯泰尔梅扎诺和彼得拉佩尔托萨。
+> Queen Elizabeth II is Britain's longest-reigning monarch, and she dedicated her life to public service through turbulent times in the nation and beyond. From jubilees and celebrations to tragedy and political upheaval, she remained a constant, steady force, balancing duty and family responsibilities in her role as the country's head of state.
 > 
-> 
+> While Britons are sharing their loss and memories of the queen, some see it as a time to question the very existence of the monarchy, wishing to break with their colonial past by removing the British monarch as head of state and becoming a republic. All eyes are on her son King Charles III as he begins his reign, wondering whether he will follow closely in his mother's footsteps or forge a royal path of his own.
 
 </details>
 
-| ![卡斯泰尔梅扎诺，意大利](https://cn.bing.com/th?id=OHR.SanMartinoVillage_ZH-CN4623104087_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![卡斯泰尔梅扎诺，意大利](https://cn.bing.com/th?id=OHR.SanMartinoVillage_ZH-CN4623104087_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![State funeral of Queen Elizabeth II](https://cn.bing.com/th?id=OHR.QueenFuneral_EN-US7710269016_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![State funeral of Queen Elizabeth II](https://cn.bing.com/th?id=OHR.QueenFuneral_EN-US7710269016_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SanMartinoVillage_ZH-CN4623104087_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SanMartinoVillage_ZH-CN4623104087_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QueenFuneral_EN-US7710269016_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QueenFuneral_EN-US7710269016_1080x1920.jpg) |
 
 ### 20220918
 
-> 幽鹤国家公园的翡翠湖, 加拿大不列颠哥伦比亚省 (© Cavan Images/Offset)
+> Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 今天，我们将在加拿大不列颠哥伦比亚省幽鹤国家公园欣赏翡翠湖的美景。 荒野中的这颗宝石是一个主要的旅游景点，是公园内最大的湖泊。 翡翠湖距离 TransCanada 高速公路不远，交通便利，整个夏季都吸引了数名游客。 它是由导游汤姆威尔逊于 1882 年发现的，他无意中通过收集逃跑的马匹偶然发现了湖。
+> One of the most photographed places in Japan is this otherworldly grove of towering bamboo. The Arashiyama Bamboo Grove on the outskirts of Kyoto is surrounded by temples and shrines along the Katsura River. Rising as a manicured oasis of stories-high bamboo, the grove seems to turn the world green. The former villas and temples of the old noble class are located near the Arashiyama Grove, and its single 500-yard path is usually filled with visitors wielding cameras and selfie sticks, making this serene view a rare one.
 > 
-> 
+> World Bamboo Day, celebrated September 18, was created in 2009 to bring attention to this useful and versatile plant that flourishes in East Asia. Though the tallest bamboo can grow up to 100 feet, bamboo is not a tree but a grass. Known for its light weight, strength, and rapid growth, bamboo can be used to make almost anything, from clothing to building materials—and its shoots can even be consumed as food. Because it grows as much as 3 feet in a day, it's a highly renewable resource. For the same reason, it's also an invasive species in some places, as a small stand of bamboo can quickly become a large one. While bamboo grows best in tropical and warm climates, it adapts well to cool temperatures and high altitudes. And though it might have the most cultural value in Asia, it grows wild in Africa, the Americas, and Australia, too. Could there be bamboo growing near you?
 > 
 > 
 
 </details>
 
-| ![幽鹤国家公园](https://cn.bing.com/th?id=OHR.EmeraldYoho_ZH-CN4524610330_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![幽鹤国家公园](https://cn.bing.com/th?id=OHR.EmeraldYoho_ZH-CN4524610330_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Bamboo Day](https://cn.bing.com/th?id=OHR.ArashiyamaBamboo_EN-US7569665443_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bamboo Day](https://cn.bing.com/th?id=OHR.ArashiyamaBamboo_EN-US7569665443_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EmeraldYoho_ZH-CN4524610330_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EmeraldYoho_ZH-CN4524610330_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArashiyamaBamboo_EN-US7569665443_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArashiyamaBamboo_EN-US7569665443_1080x1920.jpg) |
 
 ### 20220917
 
-> 布莱克浦塔和中央码头，英国兰开夏郡 (© Bailey-Cooper Photography/Alamy)
+> Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 随着夏季的结束，这个著名的兰开夏海滨度假胜地正在为其主要活动做准备。自第二次世界大战结束以来，布莱克浦的灯饰一直是该镇每年的固定设施。第一次照明发生在1879年，当时在长廊上竖立了八盏弧光灯，在人们仍用蜡烛照明的时候，引起了人们的极大兴趣。第一次大规模灯饰照明于1912年5月到来，当时有10000盏灯用于装饰长廊，布莱克浦迎接了首次的皇家访问。由于两次世界大战，在接下来的几十年里，这场活动会有点断断续续，但在1949年，它们又开始进行，随着时间的推移，它的规模在不断扩大。
+> Oom-pah, oom-pah… That sound can mean only one thing (at least that isn't chocolate factory-related). It's Oktoberfest season! Don't start the party too fast, though: You might want to ride the Wellenflug swing carousel seen in today's photo before you get too much of that distinctly German beer in your belly. And it is distinct: Due to strict Reinheitsgebot ('purity orders') regulations in place since 1516, real German beer can only be made with certain ingredients—originally just barley, hops, and water, though other additions have trickled in over time.
 > 
-> 如今，超过100万盏灯在6英里长的长廊上闪烁，覆盖了建筑物、电车、码头、游乐场游乐设施和布莱克浦塔，还有照明的舞台和互动装置。这些照明设备每年运行约66晚，耗资超过200万英镑——光是电费就被认为高达5万英镑左右。然而，据估计，它们为这个西北部城镇带来了约2.5亿英镑的额外收入。
+> From today until October 3, brass bands will play traditional German folk music as festive crowds eat, drink, and generally be merry in Munich, Germany—and most everywhere, thanks to the many copycat fests now held around the world. But let's face it, the Germans have most of us beat for beer consumption, as each Munich Oktoberfest sees nearly 2 million gallons of the stuff quaffed by visitors.
 > 
-> 近年来，该活动已转向使用LED灯和可再生能源，以降低成本和碳足迹，同时每年仍吸引约350万游客来到费尔德海岸的这个角落。
+> 
 
 </details>
 
-| ![布莱克浦的灯光节](https://cn.bing.com/th?id=OHR.BlackpoolBeach_ZH-CN2646268897_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![布莱克浦的灯光节](https://cn.bing.com/th?id=OHR.BlackpoolBeach_ZH-CN2646268897_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Oktoberfest](https://cn.bing.com/th?id=OHR.Wellenflug_EN-US7380614960_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest](https://cn.bing.com/th?id=OHR.Wellenflug_EN-US7380614960_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlackpoolBeach_ZH-CN2646268897_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlackpoolBeach_ZH-CN2646268897_1080x1920.jpg) | places in the world to watch and photograph wild pumas. While tourists will sometimes see the big cats on their own, trained guides take visitors on hikes or all-terrain vehicle tours to look for the stealthy pumas. The wild cats have been officially protected for the last few years, bolstering their population, and there are abundant guanacos in the Patagonian steppes, which also helps.
-> 
-> The puma (which is the same big cat you might call a mountain lion or cougar) is the fourth-largest cat in the world, following the lion, tiger, and jaguar. Pumas don't roar like their large cousins—instead, they purr like house cats. That might explain why people in Patagonia simply call pumas gatos ('cats' in Spanish). With their characteristic slim build and impressive camouflage coloring, these canny hunters can live 10 years in their remote Patagonian home.
-> 
-> 
-
-</details>
-
-| ![Puma in Patagonia](https://cn.bing.com/th?id=OHR.PianePuma_EN-US7221521942_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Puma in Patagonia](https://cn.bing.com/th?id=OHR.PianePuma_EN-US7221521942_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PianePuma_EN-US7221521942_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PianePuma_EN-US7221521942_1080x1920.jpg) |
-
-### 20220915
-
-> Mural by Betsy Casañas in Buffalo, New York (© Tom Loonan)
-
-<details>
-<summary>Description</summary>
-
-> We're kicking off Hispanic Heritage Month with this beautiful mural celebrating the contributions made to the Buffalo, New York, region by the Hispanic and Latinx communities. Artist, community activist, and educator Betsy Casañas, with the assistance of many local artists, created this mural called 'Homeland, Perhaps It Is Because I Wish to See You Fly, That My Flight Continues to Be Yours.' Its subjects highlight local cultural heritage, including portrayals of agricultural production and industrial work. Through conversations with members of the community, Casañas incorporated symbolism inspired by the mixed and integrated Latinx community of Buffalo.
-> 
-> Hispanic Heritage Month, a celebration of Hispanic and Latinx contributions to the United States, takes place each year from September 15 to October 15. Why doesn't it start at the beginning of the month? Because September 15 and 16 are important dates for many Hispanic communities in the Americas. On September 15, 1821, five Central American nations (Costa Rica, El Salvador, Guatemala, Honduras, and Nicaragua) declared their independence from Spain, almost 11 years to the day (September 16, 1810) after Mexico had declared its independence. These countries were specifically mentioned when US President Lyndon Johnson proclaimed the enactment of what was then Hispanic Heritage Week. In the 1980s, the week became a month, and Belize (which had declared independence from the UK on September 21, 1981) was added to the list of celebrated nations.
-> 
-> 
-
-</details>
-
-| ![Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BuffaloMural_EN-US7123580117_1080x1920.jpg) |to fly around the world nonstop. The pair took turns piloting the aircraft, which can carry only one person, on a multi-leg, 16-month flight around the world that started and ended in Abu Dhabi in the United Arab Emirates.
-> 
-> This image was taken during the final leg from Egypt to Abu Dhabi as Solar Impulse 2 flew over the Great Pyramids of Giza. The superlight plane was powered by thousands of solar cells mounted atop its fuselage and jumbo-jet sized wings. Batteries stored energy so it could fly at night. The going was slow by the standards of modern jet travel—Solar Impulse 2 flew at an average speed of 50 mph. Clearly, solar-powered flight on a commercial scale is still many years away, but as this photo shows, its Kitty Hawk moment is in the books.
-
-</details>
-
-| ![National Aviation Day](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Aviation Day](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Wellenflug_EN-US7380614960_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Wellenflug_EN-US7380614960_1080x1920.jpg) |N-US2864472613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_1080x1920.jpg) |2246278299_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_1080x1920.jpg) |
