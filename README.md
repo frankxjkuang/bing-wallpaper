@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220924
+
+> Milky Way over Acadia National Park, Maine (© Harry Collins/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> This striking photo lets us showcase two noteworthy events in one day, at no extra charge. (You're welcome.) National Public Lands Day is observed on the fourth Saturday in September, and today's also part of the Acadia Night Sky Festival, which celebrates the starlit skies over Maine's gem of a national park.
+> 
+> It's easy to take our national parks for granted. We certainly appreciate them and enjoy visiting, but today's commemoration reminds us that they also need our help. National Public Lands Day turns the spotlight on parks and other public lands, inviting everyone to explore but also to volunteer to plant trees, work on trail-maintenance projects, and more. As a bonus: Admission is free today at national parks, monuments, and other participating federal sites.
+> 
+> Acadia is one of the smallest of the nation's 63 national parks, but it's attracted an impressive 4 million visitors annually in recent years. Aside from its natural beauty, Acadia has some of the most spectacular star-filled night skies in the eastern United States. The natural darkness is protected, with restrictions on outdoor lighting in the park and surrounding areas. The Acadia Night Sky Festival, which started on September 21 and continues through tomorrow, celebrates the natural darkness and the celestial star show. A favorite way to mark the occasion is by kayaking in Castine Harbor, where bioluminescent phytoplankton illuminate the water with a swirling, unearthly glow. With sparkling waters below and out-of-this-world stargazing above, it's been called Acadia's 'Floating Planetarium.'
+
+</details>
+
+| ![National Public Lands Day](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Public Lands Day](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg) |
+
 ### 20220923
 
 > Golden jellyfish in Jellyfish Lake on the island of Eil Malk, Palau (© Nature Picture Library/Alamy)
@@ -113,24 +132,3 @@
 | ![World Bamboo Day](https://cn.bing.com/th?id=OHR.ArashiyamaBamboo_EN-US7569665443_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bamboo Day](https://cn.bing.com/th?id=OHR.ArashiyamaBamboo_EN-US7569665443_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArashiyamaBamboo_EN-US7569665443_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArashiyamaBamboo_EN-US7569665443_1080x1920.jpg) |
-
-### 20220917
-
-> Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Oom-pah, oom-pah… That sound can mean only one thing (at least that isn't chocolate factory-related). It's Oktoberfest season! Don't start the party too fast, though: You might want to ride the Wellenflug swing carousel seen in today's photo before you get too much of that distinctly German beer in your belly. And it is distinct: Due to strict Reinheitsgebot ('purity orders') regulations in place since 1516, real German beer can only be made with certain ingredients—originally just barley, hops, and water, though other additions have trickled in over time.
-> 
-> From today until October 3, brass bands will play traditional German folk music as festive crowds eat, drink, and generally be merry in Munich, Germany—and most everywhere, thanks to the many copycat fests now held around the world. But let's face it, the Germans have most of us beat for beer consumption, as each Munich Oktoberfest sees nearly 2 million gallons of the stuff quaffed by visitors.
-> 
-> 
-
-</details>
-
-| ![Oktoberfest](https://cn.bing.com/th?id=OHR.Wellenflug_EN-US7380614960_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest](https://cn.bing.com/th?id=OHR.Wellenflug_EN-US7380614960_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Wellenflug_EN-US7380614960_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Wellenflug_EN-US7380614960_1080x1920.jpg) |N-US2864472613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarImpulse2_EN-US2864472613_1080x1920.jpg) |2246278299_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_1080x1920.jpg) |
