@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220927
+
+> Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> The highest concentration of geysers in the world is found here in this corner of Yellowstone National Park, called the Upper Geyser Basin. They include what is perhaps the most famous geyser of them all: Old Faithful. But the Upper Basin contains many other geysers as well, including the tallest predictable geyser (Grand Geyser) and the most voluminous geyser (Giant Geyser). Yellowstone contains about 500 geysers, roughly two-thirds the number in the entire world.
+> 
+> Geysers are essentially a rare form of hot spring—a water-filled tube that extends thousands of feet into the Earth's crust, so deep it makes contact with molten rock called magma. The magma is so hot that the water boils, builds to an extreme pressure, then shoots into the air, emptying the tube. After some time, more groundwater seeps into the tube, filling it, and starting the process over again. That's why geysers erupt at somewhat regular intervals. The bigger the tube, the more water, and the longer the eruption. Yellowstone is one of the few places in the world where you can safely walk among so many geysers and superheated springs, and view them close up. Trails and boardwalks guide the way, making the Upper Geyser Basin one of the star attractions of this famous national park.
+> 
+> 
+
+</details>
+
+| ![Upper Geyser Basin, Yellowstone National Park](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Upper Geyser Basin, Yellowstone National Park](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg) |
+
 ### 20220926
 
 > Caribou crossing the Susitna River during autumn, Alaska (© Tim Plowden/Alamy)
@@ -112,20 +131,7 @@
 
 | ![International Day of Peace](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Peace](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_1080x1920.jpg) |
-
-### 20220920
-
-> Raft of sea otters in Sitka Sound, near Sitka, Alaska (© Robert Harding/Offset/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Officially called Enhydra lutris, and unofficially known as the cutest creatures that float, these sea otters in Sitka Sound, Alaska, are doing what otters do, showing us that it truly does take a village, in this case a flotilla. Groups of either males or females (sometimes with pups), are appropriately named rafts. Male rafts tend to be larger and can number more than 1,000 individuals. Sea otters' buoyant bodies indeed work like literal rafts, standing in as cradles, dinner tables, or any kind of solid surface. That's handy because otters spend the vast majority of their lives in the water, even giving birth in the sea. Although they seem to live carefree lives, frolicking and grooming and diving, they also serve an important role in keeping their aquatic ecosystems healthy, something to remember this week as we mark Sea Otter Awareness Week, observed every year during the last week of September.
-> 
-> Otters keep the giant kelp forests of the Pacific Ocean healthy by eating sea urchins, which would otherwise decimate kelp, an important habitat for many fish and other sea creatures. Otters also eat crabs, shellfish, squid, and other invertebrates. They've learned to crack the shells of some of their shellfish prey by smashing the crustaceans and mollusks against a rock (fetched from the sea floor of course) lodged on their bellies. An otter's caloric needs are huge. It must eat a quarter of its body weight each day to keep up with its cold-water metabolism.
-> 
-> The key to an otter's aquatic lifestyle is its fur, the thickest of any mammal, with about 1 million hairs per square inch, so dense its skin never actually gets wet. Otters need all those gazillion hairs to stay warm as they don't have a layer of blubber like other marine mammals. Their luxuriant coats made them favorite targets for 18th- and 19th-century trappers who hunted otters to near extinction before they were protected by law. Although sea otter populations have rebounded, they are still considered endangered. Otters live along the Pacific Coast of North America, from California up to Alaska. Although they can walk on land, they almost never find the need or desire to, even when it's nap time. When they're ready for a snooze, they'll raft up, wrap themselves in a strand of kelp to keep them from drifting away, and recline on the world's biggest waterbed.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_1080x1920.jpg) | 18th- and 19th-century trappers who hunted otters to near extinction before they were protected by law. Although sea otter populations have rebounded, they are still considered endangered. Otters live along the Pacific Coast of North America, from California up to Alaska. Although they can walk on land, they almost never find the need or desire to, even when it's nap time. When they're ready for a snooze, they'll raft up, wrap themselves in a strand of kelp to keep them from drifting away, and recline on the world's biggest waterbed.
 
 </details>
 
