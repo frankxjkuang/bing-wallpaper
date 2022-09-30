@@ -7,7 +7,6 @@ import (
 
 func main() {
 	now := time.Now()
-	month := now.Format("200601")
 	date := now.Format("20060102")
 
 	imgs, err := getWallpaper(date)
@@ -40,6 +39,7 @@ func main() {
 		content += item
 		// archive the latest documents
 		if i == 0 {
+			month := v.getMonth()
 			archivePath := fmt.Sprintf("archive/%s_README.md", month)
 			if isExist(archivePath) {
 				writeAppend(archivePath, item)
