@@ -22,7 +22,7 @@ type Image struct {
 	} `json:"imageUrls"`
 	DescriptionPara2 string `json:"descriptionPara2"`
 	DescriptionPara3 string `json:"descriptionPara3"`
-	IsoDate          string `json:"isoDate"`
+	IsoDate          string `json:"isoDate"` // example: 20220830
 }
 
 type data struct {
@@ -34,4 +34,9 @@ type Result struct {
 	Data          data   `json:"data"`
 	StatusCode    int    `json:"statusCode"`
 	StatusMessage string `json:"statusMessage"`
+}
+
+func (i *Image) getMonth() string {
+	// 20220830 -> 202208
+	return i.IsoDate[:6]
 }
