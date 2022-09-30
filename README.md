@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220928
+
+> A. M. Foster Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> At one point in history, the United States had upwards of 14,000 wooden covered bridges. Most of them were built between 1825 and 1875 to cross a stream or river and were intended to withstand the elements. An uncovered wooden bridge may have a life span of only about 20 years while a covered bridge could stand for more than 100. Even still, they don't fare well without upkeep and restoration costs can be high. That's why iron replaced wood as the preferred bridge-building material in the mid-1800s. These days, fewer than 900 of the original wooden covered bridges are believed to still be standing. The A. M. Foster Bridge, seen in today's photo, can be found in Cabot, Vermont.
+> 
+> Named after Alonzo Merrill Foster, the inventor of a type of spout for collecting maple tree sap to be made into syrup, the bridge is located on Spaulding Farm. Don't be deceived—the Foster Bridge is actually a 1990s replica of a 'farm bridge' that was built in 1890 and known as the Orton Bridge. Despite being a replica, the Foster Bridge was authentically constructed by hand, in collaboration with Foster's great-grandson, with spruce lumber and salvaged granite. Spanning 45 feet across a pond and literally bridging the gap between two farms, it took less than six weeks to complete. Unfortunately, the bridge was found to be too narrow for modern farm equipment, a miscalculation that its constructors found amusing. Still, it works well as a photo opportunity and frequent venue for weddings.
+> 
+> 
+
+</details>
+
+| ![A. M. Foster Bridge in Cabot, Vermont](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A. M. Foster Bridge in Cabot, Vermont](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_1080x1920.jpg) |
+
 ### 20220927
 
 > Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![First day of autumn](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![First day of autumn](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_1080x1920.jpg) |
-
-### 20220921
-
-> 'Peace Doves' by artist Peter Walker in Liverpool Cathedral, Liverpool, England (© PAUL ELLIS/AFP via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today we're marking the International Day of Peace, first commemorated in 1981, when the United Nations dedicated the day to 'strengthening the ideals of peace, through observing 24 hours of nonviolence and ceasefire.' This year's theme is 'End racism, build peace.' As the UN says, 'Achieving true peace entails much more than laying down arms. It requires the building of societies where all members feel that they can flourish. It involves creating a world in which people are treated equally, regardless of their race.'
-> 
-> Our photo today shows a striking symbolic artwork that seems as if it were commissioned to commemorate the International Day of Peace. Thousands of hands helped create 'Peace Doves,' an artwork installation from 2021 by sculptor Peter Walker that pulled together children and community groups in Liverpool, England. People wrote personal messages of peace on 18,000 paper doves, then those birds joined a dramatic heavenward flight of doves suspended on 15.5 miles of ribbon from the ceiling of Liverpool Cathedral. The lighting drew the focus to the powerful art installation, and if you stood inside the canopy of doves, you could look up and see where the strings of birds converged into starry points of light. Composer David Harper's musical soundscape added yet another layer to the artwork, which people flocked to—60,000 visitors marveled at the 'Peace Doves' in the first month. The main impressions noted? 'Beautiful' and 'moving.'
-> 
-> 
-
-</details>
-
-| ![International Day of Peace](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Peace](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_1080x1920.jpg) | 18th- and 19th-century trappers who hunted otters to near extinction before they were protected by law. Although sea otter populations have rebounded, they are still considered endangered. Otters live along the Pacific Coast of North America, from California up to Alaska. Although they can walk on land, they almost never find the need or desire to, even when it's nap time. When they're ready for a snooze, they'll raft up, wrap themselves in a strand of kelp to keep them from drifting away, and recline on the world's biggest waterbed.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_1080x1920.jpg) |ppers who hunted otters to near extinction before they were protected by law. Although sea otter populations have rebounded, they are still considered endangered. Otters live along the Pacific Coast of North America, from California up to Alaska. Although they can walk on land, they almost never find the need or desire to, even when it's nap time. When they're ready for a snooze, they'll raft up, wrap themselves in a strand of kelp to keep them from drifting away, and recline on the world's biggest waterbed.
 
 </details>
 
