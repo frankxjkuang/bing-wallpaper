@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220929
+
+> Infini-D, modeled during the World of WearableArt Awards in 2019 in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)
+
+<details>
+<summary>Description</summary>
+
+> Clothes used to be animal hides and fur. Art used to be stick figures painted on cave walls. Times have changed. Now fashion is a major industry and art can be a lucrative field, too. Today we're celebrating 'wearable art,' which blurs genres and has passionate devotees. Curious? Well, check out the World of WearableArt (WOW), which is WOW-ing (sorry) fashion and art fans with its awards show in New Zealand right now. The competition runs till October 16 and features work by global designers, artists, and costumers—it's New Zealand's largest theatrical production. The competition is just part of the event, though—there are dancers, musicians, and aerialists, too.
+> 
+> Our photo shows Infini-D, a 2019 winner that is, according to a press release, 'a homage to Yayoi Kusama—a meditation on geometry, dimensionality, and cinematic postmodern gothic,' by Australian designers Tara Morelos, Ahmad Mollahassani, and Nelia Justo. It's not just the look that's unconventional: The outfit was created using electronics, acrylic, cardboard, and fabric. We suspect it's not designed to be worn in the rain.
+> 
+> WOW is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
+
+</details>
+
+| ![World of WearableArt Awards](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World of WearableArt Awards](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_1080x1920.jpg) |
+
 ### 20220928
 
 > A. M. Foster Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Golden jellyfish in Jellyfish Lake, Palau](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Golden jellyfish in Jellyfish Lake, Palau](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg) |
-
-### 20220922
-
-> The aspen canopy along the Last Dollar Road near Telluride, Colorado (© Grant Ordelheide/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> There's a chance this dazzling, ground-up view of fall foliage is not where you think it is. While New England garners most of the leaf-peeping attention in the US this time of year, the high country of Colorado puts on a spectacular show out West. The aspens of the Centennial State turn shades of gold and orange in autumn, which officially starts today. Fall typically marks the end of vacations, the beginning of school, the arrival of chilly nights, and, if you're lucky, a display of leaves turned brilliant shades of gold and red.
-> 
-> This thicket of aspen trees is on the Last Dollar Road, an 18-mile scenic drive in southwest Colorado that is as dramatic as its name suggests, with switchbacks and stunning views of peaks and meadows and of course the aspen trees that paint the land come September. Aspens thrive in the cold winters and cool summers of western North America, where they grow at altitudes between 5,000 to 11,000 feet. Their distinct, round leaves quake in the wind, making it appear as if the trees are glittering in the sunlight. Aspens generally grow on west-facing slopes, gorging on the afternoon sun. They're among the world's largest living organisms because aspen groves share a single root system. They're also the state's only native deciduous tree and cover about a fifth of its forested land.
-> 
-> There are many places to see them, but none better than the Last Dollar Road. It's unique among scenic byways in the US. For one, it's not a highway at all, but a road, and a dirt road at that. It joins the towns of Ridgway in the north and Telluride in the south, but this bumpy path twists and turns in every direction as well as up and down. The road is never plowed, so when the first snow falls, the road closes and stays closed until spring arrives. That makes this the last time of year you can take this drive, and it happens to be the most beautiful. Just make sure your tires have plenty of tread and your shock absorbers are ready for a workout.
-
-</details>
-
-| ![First day of autumn](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![First day of autumn](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg) |ng.com/th?id=OHR.LastDollarRoad_EN-US7923638318_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![First day of autumn](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_1080x1920.jpg) |ppers who hunted otters to near extinction before they were protected by law. Although sea otter populations have rebounded, they are still considered endangered. Otters live along the Pacific Coast of North America, from California up to Alaska. Although they can walk on land, they almost never find the need or desire to, even when it's nap time. When they're ready for a snooze, they'll raft up, wrap themselves in a strand of kelp to keep them from drifting away, and recline on the world's biggest waterbed.
 
