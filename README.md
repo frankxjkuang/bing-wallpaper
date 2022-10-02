@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20220930
+
+> Southern right whale diving in the Golfo Nuevo near the Valdes Peninsula, Argentina (© Gabriel Rojo/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> The end of September in the Southern Hemisphere means warming weather and the nearing of summer. For southern right whales like this one off the coast of Argentina, it's time to migrate southward toward Antarctica and rich feeding grounds. Southern right whales are a subspecies of right whale that inhabit the oceans below the equator. They feed on krill at the surface of the water, holding their mouths open as they swim through clouds of the tiny crustaceans.
+> 
+> Right whales got their name because they were the 'right' whale to hunt, desirable to whalers because they were relatively slow and floated when they died. Right whales are easily identifiable by the thick white calluses on their heads. They tend to be social and curious creatures and sometimes have close encounters with humans. They spend the southern winter in warmer waters closer to the equator. The whale featured today surfaced off the Valdes Peninsula, home to the largest breeding population in the world, and a fitting location for the Southern Whale Natural Monument, created in 1984. In these protected waters, thousands of whales will mate and give birth, staying until October or November, when they will begin their great migration south.
+> 
+> 
+
+</details>
+
+| ![Southern right whale](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Southern right whale](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |
+
 ### 20220929
 
 > Infini-D, modeled during the World of WearableArt Awards in 2019 in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)
@@ -112,24 +131,7 @@
 
 | ![National Public Lands Day](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Public Lands Day](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg) |
-
-### 20220923
-
-> Golden jellyfish in Jellyfish Lake on the island of Eil Malk, Palau (© Nature Picture Library/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> If you're lucky enough to see this view through the lens of your diving mask, you must be snorkeling in Jellyfish Lake on the island of Eil Malk in the Pacific island nation of Palau. Golden jellyfish are a subspecies unique to this small lake, on this small island—they're found nowhere else on the planet. Millions of teacup-sized golden jellies inhabit the lake, following the sunlight that nourishes them. Symbiotic algae live inside the jellyfish and provide their hosts with energy as a byproduct of photosynthesis. The more sun the jellies get, the more energy they derive from their hitchhikers. The jellies start the day at the east end of the lake and drift westward until dusk, following the arc of the sun.
-> 
-> The saltwater marine lake they live in is one of dozens in the Rock Islands, which Eil Malk is part of. The Rock Islands, declared a UNESCO World Heritage Site in 2012, is a scattering of hundreds of very small, mostly unpopulated limestone islands and islets characterized by their mushroom-like shapes. On Eil Malk, Jellyfish Lake appears to be landlocked, but it's connected to the ocean by three shallow tunnels that bring water into and out of the lake with the tides. Nevertheless, the lake is so isolated from the nearby lagoon that the golden jellies evolved in this micro universe mostly cut off from other food sources and predators. As a result, they've lost their ability to sting. So, if you take a dip—snorkeling is allowed, but not scuba diving—there's no need to keep a polite distance.
-> 
-> 
-
-</details>
-
-| ![Golden jellyfish in Jellyfish Lake, Palau](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Golden jellyfish in Jellyfish Lake, Palau](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg) |.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg) |ng.com/th?id=OHR.LastDollarRoad_EN-US7923638318_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![First day of autumn](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
