@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221001
+
+> Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> There are thousands of waterfalls in Yosemite National Park, but perhaps none are as well known as Bridalveil Fall. First things first: Don't call it 'falls' because then someone may think you were in Utah where another waterfall bears the surprisingly similar name, Bridal Veil Falls. Bridalveil, as seen in the photo, is often the first waterfall visitors to Yosemite encounter. It plunges 617 feet and flows year-round, fed with water from Ostrander Lake nearly 10 miles away. When the flow is light, brisk winds blow the water sideways. That's why the Ahwahneechee Native Americans, who have lived in the Yosemite Valley for centuries, traditionally called the waterfall Pohono, or 'Spirit of the Puffing Wind.'
+> 
+> When Yosemite was made a national park on this date in 1890, it not only preserved this jewel of the Sierra Nevada from being turned over to sheep grazing, it was also pivotal to the continued idea of protecting natural areas for the future. Scottish American environmentalist John Muir is credited with convincing President Benjamin Harrison to preserve the Yosemite Valley, and that success kicked off a string of conservation efforts that would eventually lead to the creation of the National Park System. Today, Yosemite's pristine wilderness is internationally known for mountains, granite cliffs, giant sequoia groves, and, of course, waterfalls.
+> 
+> 
+
+</details>
+
+| ![Yosemite National Park turns 132](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yosemite National Park turns 132](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_1080x1920.jpg) |
+
 ### 20220930
 
 > Southern right whale diving in the Golfo Nuevo near the Valdes Peninsula, Argentina (© Gabriel Rojo/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![World Rivers Day](https://cn.bing.com/th?id=OHR.AmazonMangroves_EN-US7068770726_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rivers Day](https://cn.bing.com/th?id=OHR.AmazonMangroves_EN-US7068770726_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmazonMangroves_EN-US7068770726_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmazonMangroves_EN-US7068770726_1080x1920.jpg) |
-
-### 20220924
-
-> Milky Way over Acadia National Park, Maine (© Harry Collins/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This striking photo lets us showcase two noteworthy events in one day, at no extra charge. (You're welcome.) National Public Lands Day is observed on the fourth Saturday in September, and today's also part of the Acadia Night Sky Festival, which celebrates the starlit skies over Maine's gem of a national park.
-> 
-> It's easy to take our national parks for granted. We certainly appreciate them and enjoy visiting, but today's commemoration reminds us that they also need our help. National Public Lands Day turns the spotlight on parks and other public lands, inviting everyone to explore but also to volunteer to plant trees, work on trail-maintenance projects, and more. As a bonus: Admission is free today at national parks, monuments, and other participating federal sites.
-> 
-> Acadia is one of the smallest of the nation's 63 national parks, but it's attracted an impressive 4 million visitors annually in recent years. Aside from its natural beauty, Acadia has some of the most spectacular star-filled night skies in the eastern United States. The natural darkness is protected, with restrictions on outdoor lighting in the park and surrounding areas. The Acadia Night Sky Festival, which started on September 21 and continues through tomorrow, celebrates the natural darkness and the celestial star show. A favorite way to mark the occasion is by kayaking in Castine Harbor, where bioluminescent phytoplankton illuminate the water with a swirling, unearthly glow. With sparkling waters below and out-of-this-world stargazing above, it's been called Acadia's 'Floating Planetarium.'
-
-</details>
-
-| ![National Public Lands Day](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Public Lands Day](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg) |.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmazonMangroves_EN-US7068770726_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmazonMangroves_EN-US7068770726_1080x1920.jpg) |dscape 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg) |.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg) |ng.com/th?id=OHR.LastDollarRoad_EN-US7923638318_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![First day of autumn](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
