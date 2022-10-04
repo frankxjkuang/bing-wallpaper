@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221002
+
+> Hot air balloons at the Albuquerque International Balloon Fiesta in Albuquerque, New Mexico (© gmeland/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> October means pumpkin fields, Halloween, leaf-peeping, and the World Series. But in Albuquerque, New Mexico, the beginning of October means a skyful of hot air balloons. The 50th Albuquerque International Balloon Fiesta is the largest gathering of balloonists in the world, with more than 500 hot air balloons going aloft this week. The now nine-day event got its start by launching 13 balloons from a shopping mall parking lot in 1972 to celebrate the birthday of a local radio station. It has easily become the biggest event of the year in Albuquerque, whose entire populace can view balloons in flight simply by stepping outside their homes and looking up.
+> 
+> The event is staged from the 365-acre Balloon Fiesta Park, on the northern outskirts of Albuquerque with the Sandia Mountains a few miles away. The Balloon Fiesta claims to be the most photographed event in the world, and it's easy to understand why. The highlight of the week is a mass ascension, in two waves, of all the balloons, decorated with every color and some shaped like animals or cartoon characters. In the age of jets and helicopters and rockets, this mass celebration of nearly silent flight reminds us that the magic of flying is not about speed, but simply reaching the sky.
+> 
+> 
+
+</details>
+
+| ![Albuquerque International Balloon Fiesta](https://cn.bing.com/th?id=OHR.LotsOBalloons_EN-US8236203600_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Albuquerque International Balloon Fiesta](https://cn.bing.com/th?id=OHR.LotsOBalloons_EN-US8236203600_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LotsOBalloons_EN-US8236203600_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LotsOBalloons_EN-US8236203600_1080x1920.jpg) |
+
 ### 20221001
 
 > Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Autumn in Alaska](https://cn.bing.com/th?id=OHR.SusitnaRiver_EN-US7154675950_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn in Alaska](https://cn.bing.com/th?id=OHR.SusitnaRiver_EN-US7154675950_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SusitnaRiver_EN-US7154675950_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SusitnaRiver_EN-US7154675950_1080x1920.jpg) |
-
-### 20220925
-
-> Aerial view of the Amazon River in Brazil (© Curioso.Photography/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> On World Rivers Day, we honor what may be thought of as the queen of them all—the Amazon, which flows more than 4,000 miles mostly through the South American countries of Peru and Brazil. The Amazon discharges a whopping 58 million gallons of fresh water into the ocean every second, enough to fill 83 Olympic-sized swimming pools, far more water than any other river in the world. It accounts for 20% of all fresh water that flows into the world's seas and oceans. It's also the vital heart of the largest and most diverse rainforest in the world. The Amazon rainforest is home to a third of the world's animal species and its trees and plants pull billions of tons of heat-trapping carbon dioxide from the atmosphere each year, making it one of the Earth's best defenses against climate change.
-> 
-> Mark Angelo, a river conservationist from British Columbia, launched World Rivers Day in 2005 to recognize the importance of rivers to the survival of humanity and millions of species all over the world. Rivers are our best source of fresh water, they can be an important energy source, they're the foundations of complex ecosystems, and they provide crucial sources of irrigation for our crops, among other contributions to our way of life. Besides, who doesn't love a float down a lazy river?
-> 
-> 
-
-</details>
-
-| ![World Rivers Day](https://cn.bing.com/th?id=OHR.AmazonMangroves_EN-US7068770726_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rivers Day](https://cn.bing.com/th?id=OHR.AmazonMangroves_EN-US7068770726_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmazonMangroves_EN-US7068770726_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmazonMangroves_EN-US7068770726_1080x1920.jpg) |dscape 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg) |.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SusitnaRiver_EN-US7154675950_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SusitnaRiver_EN-US7154675950_1080x1920.jpg) |d=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg) |.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg) |ng.com/th?id=OHR.LastDollarRoad_EN-US7923638318_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![First day of autumn](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
