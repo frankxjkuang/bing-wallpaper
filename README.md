@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221005
+
+> Caribbean flamingos, Ría Lagartos Biosphere Reserve, Yucatán Peninsula, Mexico (© Claudio Contreras/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Class trip? Looks like this teacher has their youngsters in line. If only it were always this easy.... Today is World Teachers' Day, and we're celebrating educators of all kinds. This year's theme is 'Teachers at the heart of educational renewal,' and it highlights the remarkable efforts of teachers during the COVID-19 pandemic and quarantine. They've had to balance health and safety concerns with an abrupt switch to remote learning or partial in-person classes, all while focusing on the education and well-being of their students.
+> 
+> Our flamingo teacher here may not have had to worry about COVID, but they certainly have their wings full. Though their gray charges don't look flamingo-y yet, they will. Flamingo youngsters, like those here at the Ría Lagartos Biosphere Reserve in Mexico's Yucatán Peninsula, develop the coloration of adults at around 1 to 2 years of age, so those trademark pink feathers will soon start to appear. The hot-pink coloring comes from the flamingo diet: They eat food that contains a lot of alpha and beta carotenoid pigments, such as algae, bugs, crustaceans, and mollusks.
+> 
+> 
+
+</details>
+
+| ![World Teachers' Day](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_1080x1920.jpg) |
+
 ### 20221004
 
 > Cosmic Cliffs in the Carina Nebula (© NASA, ESA, CSA, and STScI)
@@ -112,24 +131,7 @@
 
 | ![World of WearableArt Awards](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World of WearableArt Awards](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_1080x1920.jpg) |
-
-### 20220928
-
-> A. M. Foster Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> At one point in history, the United States had upwards of 14,000 wooden covered bridges. Most of them were built between 1825 and 1875 to cross a stream or river and were intended to withstand the elements. An uncovered wooden bridge may have a life span of only about 20 years while a covered bridge could stand for more than 100. Even still, they don't fare well without upkeep and restoration costs can be high. That's why iron replaced wood as the preferred bridge-building material in the mid-1800s. These days, fewer than 900 of the original wooden covered bridges are believed to still be standing. The A. M. Foster Bridge, seen in today's photo, can be found in Cabot, Vermont.
-> 
-> Named after Alonzo Merrill Foster, the inventor of a type of spout for collecting maple tree sap to be made into syrup, the bridge is located on Spaulding Farm. Don't be deceived—the Foster Bridge is actually a 1990s replica of a 'farm bridge' that was built in 1890 and known as the Orton Bridge. Despite being a replica, the Foster Bridge was authentically constructed by hand, in collaboration with Foster's great-grandson, with spruce lumber and salvaged granite. Spanning 45 feet across a pond and literally bridging the gap between two farms, it took less than six weeks to complete. Unfortunately, the bridge was found to be too narrow for modern farm equipment, a miscalculation that its constructors found amusing. Still, it works well as a photo opportunity and frequent venue for weddings.
-> 
-> 
-
-</details>
-
-| ![A. M. Foster Bridge in Cabot, Vermont](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A. M. Foster Bridge in Cabot, Vermont](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_1080x1920.jpg) |M. Foster Bridge in Cabot, Vermont](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_1080x1920.jpg) |//cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Upper Geyser Basin, Yellowstone National Park](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
