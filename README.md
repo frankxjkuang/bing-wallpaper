@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221006
+
+> Basque Coast Geopark in the Bay of Biscay near Bilbao, Spain (© Olimpio Fantuz/eStock Photo)
+
+<details>
+<summary>Description</summary>
+
+> These dragon tail-like structures that stretch into the Bay of Biscay are part of one of the most unique and remarkable geologic formations on the planet. The Basque Coast of northern Spain is a wonderland for geologists and for people who just like looking at cool rocks. Guided tours of the Basque Coast Geopark allow visitors to discover 60 million years of uninterrupted geologic history.
+> 
+> Today is International Geodiversity Day, an observance introduced by the United Nations in 2021 to bring awareness to the many aspects of nature that aren't alive but are so crucial to our planet nonetheless, from rocks and soils, to landscapes, fossils, and glaciers.
+> 
+> 
+
+</details>
+
+| ![International Geodiversity Day](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Geodiversity Day](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg) |
+
 ### 20221005
 
 > Caribbean flamingos, Ría Lagartos Biosphere Reserve, Yucatán Peninsula, Mexico (© Claudio Contreras/Minden Pictures)
@@ -112,20 +131,7 @@
 
 | ![Southern right whale](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Southern right whale](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |
-
-### 20220929
-
-> Infini-D, modeled during the World of WearableArt Awards in 2019 in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)
-
-<details>
-<summary>Description</summary>
-
-> Clothes used to be animal hides and fur. Art used to be stick figures painted on cave walls. Times have changed. Now fashion is a major industry and art can be a lucrative field, too. Today we're celebrating 'wearable art,' which blurs genres and has passionate devotees. Curious? Well, check out the World of WearableArt (WOW), which is WOW-ing (sorry) fashion and art fans with its awards show in New Zealand right now. The competition runs till October 16 and features work by global designers, artists, and costumers—it's New Zealand's largest theatrical production. The competition is just part of the event, though—there are dancers, musicians, and aerialists, too.
-> 
-> Our photo shows Infini-D, a 2019 winner that is, according to a press release, 'a homage to Yayoi Kusama—a meditation on geometry, dimensionality, and cinematic postmodern gothic,' by Australian designers Tara Morelos, Ahmad Mollahassani, and Nelia Justo. It's not just the look that's unconventional: The outfit was created using electronics, acrylic, cardboard, and fabric. We suspect it's not designed to be worn in the rain.
-> 
-> WOW is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
 
 </details>
 
