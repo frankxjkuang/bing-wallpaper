@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221007
+
+> Designs projected on the Oberbaum Bridge during the yearly Festival of Lights in Berlin, Germany (© John MacDougall/AFP via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The double-decker Oberbaum Bridge is one of Berlin's most beloved and iconic landmarks. For centuries the Oberbaum Bridge connected the two districts of Friedrichshain and Kreuzberg until they were separated by the Berlin Wall from 1961 to 1989. The first bridge at this spot was built in the 1700s, although the current road-and-rail Oberbaum was constructed at the end of the 19th century.
+> 
+> It remains an important symbol of unified Berlin, and a prominently featured landmark in the city's annual, weeklong Festival of Lights, which begins today. The international festival, now in its 18th year, transforms Berlin's buildings and landmarks with artful displays of light, as colors, patterns, and images are projected onto structures across the city. Here we see the Oberbaum all lit up for the 2020 festival—a far cry from its Cold War days. Despite growing concerns about an energy crisis in Germany this winter, Berlin's Festival of Lights will go on as planned in 2022, though in a scaled-down version, according to officials at the city government.
+> 
+> 
+
+</details>
+
+| ![Berlin Festival of Lights](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Berlin Festival of Lights](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_1080x1920.jpg) |
+
 ### 20221006
 
 > Basque Coast Geopark in the Bay of Biscay near Bilbao, Spain (© Olimpio Fantuz/eStock Photo)
@@ -112,26 +131,7 @@
 
 | ![Yosemite National Park turns 132](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yosemite National Park turns 132](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_1080x1920.jpg) |
-
-### 20220930
-
-> Southern right whale diving in the Golfo Nuevo near the Valdes Peninsula, Argentina (© Gabriel Rojo/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> The end of September in the Southern Hemisphere means warming weather and the nearing of summer. For southern right whales like this one off the coast of Argentina, it's time to migrate southward toward Antarctica and rich feeding grounds. Southern right whales are a subspecies of right whale that inhabit the oceans below the equator. They feed on krill at the surface of the water, holding their mouths open as they swim through clouds of the tiny crustaceans.
-> 
-> Right whales got their name because they were the 'right' whale to hunt, desirable to whalers because they were relatively slow and floated when they died. Right whales are easily identifiable by the thick white calluses on their heads. They tend to be social and curious creatures and sometimes have close encounters with humans. They spend the southern winter in warmer waters closer to the equator. The whale featured today surfaced off the Valdes Peninsula, home to the largest breeding population in the world, and a fitting location for the Southern Whale Natural Monument, created in 1984. In these protected waters, thousands of whales will mate and give birth, staying until October or November, when they will begin their great migration south.
-> 
-> 
-
-</details>
-
-| ![Southern right whale](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Southern right whale](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_1080x1920.jpg) |laenaAustralis_EN-US7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
 
 </details>
 
