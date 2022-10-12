@@ -2,159 +2,136 @@
 
 ### 20221010
 
-> 瓦伦蒂诺大坝，意大利伦巴第大区布雷西亚省 (© wmaster890/Getty Images)
+> The 'Circle of Sacred Smoke' sculpture by Junkyu Muto frames Devils Tower in Wyoming (© Nagel Photography/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 瓦伦蒂诺公园是意大利都灵市一个受欢迎的公共公园。它位于蒲江西岸。它占地面积500000平方米，是都灵第二大公园（都灵最大的公园是840000平方米的佩莱里纳公园，是意大利最广阔的城市绿地）。这个公园里有一个中世纪的村庄，是都灵最受当地人欢迎的。当你准备好在一个紧凑的区域内游览河流、树木和花园、皇家宫殿等时，就前往位于波河左岸的巴伦蒂诺公园吧（Parco del Valentino）。
+> We're celebrating Indigenous Peoples' Day by peering through the sculpture called 'Circle of Sacred Smoke' aka 'Wind Circle' or 'Circle Wind' at Devils Tower, one of the most famous rock monoliths in the US. The 'Circle,' sculpted by Japanese artist Junkyu Muto and installed in 2008, is the third of seven 'peace sculptures' placed around the world. Twelve feet high and made of white marble, it's intended to evoke a puff of smoke from a Native American ceremonial pipe.
 > 
-> 
+> Devils Tower is a majestic Wyoming butte considered sacred by Indigenous tribes of the Great Plains like the Cheyenne, Crow, Lakota, and Kiowa. In myth, Devils Tower is associated not with the devil but with a great bear: Crow and Cheyenne names for it translate to Bear's House, Bear's Lodge, or Bear's Lair. The vertical grooves in the tower are said to be the bear's claw marks.
 > 
 > 
 
 </details>
 
-| ![加尔达湖附近的瓦伦蒂诺大坝](https://cn.bing.com/th?id=OHR.ValvestinoDam_ZH-CN8397604653_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![加尔达湖附近的瓦伦蒂诺大坝](https://cn.bing.com/th?id=OHR.ValvestinoDam_ZH-CN8397604653_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.SacredSmoke_EN-US7047459944_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.SacredSmoke_EN-US7047459944_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ValvestinoDam_ZH-CN8397604653_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ValvestinoDam_ZH-CN8397604653_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SacredSmoke_EN-US7047459944_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SacredSmoke_EN-US7047459944_1080x1920.jpg) |
 
 ### 20221009
 
-> 楚科奇海的浮游植物水华，美国阿拉斯加州海岸附近 (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)
+> Phytoplankton blooming in the Chukchi Sea off the coast of Alaska (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)
 
 <details>
 <summary>Description</summary>
 
-> 今天照片中这些交织在一起的蓝色大理石纹并非现代艺术作品，而是大自然的杰作。这是阿拉斯加海岸附近浮游植物暴发的卫星照片。
+> Hundreds of shades of blue are marbled together in this cool shot. No, it's not a work of modern art, it's right off the brush of nature. This is a satellite photo of phytoplankton blooming near Alaska as the cool, salty Chukchi Sea mingles with warmer, fresher water closer to shore.
 > 
-> 但什么是浮游植物呢？它们是微小的光合生物，漂浮于上层海面，随波逐流。事实上，它们的名字源于希腊语中的“植物”和“浮游生物”。浮游植物不仅是生活在海洋和河口中的各种生物的美味佳肴，也深刻影响着生活在地球上的每个人。因为地球上大约一半的光合作用都由浮游植物进行，光合作用是绿色植物利用太阳的光能吸收二氧化碳并释放氧气的过程。
+> But just what are phytoplankton? They're microscopic sun-powered organisms that float near the surface of the ocean, drifting with the currents. In fact, their name derives from the Greek 'phyton' for plant and 'planktos' for wanderer or drifter. Delicious and nutritious to various creatures living in oceans and estuaries, they're also vital to everyone on Earth: Phytoplankton are responsible for about half of the world's photosynthesis, the sun-powered process that takes in carbon dioxide and releases oxygen.
 > 
-> 
+> We're talking phytoplankton today in honor of Earth Science Week, an international event encouraging all of us to learn about or even devote our lives to the Earth sciences. This year's theme is 'Earth Science for a Sustainable World,' emphasizing science's role in sustaining our planet. So, time to dust off that microscope and visit your local science museum, or perhaps just learn more about beautiful, swirling phytoplankton.
 
 </details>
 
-| ![阿拉斯加州海岸附近的楚科奇海](https://cn.bing.com/th?id=OHR.ChukchiSea_ZH-CN7218471261_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![阿拉斯加州海岸附近的楚科奇海](https://cn.bing.com/th?id=OHR.ChukchiSea_ZH-CN7218471261_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Earth Science Week](https://cn.bing.com/th?id=OHR.ChukchiSea_EN-US6494940864_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Earth Science Week](https://cn.bing.com/th?id=OHR.ChukchiSea_EN-US6494940864_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChukchiSea_ZH-CN7218471261_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChukchiSea_ZH-CN7218471261_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChukchiSea_EN-US6494940864_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChukchiSea_EN-US6494940864_1080x1920.jpg) |
 
 ### 20221008
 
-> 佛得角附近大西洋中的玻璃章鱼 (© Solvin Zankl/Minden Pictures)
+> Glass octopus in the Atlantic Ocean off Cabo Verde (© Solvin Zankl/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 玻璃章鱼是海洋中鲜为人知的生物之一，它们生活在阳光无法到达的约3000英尺深的海底。玻璃章鱼极其罕见，且很难被发现，但它们是章鱼生物多样性的一个很好例证。每年的10月8日是世界章鱼日，就让我们在今天为他们庆祝吧！
+> One of the least understood of sea creatures, this glass octopus lives in the depths of the ocean where sunlight can't reach, about 3,000 feet down. Glass octopuses are rarely seen and difficult to observe, but they're a great example of the diversity of the order Octopoda, which we're celebrating today on World Octopus Day. The observance comes around, appropriately, every Oct 8.
 > 
-> 我们对章鱼了解得越多，就越能发现其迷人之处。它们是海洋中最聪明、行为最多样的生物之一。章鱼可以记住和识别人类，也是已知的极少数能够使用工具的动物之一。一些章鱼体型很大，比如太平洋巨型章鱼，而有些章鱼则很小。从潮汐浅滩到海底深渊，它们生活在各种不同的地方。
+> The more we learn about octopuses, the more fascinating they reveal themselves to be. They're among the most intelligent and behaviorally diverse creatures in the sea. Octopuses can remember and recognize individual humans and are among the very few animals known to be able to use tools. Some, like the giant Pacific octopus, are enormous, and some are tiny. They live in a variety of habitats, from tidal pools to the deepest abyss of the ocean.
 > 
-> 生活在黑暗中的玻璃章鱼几乎是隐形的，这有助于它们躲避像巨齿槌鲸这样的捕食者，只有它们的眼睛不透明，这可能会“出卖”它们。玻璃章鱼相对较小，有一个大约4英寸长的“外套”(容纳器官的球状“头部”)。它们的寿命和大多数章鱼一样，只有短短几年。它们长得快、成熟早，繁殖完毕就很快死去，永远不见天日。
+> In the darkness where they live, glass octopuses are nearly invisible, which helps them elude predators like bottlenose whales. Only their eyes give them away. The species is relatively small, with a mantle (the bulbous 'head' that houses the animal's organs) about 4 inches long and a total length of about 18 inches. And their lives, like those of most octopus species, are brief—just a few years. They grow quickly, mature early, reproduce, and die soon after that, never seeing the light of day.
 
 </details>
 
-| ![世界章鱼日](https://cn.bing.com/th?id=OHR.GlassOctopus_ZH-CN6853414529_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界章鱼日](https://cn.bing.com/th?id=OHR.GlassOctopus_ZH-CN6853414529_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Octopus Day](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Octopus Day](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlassOctopus_ZH-CN6853414529_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlassOctopus_ZH-CN6853414529_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_1080x1920.jpg) |
 
 ### 20221007
 
-> 温德米尔湖的风景，坎布里亚湖区，英格兰 (© Chris Warren/eStock Photo)
+> Designs projected on the Oberbaum Bridge during the yearly Festival of Lights in Berlin, Germany (© John MacDougall/AFP via Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 温德米尔湖位于坎布里亚郡的湖区，碧水一泓，滋润的沿岸的花草树木，是英格兰最大的自然湖，也是英格兰最受欢迎的度假胜地之一。温德米尔湖受到周围地理环境和气候的影响，气候宜人，风景如画。在许多旅游攻略都称这里为人生必去的地方之一。英国著名浪漫派诗人济慈曾言：“无论年轻还是年迈，富有还是贫穷，温德米尔让人忘却了生活中存在的不同”。
+> The double-decker Oberbaum Bridge is one of Berlin's most beloved and iconic landmarks. For centuries the Oberbaum Bridge connected the two districts of Friedrichshain and Kreuzberg until they were separated by the Berlin Wall from 1961 to 1989. The first bridge at this spot was built in the 1700s, although the current road-and-rail Oberbaum was constructed at the end of the 19th century.
 > 
-> 
+> It remains an important symbol of unified Berlin, and a prominently featured landmark in the city's annual, weeklong Festival of Lights, which begins today. The international festival, now in its 18th year, transforms Berlin's buildings and landmarks with artful displays of light, as colors, patterns, and images are projected onto structures across the city. Here we see the Oberbaum all lit up for the 2020 festival—a far cry from its Cold War days. Despite growing concerns about an energy crisis in Germany this winter, Berlin's Festival of Lights will go on as planned in 2022, though in a scaled-down version, according to officials at the city government.
 > 
 > 
 
 </details>
 
-| ![温德米尔湖，英格兰坎布里亚郡](https://cn.bing.com/th?id=OHR.WindermereHills_ZH-CN6614218161_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![温德米尔湖，英格兰坎布里亚郡](https://cn.bing.com/th?id=OHR.WindermereHills_ZH-CN6614218161_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Berlin Festival of Lights](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Berlin Festival of Lights](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WindermereHills_ZH-CN6614218161_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WindermereHills_ZH-CN6614218161_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_1080x1920.jpg) |
 
 ### 20221006
 
-> 巴斯克海岸世界地质公园的比斯开湾，西班牙 (© Olimpio Fantuz/eStock Photo)
+> Basque Coast Geopark in the Bay of Biscay near Bilbao, Spain (© Olimpio Fantuz/eStock Photo)
 
 <details>
 <summary>Description</summary>
 
-> 西班牙北部巴斯克海岸比斯开湾边，这些没入海水的龙尾状结构，是地球上最独特和最神奇的地质构造之一。这里是地质学家的仙境，也是奇石爱好者的仙境。在巴斯克海岸地质公园导游的带领下，游客可以在这里发现6000万年不间断的地质历史。
+> These dragon tail-like structures that stretch into the Bay of Biscay are part of one of the most unique and remarkable geologic formations on the planet. The Basque Coast of northern Spain is a wonderland for geologists and for people who just like looking at cool rocks. Guided tours of the Basque Coast Geopark allow visitors to discover 60 million years of uninterrupted geologic history.
 > 
-> 今天是国际地质多样性日，在解决人类今天面临的重大挑战上，地质科学有着非常重要的作用，其中涉及地质学、岩石圈、地球内部、大气、水圈和生物圈。
+> Today is International Geodiversity Day, an observance introduced by the United Nations in 2021 to bring awareness to the many aspects of nature that aren't alive but are so crucial to our planet nonetheless, from rocks and soils, to landscapes, fossils, and glaciers.
 > 
 > 
 
 </details>
 
-| ![国际地质多样性日](https://cn.bing.com/th?id=OHR.BayofBiscay_ZH-CN6002214693_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际地质多样性日](https://cn.bing.com/th?id=OHR.BayofBiscay_ZH-CN6002214693_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Geodiversity Day](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Geodiversity Day](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_ZH-CN6002214693_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_ZH-CN6002214693_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg) |
 
 ### 20221005
 
-> 加勒比海红鹳，里奥拉加托斯自然保护区，墨西哥 (© Claudio Contreras/Minden Pictures)
+> Caribbean flamingos, Ría Lagartos Biosphere Reserve, Yucatán Peninsula, Mexico (© Claudio Contreras/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 看这一队毛孩子，它们是在老师的带领下进行班级旅行吗？今天是世界教师日，我们向所有的教育工作者致敬。本届世界教师日的主题是“教师是教育复兴的核心”，强调了教师在新冠疫情期间所做的卓越努力。疫情期间，由于要采取线上教学或线上线下混合教学模式，教师们必须平衡自身的健康和安全问题，同时还要关注学生的学业和健康。
+> Class trip? Looks like this teacher has their youngsters in line. If only it were always this easy.... Today is World Teachers' Day, and we're celebrating educators of all kinds. This year's theme is 'Teachers at the heart of educational renewal,' and it highlights the remarkable efforts of teachers during the COVID-19 pandemic and quarantine. They've had to balance health and safety concerns with an abrupt switch to remote learning or partial in-person classes, all while focusing on the education and well-being of their students.
 > 
-> 我们的火烈鸟老师倒是不必担心新冠，但它身上的担子也不轻。这些灰色的毛孩子虽然看着不像火烈鸟，但它们的确是火烈鸟。在墨西哥尤卡坦半岛里奥拉加托斯自然保护区里，这些年轻的火烈鸟会在3-5岁时成熟，届时它们的羽毛就会变成标志性的粉红色。这种桃粉色来自于火烈鸟的饮食：它们吃的食物（藻类、昆虫、甲壳类动物和软体动物等等）中含有大量的α和β类胡萝卜素。
+> Our flamingo teacher here may not have had to worry about COVID, but they certainly have their wings full. Though their gray charges don't look flamingo-y yet, they will. Flamingo youngsters, like those here at the Ría Lagartos Biosphere Reserve in Mexico's Yucatán Peninsula, develop the coloration of adults at around 1 to 2 years of age, so those trademark pink feathers will soon start to appear. The hot-pink coloring comes from the flamingo diet: They eat food that contains a lot of alpha and beta carotenoid pigments, such as algae, bugs, crustaceans, and mollusks.
 > 
 > 
 
 </details>
 
-| ![世界教师日](https://cn.bing.com/th?id=OHR.FlamingoTeacher_ZH-CN5688509752_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界教师日](https://cn.bing.com/th?id=OHR.FlamingoTeacher_ZH-CN5688509752_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Teachers' Day](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlamingoTeacher_ZH-CN5688509752_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlamingoTeacher_ZH-CN5688509752_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_1080x1920.jpg) |
 
 ### 20221004
 
-> 黄山的日出，中国 (© zhouyousifang/Getty Images)
+> Cosmic Cliffs in the Carina Nebula (© NASA, ESA, CSA, and STScI)
 
 <details>
 <summary>Description</summary>
 
-> 重阳节又叫双九节。在中国，这是人们吃重阳糕、喝菊花酒、爬山的日子。今天我们来到了中国最著名的山之一。
+> Since the first pictures arrived from the James Webb Space Telescope this July, the world has been mesmerized by the vividness, resolution, and literally otherworldly nature of the telescope's infrared images. The JWST's technology will revolutionize the fields of astronomy and cosmology, allowing observation of the first stars in the universe and the formation of the first galaxies. The telescope's high infrared resolution and sensitivity may even allow it to reveal potentially habitable exoplanets.
 > 
-> 黄山位于中国东部的安徽省，以其壮丽的自然风光而闻名，包括巨大的花岗岩巨石和古老的松树，在云雾的渲染下，一切都变得更加壮观而神秘。景区内山峰林立，多座山峰海拔超过1000米，其中的最高峰——著名的莲花峰，海拔高达1864米。
+> Today marks the first day of World Space Week, a UN-recognized event that runs each year from October 4, the anniversary of the launch of Sputnik in 1957, to October 10, the anniversary of the Outer Space Treaty going into effect in 1967. We're celebrating with this iridescent image of an early star-forming region called the Cosmic Cliffs in the Carina Nebula, captured in infrared.
 > 
 > 
 
 </details>
 
-| ![黄山的日出](https://cn.bing.com/th?id=OHR.ChongyangFestival_ZH-CN5260976551_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![黄山的日出](https://cn.bing.com/th?id=OHR.ChongyangFestival_ZH-CN5260976551_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Space Week](https://cn.bing.com/th?id=OHR.CosmicCliffs_EN-US8727581889_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Space Week](https://cn.bing.com/th?id=OHR.CosmicCliffs_EN-US8727581889_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChongyangFestival_ZH-CN5260976551_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChongyangFestival_ZH-CN5260976551_1080x1920.jpg) |tails>
-
-| ![仙女谷，斯凯岛](https://cn.bing.com/th?id=OHR.FairyGlen_ZH-CN4521633106_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![仙女谷，斯凯岛](https://cn.bing.com/th?id=OHR.FairyGlen_ZH-CN4521633106_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FairyGlen_ZH-CN4521633106_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FairyGlen_ZH-CN4521633106_1080x1920.jpg) |15&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LotsOBalloons_EN-US8236203600_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LotsOBalloons_EN-US8236203600_1080x1920.jpg) |
-
-### 20221001
-
-> Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> There are thousands of waterfalls in Yosemite National Park, but perhaps none are as well known as Bridalveil Fall. First things first: Don't call it 'falls' because then someone may think you were in Utah where another waterfall bears the surprisingly similar name, Bridal Veil Falls. Bridalveil, as seen in the photo, is often the first waterfall visitors to Yosemite encounter. It plunges 617 feet and flows year-round, fed with water from Ostrander Lake nearly 10 miles away. When the flow is light, brisk winds blow the water sideways. That's why the Ahwahneechee Native Americans, who have lived in the Yosemite Valley for centuries, traditionally called the waterfall Pohono, or 'Spirit of the Puffing Wind.'
-> 
-> When Yosemite was made a national park on this date in 1890, it not only preserved this jewel of the Sierra Nevada from being turned over to sheep grazing, it was also pivotal to the continued idea of protecting natural areas for the future. Scottish American environmentalist John Muir is credited with convincing President Benjamin Harrison to preserve the Yosemite Valley, and that success kicked off a string of conservation efforts that would eventually lead to the creation of the National Park System. Today, Yosemite's pristine wilderness is internationally known for mountains, granite cliffs, giant sequoia groves, and, of course, waterfalls.
-> 
-> 
-
-</details>
-
-| ![Yosemite National Park turns 132](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yosemite National Park turns 132](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CosmicCliffs_EN-US8727581889_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CosmicCliffs_EN-US8727581889_1080x1920.jpg) | | ![Yosemite National Park turns 132](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_1080x1920.jpg) |laenaAustralis_EN-US7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
 
