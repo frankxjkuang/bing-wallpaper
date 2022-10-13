@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221011
+
+> Wall screw-moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> You may be surprised to learn that this elegant plant dappled with water droplets is a variety of moss: Tortula muralis, better known as wall screw-moss. It's found all over the world, even in urban areas where more sensitive mosses have a hard time thriving because of dry soil and air pollution. Mosses in general are accurate monitors of air pollution—they absorb air and water, so contaminants can also be measured in their cells.
+> 
+> Wall screw-moss is just one of at least 12,000 species of moss, ancient plants that date back 450 million years. The hardy bunch has weathered climate swings for eons, capable of surviving in icy tundra or scorching desert plains. They don't have roots—instead, they absorb moisture through hairlike rhizoids (which also act as anchors) on their surface. This ability to suck in water so efficiently makes mosses among the first plants to recover from forest fires or extreme heat, spreading out to stabilize the soil and keep it hydrated for other plants.
+> 
+> How appropriate, then, that our photograph captured raindrops on the moss. This is a perfect example of what's known as macro photography, when the image is many times larger than life-size. All the better to enjoy the delicate beauty of nature.
+
+</details>
+
+| ![Tortula moss, Netherlands](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tortula moss, Netherlands](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_1080x1920.jpg) |
+
 ### 20221010
 
 > The 'Circle of Sacred Smoke' sculpture by Junkyu Muto frames Devils Tower in Wyoming (© Nagel Photography/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_1080x1920.jpg) |
-
-### 20221004
-
-> Cosmic Cliffs in the Carina Nebula (© NASA, ESA, CSA, and STScI)
-
-<details>
-<summary>Description</summary>
-
-> Since the first pictures arrived from the James Webb Space Telescope this July, the world has been mesmerized by the vividness, resolution, and literally otherworldly nature of the telescope's infrared images. The JWST's technology will revolutionize the fields of astronomy and cosmology, allowing observation of the first stars in the universe and the formation of the first galaxies. The telescope's high infrared resolution and sensitivity may even allow it to reveal potentially habitable exoplanets.
-> 
-> Today marks the first day of World Space Week, a UN-recognized event that runs each year from October 4, the anniversary of the launch of Sputnik in 1957, to October 10, the anniversary of the Outer Space Treaty going into effect in 1967. We're celebrating with this iridescent image of an early star-forming region called the Cosmic Cliffs in the Carina Nebula, captured in infrared.
-> 
-> 
-
-</details>
-
-| ![World Space Week](https://cn.bing.com/th?id=OHR.CosmicCliffs_EN-US8727581889_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Space Week](https://cn.bing.com/th?id=OHR.CosmicCliffs_EN-US8727581889_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CosmicCliffs_EN-US8727581889_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CosmicCliffs_EN-US8727581889_1080x1920.jpg) | | ![Yosemite National Park turns 132](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridalVeilFalls_EN-US8055892423_1080x1920.jpg) |laenaAustralis_EN-US7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_1080x1920.jpg) |7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
 
 </details>
 
