@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221012
+
+> Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)
+
+<details>
+<summary>Description</summary>
+
+> Travel back 199 million years with a trip to the Jurassic Coast World Heritage Site, a 95-mile-long stretch of coastline in southern England. This stunning fossil display is known as the Ammonite Pavement, where thousands of ammonite fossils are embedded in a limestone ledge at the west end of Monmouth Beach in Dorset. Although the ammonites look rather like snail shells, these are fossils of extinct sea creatures that are more closely related to today's octopus or squid. Britain's Natural History Museum notes that the fossil-filled ledge is unique in the world because of the sheer number and size of the ammonites: The fossils reach up to 27 inches in diameter. If you want to check them out, timing is everything—the ledge emerges at low tide, and there are more ammonites in large rocks nearby, too.
+> 
+> Today is National Fossil Day, when we celebrate the fascinating world of extinct creatures and plants. It's no coincidence that it falls during Earth Science Week: We can learn more about our planet and all living things from this visible, touchable legacy of our past.
+> 
+> 
+
+</details>
+
+| ![Fossil Day](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fossil Day](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_1080x1920.jpg) |
+
 ### 20221011
 
 > Wall screw-moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![International Geodiversity Day](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Geodiversity Day](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg) |
-
-### 20221005
-
-> Caribbean flamingos, Ría Lagartos Biosphere Reserve, Yucatán Peninsula, Mexico (© Claudio Contreras/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Class trip? Looks like this teacher has their youngsters in line. If only it were always this easy.... Today is World Teachers' Day, and we're celebrating educators of all kinds. This year's theme is 'Teachers at the heart of educational renewal,' and it highlights the remarkable efforts of teachers during the COVID-19 pandemic and quarantine. They've had to balance health and safety concerns with an abrupt switch to remote learning or partial in-person classes, all while focusing on the education and well-being of their students.
-> 
-> Our flamingo teacher here may not have had to worry about COVID, but they certainly have their wings full. Though their gray charges don't look flamingo-y yet, they will. Flamingo youngsters, like those here at the Ría Lagartos Biosphere Reserve in Mexico's Yucatán Peninsula, develop the coloration of adults at around 1 to 2 years of age, so those trademark pink feathers will soon start to appear. The hot-pink coloring comes from the flamingo diet: They eat food that contains a lot of alpha and beta carotenoid pigments, such as algae, bugs, crustaceans, and mollusks.
-> 
-> 
-
-</details>
-
-| ![World Teachers' Day](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlamingoTeacher_EN-US8819896781_1080x1920.jpg) |7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg) |Teacher_EN-US8819896781_1080x1920.jpg) |7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
 
 </details>
 
