@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221014
+
+> Waterfall on the Río Arazas in Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)
+
+<details>
+<summary>Description</summary>
+
+> Striking in any season, but particularly beautiful in years when the warmth of summer stretches into fall, the Pyrenees have served as a natural border between the Iberian Peninsula and the rest of Europe since the earliest civilizations took root there. Located in the center of the range, Ordesa y Monte Perdido National Park was created in 1918 and expanded in 1982. Today it is a UNESCO World Heritage Site.
+> 
+> Boasting sheer cliffs and deep, verdant valleys, the park is a photographer's dream, with a landscape defined by dramatic geological landforms and diverse ecosystems shaped by the drastic elevation changes of the Pyrenees. The region is home to several species that can only be found here, including the Pyrenean chamois and the Pyrenean desman, or water mole. The mammal considered the most rare and important in the region, the bucardo or Pyrenean ibex, went extinct in January 2000 despite preservation efforts.
+> 
+> 
+
+</details>
+
+| ![Río Arazas in Ordesa y Monte Perdido National Park, Spain](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Río Arazas in Ordesa y Monte Perdido National Park, Spain](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_1080x1920.jpg) |
+
 ### 20221013
 
 > Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![World Octopus Day](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Octopus Day](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_1080x1920.jpg) |
-
-### 20221007
-
-> Designs projected on the Oberbaum Bridge during the yearly Festival of Lights in Berlin, Germany (© John MacDougall/AFP via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The double-decker Oberbaum Bridge is one of Berlin's most beloved and iconic landmarks. For centuries the Oberbaum Bridge connected the two districts of Friedrichshain and Kreuzberg until they were separated by the Berlin Wall from 1961 to 1989. The first bridge at this spot was built in the 1700s, although the current road-and-rail Oberbaum was constructed at the end of the 19th century.
-> 
-> It remains an important symbol of unified Berlin, and a prominently featured landmark in the city's annual, weeklong Festival of Lights, which begins today. The international festival, now in its 18th year, transforms Berlin's buildings and landmarks with artful displays of light, as colors, patterns, and images are projected onto structures across the city. Here we see the Oberbaum all lit up for the 2020 festival—a far cry from its Cold War days. Despite growing concerns about an energy crisis in Germany this winter, Berlin's Festival of Lights will go on as planned in 2022, though in a scaled-down version, according to officials at the city government.
-> 
-> 
-
-</details>
-
-| ![Berlin Festival of Lights](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Berlin Festival of Lights](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_1080x1920.jpg) |[Download portrait 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg) |Teacher_EN-US8819896781_1080x1920.jpg) |7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_1080x1920.jpg) |[Download portrait 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg) |Teacher_EN-US8819896781_1080x1920.jpg) |7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
 
 </details>
 
