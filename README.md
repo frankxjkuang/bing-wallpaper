@@ -2,146 +2,136 @@
 
 ### 20221016
 
-> 克里斯蒂安王子之声，格陵兰岛 (© Posnov/Getty Images)
+> Prince Christian Sound in southern Greenland (© Posnov/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 格陵兰岛的占地之大令人难以想象。作为世界上最大的岛屿，它的面积超过83.6万平方英里，是得克萨斯州的三倍之多，比阿拉斯加大17万平方英里。这是一片深邃的峡湾与冰雪之地，一千年前在此登陆的挪威探险家定有宾至如归之感。
+> The sheer size of Greenland is hard to put in perspective. The world's largest island is more than 836,000 square miles—that's more than three times the size of Texas and 170,000 square miles larger than Alaska. It is a land of deep fjords and thick ice that must have made the Norse explorers feel right at home when they landed there a thousand years ago.
 > 
-> 这里是格陵兰岛南端的克里斯蒂安王子湾。这是一个狭长的峡湾，长60英里，最窄的地方只有1500英尺宽。它流经陡峭的花岗岩峡谷（海拔超过1200英尺），但水流的平静却常常被冰川崩裂、鲸鱼跳跃和旅客游轮打破。在这片冰冻的土地上，唯一有人居住的地方是阿皮拉托克岛的因纽特人村庄，居民约100人。
+> Today we find ourselves at the southern tip of Greenland, in Prince Christian Sound, a fjord system 60 miles long, at times as narrow as 1,500 feet across. It flows through steep canyons of granite with slopes rising 1,200 feet above the water. The placid calm of these waters is frequently disrupted by calving glaciers, breaching whales, and the cruise ships that visit the region. The only human habitation in this frozen landscape is the Inuit village of Aappilattoq, home to about 100 people.
 > 
 > 
 
 </details>
 
-| ![格陵兰南部的克里斯蒂安王子峡湾](https://cn.bing.com/th?id=OHR.PrinceChristianSound_ZH-CN0274463143_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![格陵兰南部的克里斯蒂安王子峡湾](https://cn.bing.com/th?id=OHR.PrinceChristianSound_ZH-CN0274463143_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Prince Christian Sound in southern Greenland](https://cn.bing.com/th?id=OHR.PrinceChristianSound_EN-US8033823843_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Prince Christian Sound in southern Greenland](https://cn.bing.com/th?id=OHR.PrinceChristianSound_EN-US8033823843_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrinceChristianSound_ZH-CN0274463143_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrinceChristianSound_ZH-CN0274463143_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrinceChristianSound_EN-US8033823843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrinceChristianSound_EN-US8033823843_1080x1920.jpg) |
 
 ### 20221015
 
-> 纳克什鲁斯塔姆遗址，伊朗波斯波利斯 (© mshirani/Shutterstock)
+> Naqsh-e Rostam archaeological site near Persepolis, Iran (© mshirani/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 纳克什鲁斯塔姆位于伊朗西南部，是在山石里开凿出来的古老墓地，也是通往古代波斯最早繁荣文明之一的窗口。高耸的岩壁上开凿出了四座阿契美尼德国王的坟墓（照片中能看到其中的三个）。这个遗址及其周边地区对伊朗的历史及其人民具有重大意义，同时也是彰显考古学的重要作用的典范。在每年十月的第三个星期六，我们庆祝并肯定考古学家作为人类历史翻译者的重要贡献。
+> Naqsh-e Rostam is an ancient necropolis carved into the mountains of southwestern Iran, a porthole into one of the earliest civilizations to flourish in ancient Persia. The tombs of four Achaemenid kings (you can see three of them here) are marked by rock reliefs carved high above the ground into the cliff face. This site and the area around it are of huge significance to the history of Iran and its people. They're also a shining example of the role archaeology plays in understanding our past. On the third Saturday of every October, we pause to celebrate and recognize the contributions of archaeologists as interpreters of human history.
 > 
-> 这片墓地靠近法尔斯省的设拉子市，其中的一个坟墓通过铭文确定为大流士一世（大流士大帝）的安息之地。其他几座坟墓则被认为是大流士的儿子薛西斯一世、阿尔塔薛西斯一世和大流士二世的坟墓。纳克什鲁斯塔姆还有描绘萨珊王朝（在穆斯林于7、8世纪征服这片土地之前的最后一个伊朗帝国）后期几位帝王的浮雕。几百码开外便是萨珊浮雕的考古遗址，那里有更多浮雕，描绘了三位萨珊帝王和一位大祭司。虽然这些文明已经褪色，但它们留下的人类文明历史的记录将长存。
+> 'Necropolis,' the word for a complex of tombs and burial plots, literally translates as 'city of the dead.' This one is close to the ruins of the ancient Achaemenid ceremonial capital of Persepolis. One of the tombs is identified by an inscription as being the resting place of Darius I, aka Darius the Great, and the others are believed to be the tombs of Darius' son, Xerxes I, Artaxerxes I, and Darius II, leaders during the Achaemenid dynasty from 522-330 BCE. Naqsh-e Rostam is also home to relief carvings depicting kings of the later Sasanian Empire, the last Iranian empire before the Muslim conquests of the 7th and 8th centuries. Only a few hundred yards away is the archaeological site known as Naqsh-e Rajab, with more rock carvings depicting three Sassanid kings and a high priest. While these civilizations have faded, what they created endures as a permanent record of human history.
 > 
 > 
 
 </details>
 
-| ![国际考古日](https://cn.bing.com/th?id=OHR.NaqsheRustam_ZH-CN9695151436_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际考古日](https://cn.bing.com/th?id=OHR.NaqsheRustam_ZH-CN9695151436_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Archaeology Day](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaqsheRustam_ZH-CN9695151436_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaqsheRustam_ZH-CN9695151436_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_1080x1920.jpg) |
 
 ### 20221014
 
-> 奥尔德萨和佩尔迪多山国家公园里的瀑布，西班牙比利牛斯山脉 (© David Santiago Garcia/Cavan Images)
+> Waterfall on the Río Arazas in Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)
 
 <details>
 <summary>Description</summary>
 
-> 比利牛斯山脉在任何季节都引人注目，尤其是在温暖的秋季。自从最早的文明在那里扎根以来，比利牛斯山脉一直是伊比利亚半岛和欧洲其他地区之间的天然边界。奥尔德萨和佩尔迪多山国家公园位于山脉的中心，创建于1918年，并在1982年扩建。如今，它已被联合国教科文组织列为世界遗产。
+> Striking in any season, but particularly beautiful in years when the warmth of summer stretches into fall, the Pyrenees have served as a natural border between the Iberian Peninsula and the rest of Europe since the earliest civilizations took root there. Located in the center of the range, Ordesa y Monte Perdido National Park was created in 1918 and expanded in 1982. Today it is a UNESCO World Heritage Site.
 > 
-> 这个公园拥有陡峭的悬崖和青翠的山谷，其景观以特色鲜明的地质地貌和丰富多样的生态环境（由海拔的剧烈变化而形成）为标志，简直是摄影师梦想中的公园。有些物种只能在这个地区才能被找到，如比利牛斯臆羚和比利牛斯鼬鼹（水鼹）。还有一种哺乳动物被认为是该地区最稀有、最重要的动物，即布卡多山羊（又称比利牛斯野山羊），尽管受到了保护，但它们还是在2000年1月灭绝了。
+> Boasting sheer cliffs and deep, verdant valleys, the park is a photographer's dream, with a landscape defined by dramatic geological landforms and diverse ecosystems shaped by the drastic elevation changes of the Pyrenees. The region is home to several species that can only be found here, including the Pyrenean chamois and the Pyrenean desman, or water mole. The mammal considered the most rare and important in the region, the bucardo or Pyrenean ibex, went extinct in January 2000 despite preservation efforts.
 > 
 > 
 
 </details>
 
-| ![阿拉扎斯河谷，比利牛斯山脉，西班牙](https://cn.bing.com/th?id=OHR.RioArazas_ZH-CN9451571402_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![阿拉扎斯河谷，比利牛斯山脉，西班牙](https://cn.bing.com/th?id=OHR.RioArazas_ZH-CN9451571402_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Río Arazas in Ordesa y Monte Perdido National Park, Spain](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Río Arazas in Ordesa y Monte Perdido National Park, Spain](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RioArazas_ZH-CN9451571402_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RioArazas_ZH-CN9451571402_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_1080x1920.jpg) |
 
 ### 20221013
 
-> 迪纳利国家公园里的两只驼鹿，美国阿拉斯加州 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+> Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 经过数月的进食、漫游和躲避捕食者，阿拉斯加驼鹿会在秋季的发情期（8月底至10月初）进行繁殖。雄性驼鹿会在树上标记它们的气味来吸引雌性驼鹿，并与其他雄性打架争夺交配权。
+> After months of eating, roaming, and avoiding predators, Alaska moose spend autumn trying to propagate the species during what is called the rutting season, which runs from late September to early October. Males, called bulls, will mark their scent on trees to attract females. They’ll also fight other bulls for access to females, called cows.
 > 
-> 雄性驼鹿之间的战斗有时可能是致命的。如果一头雄性驼鹿输掉了战斗，那么它可能会错过发情季节。几乎每头雌性驼鹿每年都只会与一头雄性进行交配，但雄性驼鹿却可以在12个月内与25头雌性驼鹿交配。
+> Fights between bulls can sometimes be fatal, and occasionally a bull will have to wait until next year's rut to mate if it loses a fight. Virtually all cows have only one mate per year, but bulls can mate with 25 cows over a 12-month period.
 > 
 > 
 
 </details>
 
-| ![阿拉斯加驼鹿](https://cn.bing.com/th?id=OHR.AlaskaMoose_ZH-CN9148253690_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![阿拉斯加驼鹿](https://cn.bing.com/th?id=OHR.AlaskaMoose_ZH-CN9148253690_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Alaska moose](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska moose](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlaskaMoose_ZH-CN9148253690_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlaskaMoose_ZH-CN9148253690_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_1080x1920.jpg) |
 
 ### 20221012
 
-> 蒙茅斯海滩的菊石路面，英国多塞特侏罗纪海岸世界遗产地 (© AWL Images/Danita Delimont)
+> Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)
 
 <details>
 <summary>Description</summary>
 
-> 让我们一起回到1.99亿年前，前往英国多塞特郡的侏罗纪海岸世界遗产地旅行。照片中这令人惊叹的化石美景被称为菊石路面，成千上万的化石镶嵌在蒙茅斯海滩西边的石灰岩岩架上。菊石是已经灭绝的海洋生物的化石，虽然看起来很像蜗牛壳，但其实这些海洋生物与现在的章鱼和鱿鱼是近亲。英国自然历史博物馆认为，因其菊石的数量和大小（直径最大可达27英寸），这片满是化石的岩架在全世界都是独一无二的。如果你想一探究竟，时机很重要，因为岩架在退潮时才会露出来，不过附近的岩石中也有许多菊石。
+> Travel back 199 million years with a trip to the Jurassic Coast World Heritage Site, a 95-mile-long stretch of coastline in southern England. This stunning fossil display is known as the Ammonite Pavement, where thousands of ammonite fossils are embedded in a limestone ledge at the west end of Monmouth Beach in Dorset. Although the ammonites look rather like snail shells, these are fossils of extinct sea creatures that are more closely related to today's octopus or squid. Britain's Natural History Museum notes that the fossil-filled ledge is unique in the world because of the sheer number and size of the ammonites: The fossils reach up to 27 inches in diameter. If you want to check them out, timing is everything—the ledge emerges at low tide, and there are more ammonites in large rocks nearby, too.
 > 
-> 
+> Today is National Fossil Day, when we celebrate the fascinating world of extinct creatures and plants. It's no coincidence that it falls during Earth Science Week: We can learn more about our planet and all living things from this visible, touchable legacy of our past.
 > 
 > 
 
 </details>
 
-| ![侏罗纪海岸，英国多塞特郡](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_ZH-CN8904427525_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![侏罗纪海岸，英国多塞特郡](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_ZH-CN8904427525_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Fossil Day](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fossil Day](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_ZH-CN8904427525_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_ZH-CN8904427525_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_1080x1920.jpg) |
 
 ### 20221011
 
-> 带着闪闪发光水滴的泛生墙藓, 荷兰 (© Arjan Troost/Minden Pictures)
+> Wall screw-moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 你可能会惊讶，这种点缀着水滴的优雅植物是一种苔藓：泛生墙藓，它更常见的名字是墙螺旋苔藓。泛生墙藓遍布全世界，甚至都市里也不乏它们的身影（都市里土壤干燥、空气污染严重，许多敏感的苔藓难以存活）。一般来说，苔藓是空气污染的精确监测器——它们吸收空气和水，所以污染物能够在它们的细胞中被检测出来。
+> You may be surprised to learn that this elegant plant dappled with water droplets is a variety of moss: Tortula muralis, better known as wall screw-moss. It's found all over the world, even in urban areas where more sensitive mosses have a hard time thriving because of dry soil and air pollution. Mosses in general are accurate monitors of air pollution—they absorb air and water, so contaminants can also be measured in their cells.
 > 
-> 泛生墙藓只是15000到25000种苔藓中的一种，这些古老的植物可以追溯到4.5亿年前。这种顽强的植物经受住了数亿年气候变化的考验，能够在冰冷的苔原或炙热的沙漠平原上生存。它们通过整个植物体来吸收水分。这种高效吸水的能力使苔藓成为第一批从森林火灾或极端高温中恢复过来的植物。广泛分布的苔藓还可以稳定土壤，使土壤保持水分。
+> Wall screw-moss is just one of at least 12,000 species of moss, ancient plants that date back 450 million years. The hardy bunch has weathered climate swings for eons, capable of surviving in icy tundra or scorching desert plains. They don't have roots—instead, they absorb moisture through hairlike rhizoids (which also act as anchors) on their surface. This ability to suck in water so efficiently makes mosses among the first plants to recover from forest fires or extreme heat, spreading out to stabilize the soil and keep it hydrated for other plants.
 > 
-> 这张照片正好捕捉到了雨滴落在苔藓上的瞬间。这是一个微距摄影的完美例子，当照相机把物体的实际尺寸放大很多倍时，我们更能欣赏到自然界的这种精致之美。
+> How appropriate, then, that our photograph captured raindrops on the moss. This is a perfect example of what's known as macro photography, when the image is many times larger than life-size. All the better to enjoy the delicate beauty of nature.
 
 </details>
 
-| ![泛生墙藓，荷兰](https://cn.bing.com/th?id=OHR.TortulaMoss_ZH-CN8695265186_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![泛生墙藓，荷兰](https://cn.bing.com/th?id=OHR.TortulaMoss_ZH-CN8695265186_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Tortula moss, Netherlands](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tortula moss, Netherlands](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TortulaMoss_ZH-CN8695265186_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TortulaMoss_ZH-CN8695265186_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_1080x1920.jpg) |
 
 ### 20221010
 
-> 瓦伦蒂诺大坝，意大利伦巴第大区布雷西亚省 (© wmaster890/Getty Images)
+> The 'Circle of Sacred Smoke' sculpture by Junkyu Muto frames Devils Tower in Wyoming (© Nagel Photography/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 瓦伦蒂诺公园是意大利都灵市一个受欢迎的公共公园。它位于蒲江西岸。它占地面积500000平方米，是都灵第二大公园（都灵最大的公园是840000平方米的佩莱里纳公园，是意大利最广阔的城市绿地）。这个公园里有一个中世纪的村庄，是都灵最受当地人欢迎的。当你准备好在一个紧凑的区域内游览河流、树木和花园、皇家宫殿等时，就前往位于波河左岸的巴伦蒂诺公园吧（Parco del Valentino）。
+> We're celebrating Indigenous Peoples' Day by peering through the sculpture called 'Circle of Sacred Smoke' aka 'Wind Circle' or 'Circle Wind' at Devils Tower, one of the most famous rock monoliths in the US. The 'Circle,' sculpted by Japanese artist Junkyu Muto and installed in 2008, is the third of seven 'peace sculptures' placed around the world. Twelve feet high and made of white marble, it's intended to evoke a puff of smoke from a Native American ceremonial pipe.
 > 
-> 
+> Devils Tower is a majestic Wyoming butte considered sacred by Indigenous tribes of the Great Plains like the Cheyenne, Crow, Lakota, and Kiowa. In myth, Devils Tower is associated not with the devil but with a great bear: Crow and Cheyenne names for it translate to Bear's House, Bear's Lodge, or Bear's Lair. The vertical grooves in the tower are said to be the bear's claw marks.
 > 
 > 
 
 </details>
 
-| ![加尔达湖附近的瓦伦蒂诺大坝](https://cn.bing.com/th?id=OHR.ValvestinoDam_ZH-CN8397604653_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![加尔达湖附近的瓦伦蒂诺大坝](https://cn.bing.com/th?id=OHR.ValvestinoDam_ZH-CN8397604653_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.SacredSmoke_EN-US7047459944_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.SacredSmoke_EN-US7047459944_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ValvestinoDam_ZH-CN8397604653_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ValvestinoDam_ZH-CN8397604653_1080x1920.jpg) |t example of the diversity of the order Octopoda, which we're celebrating today on World Octopus Day. The observance comes around, appropriately, every Oct 8.
-> 
-> The more we learn about octopuses, the more fascinating they reveal themselves to be. They're among the most intelligent and behaviorally diverse creatures in the sea. Octopuses can remember and recognize individual humans and are among the very few animals known to be able to use tools. Some, like the giant Pacific octopus, are enormous, and some are tiny. They live in a variety of habitats, from tidal pools to the deepest abyss of the ocean.
-> 
-> In the darkness where they live, glass octopuses are nearly invisible, which helps them elude predators like bottlenose whales. Only their eyes give them away. The species is relatively small, with a mantle (the bulbous 'head' that houses the animal's organs) about 4 inches long and a total length of about 18 inches. And their lives, like those of most octopus species, are brief—just a few years. They grow quickly, mature early, reproduce, and die soon after that, never seeing the light of day.
-
-</details>
-
-| ![World Octopus Day](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Octopus Day](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_1080x1920.jpg) |[Download portrait 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg) |Teacher_EN-US8819896781_1080x1920.jpg) |7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SacredSmoke_EN-US7047459944_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SacredSmoke_EN-US7047459944_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_1080x1920.jpg) |[Download portrait 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg) |Teacher_EN-US8819896781_1080x1920.jpg) |7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
 
 </details>
 
