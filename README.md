@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221017
+
+> Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Whooo is that up in that tree? Why, that's just a typical long-eared owl, sometimes called the lesser horned owl or cat owl. It's one of the most numerous owl species in the world with an estimated population between 2 million and 5.5 million long-eared owls widely distributed across the Northern Hemisphere. Our featured friend today was found in the Czech Republic, but they'll adapt to several kinds of habitats.
+> 
+> Maybe that adaptability is why they're unusually social, as far as owls go. They'll often roost together in large groups—anywhere from 20 to 100 of them may hunker down together for the winter. You might think it would be easy to see such a large group of owls, but long-eared owls are sneaky. They hide in thick cover, which makes them harder to find, especially when their feathers blend in with the surrounding branches and foliage. Early spring, before the leaves have fully returned, is the most likely time you'd catch a glimpse of a 'parliament,' or group, of long-eared owls.
+> 
+> 
+
+</details>
+
+| ![Long-eared owl in the Czech Republic](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Long-eared owl in the Czech Republic](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_1080x1920.jpg) |
+
 ### 20221016
 
 > Prince Christian Sound in southern Greenland (© Posnov/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Tortula moss, Netherlands](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tortula moss, Netherlands](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_1080x1920.jpg) |
-
-### 20221010
-
-> The 'Circle of Sacred Smoke' sculpture by Junkyu Muto frames Devils Tower in Wyoming (© Nagel Photography/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> We're celebrating Indigenous Peoples' Day by peering through the sculpture called 'Circle of Sacred Smoke' aka 'Wind Circle' or 'Circle Wind' at Devils Tower, one of the most famous rock monoliths in the US. The 'Circle,' sculpted by Japanese artist Junkyu Muto and installed in 2008, is the third of seven 'peace sculptures' placed around the world. Twelve feet high and made of white marble, it's intended to evoke a puff of smoke from a Native American ceremonial pipe.
-> 
-> Devils Tower is a majestic Wyoming butte considered sacred by Indigenous tribes of the Great Plains like the Cheyenne, Crow, Lakota, and Kiowa. In myth, Devils Tower is associated not with the devil but with a great bear: Crow and Cheyenne names for it translate to Bear's House, Bear's Lodge, or Bear's Lair. The vertical grooves in the tower are said to be the bear's claw marks.
-> 
-> 
-
-</details>
-
-| ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.SacredSmoke_EN-US7047459944_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.SacredSmoke_EN-US7047459944_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SacredSmoke_EN-US7047459944_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SacredSmoke_EN-US7047459944_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlassOctopus_EN-US6394802515_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.OberbaumBridge_EN-US6324390642_1080x1920.jpg) |[Download portrait 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg) |Teacher_EN-US8819896781_1080x1920.jpg) |7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_1080x1920.jpg) |m/th?id=OHR.OberbaumBridge_EN-US6324390642_1080x1920.jpg) |[Download portrait 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg) |Teacher_EN-US8819896781_1080x1920.jpg) |7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
 
 </details>
 
