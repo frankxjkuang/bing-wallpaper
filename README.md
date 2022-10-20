@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221018
+
+> Guggenheim Museum Bilbao, Spain (© Jeremy Horner/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Considered one of the world's most important architectural works of the past few decades, the Guggenheim Museum Bilbao celebrates its 25th anniversary today. To commemorate the event, the museum has unveiled a slogan: 'Art Inspires Future.' The museum has also released a special edition of its logo in which the characteristic Gs of the Guggenheim brand move like gears to shape the number 25. Perhaps they'll serve cake as well?
+> 
+> Designed by famed Canadian American architect Frank Gehry, the museum not only changed the skyline of Bilbao, Spain, by transforming the city's decrepit port area, it changed the entire way the city was perceived by the world. Architect Philip Johnson called it 'the greatest building of our time.' The acclaim was echoed by critic Calvin Tomkins, writing in The New Yorker, who characterized it as 'a fantastic dream ship of undulating form in a cloak of titanium.'
+> 
+> Since its opening on this day in 1997, the Guggenheim Museum Bilbao is credited with renewing the Spanish city from a gritty industrial backwater into a glitzy travel hotspot—a metamorphosis now described as the 'Bilbao effect.' Cities around the world have been attempting to repeat the formula: Hire a 'starchitect' to put a neglected locale on the cultural map, which will in turn attract more investment, prestigious brands, and tourism. Some attempts have been more successful than others, but there's no denying that Bilbao has long since arrived.
+
+</details>
+
+| ![The Guggenheim Bilbao turns 25](https://cn.bing.com/th?id=OHR.GB25Anni_EN-US8198972228_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Guggenheim Bilbao turns 25](https://cn.bing.com/th?id=OHR.GB25Anni_EN-US8198972228_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GB25Anni_EN-US8198972228_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GB25Anni_EN-US8198972228_1080x1920.jpg) |
+
 ### 20221017
 
 > Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Fossil Day](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fossil Day](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_1080x1920.jpg) |
-
-### 20221011
-
-> Wall screw-moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> You may be surprised to learn that this elegant plant dappled with water droplets is a variety of moss: Tortula muralis, better known as wall screw-moss. It's found all over the world, even in urban areas where more sensitive mosses have a hard time thriving because of dry soil and air pollution. Mosses in general are accurate monitors of air pollution—they absorb air and water, so contaminants can also be measured in their cells.
-> 
-> Wall screw-moss is just one of at least 12,000 species of moss, ancient plants that date back 450 million years. The hardy bunch has weathered climate swings for eons, capable of surviving in icy tundra or scorching desert plains. They don't have roots—instead, they absorb moisture through hairlike rhizoids (which also act as anchors) on their surface. This ability to suck in water so efficiently makes mosses among the first plants to recover from forest fires or extreme heat, spreading out to stabilize the soil and keep it hydrated for other plants.
-> 
-> How appropriate, then, that our photograph captured raindrops on the moss. This is a perfect example of what's known as macro photography, when the image is many times larger than life-size. All the better to enjoy the delicate beauty of nature.
-
-</details>
-
-| ![Tortula moss, Netherlands](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tortula moss, Netherlands](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TortulaMoss_EN-US7128071079_1080x1920.jpg) |m/th?id=OHR.OberbaumBridge_EN-US6324390642_1080x1920.jpg) |[Download portrait 4K](https://cn.bing.com/th?id=OHR.BayofBiscay_EN-US8933430968_1080x1920.jpg) |Teacher_EN-US8819896781_1080x1920.jpg) |7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_1080x1920.jpg) |1080x1920.jpg) |7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
 
 </details>
 
