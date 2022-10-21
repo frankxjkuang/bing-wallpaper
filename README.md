@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221019
+
+> Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As you glance over today's photo of the trees changing color in the Thuringian Forest in Germany, make note of the castle in the distance. That's Wartburg, a castle built in the Middle Ages that holds significance to Christians. It was the home of St. Elizabeth of Thuringia (aka St. Elizabeth of Hungary), and later, where Martin Luther translated the New Testament into German while in exile. Wartburg is the area's most popular tourist attraction and has been recognized for its quintessential medieval architecture.
+> 
+> There's some clever wordplay in the name Wartburg. 'Warte' is German for both 'watchtower' and 'wait.' Tradition suggests the castle's founder, upon seeing this forested hillside, exclaimed 'Warte, Berg—du sollst mir eine Burg tragen!' or 'Wait, mountain—you shall bear my castle!' Note the 'berg' and 'burg' in that quote, which translate to mountain and fortress, respectively. And so in the grand German tradition of mashing words together, the name Wartburg came to be.
+> 
+> If the castle isn't of interest to you, the Thuringian Forest, known as the Green Heart of Germany, has plenty of its own charm for tourists. The oldest and most popular long-distance hiking trail in Germany, the Rennsteig, runs for about 110 miles within the forest. If you're out for a hike you'll notice the general quietness of the area and fresh, unpolluted air. You may even happen upon the tiny villages that pepper the area and have a reputation for welcoming outsiders.
+
+</details>
+
+| ![Wartburg Castle overlooking Thuringian Forest in Germany](https://cn.bing.com/th?id=OHR.WartburgCastle_EN-US8283353282_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wartburg Castle overlooking Thuringian Forest in Germany](https://cn.bing.com/th?id=OHR.WartburgCastle_EN-US8283353282_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WartburgCastle_EN-US8283353282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WartburgCastle_EN-US8283353282_1080x1920.jpg) |
+
 ### 20221018
 
 > Guggenheim Museum Bilbao, Spain (© Jeremy Horner/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Alaska moose](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska moose](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_1080x1920.jpg) |
-
-### 20221012
-
-> Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)
-
-<details>
-<summary>Description</summary>
-
-> Travel back 199 million years with a trip to the Jurassic Coast World Heritage Site, a 95-mile-long stretch of coastline in southern England. This stunning fossil display is known as the Ammonite Pavement, where thousands of ammonite fossils are embedded in a limestone ledge at the west end of Monmouth Beach in Dorset. Although the ammonites look rather like snail shells, these are fossils of extinct sea creatures that are more closely related to today's octopus or squid. Britain's Natural History Museum notes that the fossil-filled ledge is unique in the world because of the sheer number and size of the ammonites: The fossils reach up to 27 inches in diameter. If you want to check them out, timing is everything—the ledge emerges at low tide, and there are more ammonites in large rocks nearby, too.
-> 
-> Today is National Fossil Day, when we celebrate the fascinating world of extinct creatures and plants. It's no coincidence that it falls during Earth Science Week: We can learn more about our planet and all living things from this visible, touchable legacy of our past.
-> 
-> 
-
-</details>
-
-| ![Fossil Day](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fossil Day](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmmoniteGraveyard_EN-US7510840532_1080x1920.jpg) |1080x1920.jpg) |7949014397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_1080x1920.jpg) |W is the brainchild of Dame Suzie Moncrieff, a sculptor who envisioned art displayed on the moving human body rather than static, dull gallery walls. She organized the first event in 1987, in the rural New Zealand area of Nelson, where she lived. Now it's held in New Zealand's capital, Wellington, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_1080x1920.jpg) |ton, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
 
 </details>
 
