@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221020
+
+> Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Is there another animal that has as coveted a life as the sloth? Your answer depends on how highly you rate the ability to just laze around all day, but in honor of International Sloth Day, let's all just embrace slothfulness. If you want to live the sloth life, head outside and hang upside down in the nearest tree. You won't be able to dangle there as long as a sloth though, because they spend most of their lives doing it. Their arms, legs, hands, and feet evolved for literally 'hanging around' like the pair of Hoffmann's two-toed sloths in today's photo.
+> 
+> Two-toed sloths might be better named as two-fingered: They have three toes on their hind legs. Even still, two-toed and three-toed sloths are distantly related, despite a shared preference for living the slow life in rainforests. The mother and child in today's photo are chilling together in a coastal town of Costa Rica. They won't be together forever, though, as part of the sloth's 'best life' is living alone. Adult sloths rarely interact with one another—though sometimes females will get together and, assumedly, hang out.
+> 
+> 
+
+</details>
+
+| ![International Sloth Day](https://cn.bing.com/th?id=OHR.SlothDay_EN-US8418438094_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Sloth Day](https://cn.bing.com/th?id=OHR.SlothDay_EN-US8418438094_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SlothDay_EN-US8418438094_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SlothDay_EN-US8418438094_1080x1920.jpg) |
+
 ### 20221019
 
 > Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)
@@ -112,32 +131,7 @@
 
 | ![Río Arazas in Ordesa y Monte Perdido National Park, Spain](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Río Arazas in Ordesa y Monte Perdido National Park, Spain](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_1080x1920.jpg) |
-
-### 20221013
-
-> Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> After months of eating, roaming, and avoiding predators, Alaska moose spend autumn trying to propagate the species during what is called the rutting season, which runs from late September to early October. Males, called bulls, will mark their scent on trees to attract females. They’ll also fight other bulls for access to females, called cows.
-> 
-> Fights between bulls can sometimes be fatal, and occasionally a bull will have to wait until next year's rut to mate if it loses a fight. Virtually all cows have only one mate per year, but bulls can mate with 25 cows over a 12-month period.
-> 
-> 
-
-</details>
-
-| ![Alaska moose](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska moose](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlaskaMoose_EN-US7632880778_1080x1920.jpg) |ton, and it's become a worldwide phenomenon, with 103 designers from around the globe delighting audiences this year.
-
-</details>
-
-| ![World of WearableArt Awards](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World of WearableArt Awards](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_1080x1920.jpg) |M. Foster Bridge in Cabot, Vermont](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_1080x1920.jpg) |M. Foster Bridge in Cabot, Vermont](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_1080x1920.jpg) |//cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Upper Geyser Basin, Yellowstone National Park](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
