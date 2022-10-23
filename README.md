@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221021
+
+> Cypress trees in autumn, Georgia (© Chris Moore/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Fall foliage is the hallmark of autumn, when thoughts turn to flannel and corduroy, pumpkin spice and s'mores. Sunny days and crisp nights invite us to step outside to enjoy the changing colors of the leaves. While some may consider the maples of New England the leaf-peeping gold standard, others would give the prize to the aspens of the Rocky Mountains or the cypress trees of the South.
+> 
+> These bald cypress trees in Georgia turn brilliant shades of gold, orange, and crimson that rival their northern competitors. Most varieties of cypress are evergreen, but bald cypresses are deciduous—their lacy needles turn this vibrant copper color in autumn and fall in winter, then the trees grow a new set of needles in the spring. Bald cypresses are native to the southeastern US and flourish in the Mississippi River basin along the Gulf Coast. They're a familiar sight in the bayous of Louisiana and also grow in the coastal plains of the mid-Atlantic. Bald cypresses thrive in wet conditions like riverbanks and swamps. Commonly reaching well over 100 feet tall, these slow growers provide important habitat for amphibians, fish, and birds, and they protect coastlines from erosion and flooding. If you're in the area this time of year, head to the swamp to see the autumn display before the gentle giants shed their fall outfits.
+> 
+> 
+
+</details>
+
+| ![Bald cypress trees in Georgia](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bald cypress trees in Georgia](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_1080x1920.jpg) |
+
 ### 20221020
 
 > Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
@@ -112,28 +131,7 @@
 
 | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_1080x1920.jpg) |
-
-### 20221014
-
-> Waterfall on the Río Arazas in Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)
-
-<details>
-<summary>Description</summary>
-
-> Striking in any season, but particularly beautiful in years when the warmth of summer stretches into fall, the Pyrenees have served as a natural border between the Iberian Peninsula and the rest of Europe since the earliest civilizations took root there. Located in the center of the range, Ordesa y Monte Perdido National Park was created in 1918 and expanded in 1982. Today it is a UNESCO World Heritage Site.
-> 
-> Boasting sheer cliffs and deep, verdant valleys, the park is a photographer's dream, with a landscape defined by dramatic geological landforms and diverse ecosystems shaped by the drastic elevation changes of the Pyrenees. The region is home to several species that can only be found here, including the Pyrenean chamois and the Pyrenean desman, or water mole. The mammal considered the most rare and important in the region, the bucardo or Pyrenean ibex, went extinct in January 2000 despite preservation efforts.
-> 
-> 
-
-</details>
-
-| ![Río Arazas in Ordesa y Monte Perdido National Park, Spain](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Río Arazas in Ordesa y Monte Perdido National Park, Spain](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RioArazas_EN-US7767502808_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_1080x1920.jpg) |M. Foster Bridge in Cabot, Vermont](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_1080x1920.jpg) |//cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Upper Geyser Basin, Yellowstone National Park](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_1080x1920.jpg) |ge_EN-US7763700078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_1080x1920.jpg) |//cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Upper Geyser Basin, Yellowstone National Park](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.SusitnaRiver_EN-US7154675950_1080x1920.jpg) |d=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg) |.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
