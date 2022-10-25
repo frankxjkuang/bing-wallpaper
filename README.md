@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221023
+
+> Mute swan in Valkenhorst Nature Reserve, near Valkenswaard, the Netherlands (© David Pattyn/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> The mute swan is a symbol of beauty and elegance, thanks in no small part to the beloved fairy tale 'The Ugly Duckling,' about an awkward and unsightly duckling who upon growing up discovers he is actually a swan. The proverbial story is often used as a lesson in transformation and the relative nature of beauty. One glance at this swan, seen here holding a feather in a nature preserve in the Netherlands, and it's easy to see how the idiom 'graceful as a swan' came about.
+> 
+> Mute swans are native to Europe and an introduced species in North America. Despite their name, mute swans do make sounds, although they tend to be less vocal than other swan species. The misnomer is also the source of the phrase 'swan song,' which refers to the final act or performance of a long career. Long ago, it was believed that swans sang a beautiful song shortly before their death after a lifetime of silence.
+> 
+> 
+
+</details>
+
+| ![Mute swan](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mute swan](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_1080x1920.jpg) |
+
 ### 20221022
 
 > Karst mountains in Guilin and Lijiang River National Park, China (© Sean Pavone/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Long-eared owl in the Czech Republic](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Long-eared owl in the Czech Republic](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_1080x1920.jpg) |
-
-### 20221016
-
-> Prince Christian Sound in southern Greenland (© Posnov/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The sheer size of Greenland is hard to put in perspective. The world's largest island is more than 836,000 square miles—that's more than three times the size of Texas and 170,000 square miles larger than Alaska. It is a land of deep fjords and thick ice that must have made the Norse explorers feel right at home when they landed there a thousand years ago.
-> 
-> Today we find ourselves at the southern tip of Greenland, in Prince Christian Sound, a fjord system 60 miles long, at times as narrow as 1,500 feet across. It flows through steep canyons of granite with slopes rising 1,200 feet above the water. The placid calm of these waters is frequently disrupted by calving glaciers, breaching whales, and the cruise ships that visit the region. The only human habitation in this frozen landscape is the Inuit village of Aappilattoq, home to about 100 people.
-> 
-> 
-
-</details>
-
-| ![Prince Christian Sound in southern Greenland](https://cn.bing.com/th?id=OHR.PrinceChristianSound_EN-US8033823843_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Prince Christian Sound in southern Greenland](https://cn.bing.com/th?id=OHR.PrinceChristianSound_EN-US8033823843_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrinceChristianSound_EN-US8033823843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrinceChristianSound_EN-US8033823843_1080x1920.jpg) |sty from 522-330 BCE. Naqsh-e Rostam is also home to relief carvings depicting kings of the later Sasanian Empire, the last Iranian empire before the Muslim conquests of the 7th and 8th centuries. Only a few hundred yards away is the archaeological site known as Naqsh-e Rajab, with more rock carvings depicting three Sassanid kings and a high priest. While these civilizations have faded, what they created endures as a permanent record of human history.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_1080x1920.jpg) |823843_1080x1920.jpg) |sty from 522-330 BCE. Naqsh-e Rostam is also home to relief carvings depicting kings of the later Sasanian Empire, the last Iranian empire before the Muslim conquests of the 7th and 8th centuries. Only a few hundred yards away is the archaeological site known as Naqsh-e Rajab, with more rock carvings depicting three Sassanid kings and a high priest. While these civilizations have faded, what they created endures as a permanent record of human history.
 > 
 > 
 
