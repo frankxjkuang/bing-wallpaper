@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221024
+
+> Oil lamps arranged on a rangoli to celebrate Diwali in Guwahati, India (© Biju Boro/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The oil lamps called 'diyas' have been lit for Diwali, the Festival of Lights, in Guwahati, India. Diwali is a five-day celebration of the symbolic victory of light over darkness, good over evil, and knowledge over ignorance. Diyas are a traditional symbol of the festival, and they are arranged on a rangoli, a colorful pattern made on the floor using dried rice flour, colored powdered stone, flower petals, or other colorings. Rangoli designs are more than just attractive—they're believed to attract Lakshmi, the Hindu goddess of wealth and prosperity. Each day of the festival has its own significance, but day three—called Lakshmi Puja—is considered the main event. To prepare for Lakshmi Puja, people clean their homes to welcome Lakshmi's blessings of prosperity and happiness. A rangoli design is created near the entrance to a home or building, and families pass down traditional designs from generation to generation.
+> 
+> Diwali is one of the most important festivals of the Hindu faith, though it is also embraced by Sikhs, Jains, and even some Buddhists. Lamps are lit in homes, temples, and markets, and you'll spot hanging lanterns illuminating just about any public space.
+> 
+> 
+
+</details>
+
+| ![Diwali lights in Guwahati, India](https://cn.bing.com/th?id=OHR.GuwahatiDiwali_EN-US3454357880_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Diwali lights in Guwahati, India](https://cn.bing.com/th?id=OHR.GuwahatiDiwali_EN-US3454357880_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GuwahatiDiwali_EN-US3454357880_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuwahatiDiwali_EN-US3454357880_1080x1920.jpg) |
+
 ### 20221023
 
 > Mute swan in Valkenhorst Nature Reserve, near Valkenswaard, the Netherlands (© David Pattyn/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![The Guggenheim Bilbao turns 25](https://cn.bing.com/th?id=OHR.GB25Anni_EN-US8198972228_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Guggenheim Bilbao turns 25](https://cn.bing.com/th?id=OHR.GB25Anni_EN-US8198972228_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GB25Anni_EN-US8198972228_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GB25Anni_EN-US8198972228_1080x1920.jpg) |
-
-### 20221017
-
-> Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Whooo is that up in that tree? Why, that's just a typical long-eared owl, sometimes called the lesser horned owl or cat owl. It's one of the most numerous owl species in the world with an estimated population between 2 million and 5.5 million long-eared owls widely distributed across the Northern Hemisphere. Our featured friend today was found in the Czech Republic, but they'll adapt to several kinds of habitats.
-> 
-> Maybe that adaptability is why they're unusually social, as far as owls go. They'll often roost together in large groups—anywhere from 20 to 100 of them may hunker down together for the winter. You might think it would be easy to see such a large group of owls, but long-eared owls are sneaky. They hide in thick cover, which makes them harder to find, especially when their feathers blend in with the surrounding branches and foliage. Early spring, before the leaves have fully returned, is the most likely time you'd catch a glimpse of a 'parliament,' or group, of long-eared owls.
-> 
-> 
-
-</details>
-
-| ![Long-eared owl in the Czech Republic](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Long-eared owl in the Czech Republic](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwedenOwl_EN-US8107135630_1080x1920.jpg) |823843_1080x1920.jpg) |sty from 522-330 BCE. Naqsh-e Rostam is also home to relief carvings depicting kings of the later Sasanian Empire, the last Iranian empire before the Muslim conquests of the 7th and 8th centuries. Only a few hundred yards away is the archaeological site known as Naqsh-e Rajab, with more rock carvings depicting three Sassanid kings and a high priest. While these civilizations have faded, what they created endures as a permanent record of human history.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GB25Anni_EN-US8198972228_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GB25Anni_EN-US8198972228_1080x1920.jpg) | and 8th centuries. Only a few hundred yards away is the archaeological site known as Naqsh-e Rajab, with more rock carvings depicting three Sassanid kings and a high priest. While these civilizations have faded, what they created endures as a permanent record of human history.
 > 
 > 
 
