@@ -2,12 +2,12 @@
 
 ### 20221026
 
-> 巴尔干中央国家公园的布罗肯现象，保加利亚 (© Maya Karkalicheva/Getty Images)
+> Brocken spectre in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 万圣节快到了，今天的照片也非常应景，展示了一只“幽灵”，也就是布罗肯现象。尽管看着灵异，但布罗肯现象并非超自然现象。这是一位观察者被投射在阳光对面云层上的阴影。布罗肯现象很少见，但如果你在黎明时分爬上薄雾弥漫的山坡，则有可能幸运地目睹这种现象。只要满足条件，布罗肯现象可以出现在任何地方。在德国哈尔茨山脉的布罗肯峰，当地传说浓雾弥漫的山间有幽灵出没。1780年，约翰·西尔伯施拉格在此观察到了“幽灵”，对其进行了描述记录，并将其命名为“布罗肯现象”。此后，布罗肯现象便常常被记录在有关该地区的文献之中。
+> With Halloween around the corner, we present the ghostly image of a Brocken spectre. Despite appearances and the season, there's nothing paranormal about a Brocken spectre. It's the magnified shadow of an observer cast in midair upon a cloud opposite a strong light source. Brocken spectres are rare but climb a mountain at dawn up to the misty slopes and you may be fortunate enough to witness the effect. The spectre, also known as a Brocken bow, mountain spectre, or spectre of the Brocken, can appear anywhere in which conditions are right—like here in the Balkans of Bulgaria. But it's the thick fogs of the Brocken, a peak in the Harz Mountains in Germany, from which the phenomenon draws its name.
 > 
 > 
 > 
@@ -15,136 +15,123 @@
 
 </details>
 
-| ![巴尔干中央国家公园的布罗肯现象](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![巴尔干中央国家公园的布罗肯现象](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Brocken spectre in Central Balkan National Park, Bulgaria](https://cn.bing.com/th?id=OHR.BrockenSpecter_EN-US5247366251_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Brocken spectre in Central Balkan National Park, Bulgaria](https://cn.bing.com/th?id=OHR.BrockenSpecter_EN-US5247366251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_EN-US5247366251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_EN-US5247366251_1080x1920.jpg) |
 
 ### 20221025
 
-> 怪物公园里的奥库斯雕像, 意大利博马尔佐花园 (© Scott Wilson/Alamy)
+> Orcus sculpture in the Gardens of Bomarzo in Bomarzo, Italy (© Scott Wilson/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 万圣节前夕，跟我们一起前往位于罗马西北方向60英里处的一个意大利小镇。我们将带你去博马尔佐，那里有一个曾被遗忘的16世纪花园，里面陈列着巨大的雕像，绝对惊险刺激。在这张照片中，奥库斯黑洞洞的大嘴给人一种被吞入深渊的感觉，奥库斯是罗马的冥界之神，也是违背誓言的惩罚者。这座怪物公园里还有其他诡异怪诞的雕像，如龙被群狮攻击，巨人撕碎人，汉尼拔的大象抓走罗马士兵。这些雕像已有500年的历史，但它们仍然让人们发自内心感到恐惧，这或许就是这座公园的本意。16世纪博马尔佐的欧斯尼公爵在痛失爱妻后，委托人建造了这座公园。
+> Join us for a pre-Halloween trip to a small Italian town about 60 miles northwest of Rome. We're taking you to Bomarzo, where a once-forgotten 16th-century garden holds monstrous sculptures that are meant to evoke anything but pleasure. In our photo, 'The Mouth of Orcus,' a Roman god of the underworld and punisher of broken oaths, gives visitors the feeling of being swallowed into the abyss. During a visit to the Parco dei Mostri (Park of the Monsters), as it's known, you'll come across other grotesque sights such as a dragon being attacked by lions, a giant shredding a man, and Hannibal's elephant snatching a Roman soldier.
 > 
-> 
+> Nearly 500 years after their creation, the grotesque figures still evoke a feeling of horror, perhaps as they were always meant to do. They were commissioned by Bomarzo's Duke Vicino Orsini as a way to cope with his grief upon the death of his wife.
 > 
 > 
 
 </details>
 
-| ![怪物公园，博马尔佐，意大利](https://cn.bing.com/th?id=OHR.OrcusMouth_ZH-CN7303142999_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![怪物公园，博马尔佐，意大利](https://cn.bing.com/th?id=OHR.OrcusMouth_ZH-CN7303142999_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| !['Park of the Monsters,' Bomarzo, Italy](https://cn.bing.com/th?id=OHR.OrcusMouth_EN-US5010597701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | !['Park of the Monsters,' Bomarzo, Italy](https://cn.bing.com/th?id=OHR.OrcusMouth_EN-US5010597701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrcusMouth_ZH-CN7303142999_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrcusMouth_ZH-CN7303142999_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrcusMouth_EN-US5010597701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrcusMouth_EN-US5010597701_1080x1920.jpg) |
 
 ### 20221024
 
-> 玛利恩堡，德国莱茵兰-普法尔茨州采尔县附近 (© Eiben, Hans Georg/Alamy)
+> Oil lamps arranged on a rangoli to celebrate Diwali in Guwahati, India (© Biju Boro/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 玛利恩堡（Festung Marienberg）是德国维尔茨堡美因河畔的一座城堡，它是维尔茨堡的象征，作为王子主教的家近5个世纪。自古以来这里就是一个要塞。在1631年瑞典古斯塔夫二世·阿道夫征服该地区后，城堡被重新改建为巴洛克式堡垒。如今，它是一个公园和博物馆。
+> The oil lamps called 'diyas' have been lit for Diwali, the Festival of Lights, in Guwahati, India. Diwali is a five-day celebration of the symbolic victory of light over darkness, good over evil, and knowledge over ignorance. Diyas are a traditional symbol of the festival, and they are arranged on a rangoli, a colorful pattern made on the floor using dried rice flour, colored powdered stone, flower petals, or other colorings. Rangoli designs are more than just attractive—they're believed to attract Lakshmi, the Hindu goddess of wealth and prosperity. Each day of the festival has its own significance, but day three—called Lakshmi Puja—is considered the main event. To prepare for Lakshmi Puja, people clean their homes to welcome Lakshmi's blessings of prosperity and happiness. A rangoli design is created near the entrance to a home or building, and families pass down traditional designs from generation to generation.
 > 
-> 莱茵兰-普法尔茨州 （Rheinland-Pfalz） 德国西部的州。大部分地区在莱茵河之西，其西与比利时、卢森堡和法国接壤。面积1，9845.8平方公里。人口363.3万（1983）。首府美因茨。全区由莱茵谷地及高原组成，海拔450-750米，成西南-东北走向。冬寒夏凉，雨量较丰。高地以草地森林为主。饲养牛、羊和发展乳酪业。
+> Diwali is one of the most important festivals of the Hindu faith, though it is also embraced by Sikhs, Jains, and even some Buddhists. Lamps are lit in homes, temples, and markets, and you'll spot hanging lanterns illuminating just about any public space.
 > 
 > 
 
 </details>
 
-| ![玛利恩堡，德国莱茵兰](https://cn.bing.com/th?id=OHR.MarienburgZell_ZH-CN4562312386_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![玛利恩堡，德国莱茵兰](https://cn.bing.com/th?id=OHR.MarienburgZell_ZH-CN4562312386_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Diwali lights in Guwahati, India](https://cn.bing.com/th?id=OHR.GuwahatiDiwali_EN-US3454357880_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Diwali lights in Guwahati, India](https://cn.bing.com/th?id=OHR.GuwahatiDiwali_EN-US3454357880_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarienburgZell_ZH-CN4562312386_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarienburgZell_ZH-CN4562312386_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GuwahatiDiwali_EN-US3454357880_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuwahatiDiwali_EN-US3454357880_1080x1920.jpg) |
 
 ### 20221023
 
-> 疣鼻天鹅，荷兰瓦尔肯霍斯特自然保护区 (© David Pattyn/Minden Pictures)
+> Mute swan in Valkenhorst Nature Reserve, near Valkenswaard, the Netherlands (© David Pattyn/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 疣鼻天鹅之所以成为美丽和优雅的象征，在很大程度上要归功于深受喜爱的童话故事《丑小鸭》。故事讲述了一只笨拙丑陋的鸭子，长大后发现自己是一只美丽的白天鹅。这个众所周知的故事经常被用于探讨成长蜕变和美的本质。当你在荷兰的自然保护区看到这只衔着羽毛的白天鹅，就不难明白为什么大家常说“像天鹅一样优雅”了。
+> The mute swan is a symbol of beauty and elegance, thanks in no small part to the beloved fairy tale 'The Ugly Duckling,' about an awkward and unsightly duckling who upon growing up discovers he is actually a swan. The proverbial story is often used as a lesson in transformation and the relative nature of beauty. One glance at this swan, seen here holding a feather in a nature preserve in the Netherlands, and it's easy to see how the idiom 'graceful as a swan' came about.
 > 
-> 疣鼻天鹅原产于欧洲，后面被引入北美。尽管它们英文名的字面意思是“无声天鹅”，但它们其实会发声，只是声音比其他种类的天鹅小。这个不恰当的称呼也催生了英文“swan song”一词，意为天鹅悲歌，用于指代绝笔、最后的作品。很久以前，人们相信天鹅死前会唱一首美丽的歌曲，作为对沉默一生的最后告别。
+> Mute swans are native to Europe and an introduced species in North America. Despite their name, mute swans do make sounds, although they tend to be less vocal than other swan species. The misnomer is also the source of the phrase 'swan song,' which refers to the final act or performance of a long career. Long ago, it was believed that swans sang a beautiful song shortly before their death after a lifetime of silence.
 > 
 > 
 
 </details>
 
-| ![不再是一只丑小鸭](https://cn.bing.com/th?id=OHR.Knobbelzwaan_ZH-CN4850245302_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![不再是一只丑小鸭](https://cn.bing.com/th?id=OHR.Knobbelzwaan_ZH-CN4850245302_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Mute swan](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mute swan](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Knobbelzwaan_ZH-CN4850245302_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Knobbelzwaan_ZH-CN4850245302_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_1080x1920.jpg) |
 
 ### 20221022
 
-> 中国桂林漓江国家公园的喀斯特山脉 (© Sean Pavone/Alamy)
+> Karst mountains in Guilin and Lijiang River National Park, China (© Sean Pavone/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 群峰像龙牙一样穿透薄雾。这看上去像神话故事或科幻史诗里的场景，但享誉世界的中国桂林漓江风景区却是真实存在的。
+> Mountains pierce the mist like dragon's teeth in this enchanting location. Though it may look like the setting of a fantasy story or science fiction epic, the remarkable Guilin and Lijiang River National Park is quite real.
 > 
-> 桂林漓江风景区是中国最受欢迎的自然景点之一。漓江流经该地区的喀斯特地貌。喀斯特地貌赋予了这个地方与众不同的地质特征，最具代表性的是覆盖着茂盛植被的锥状山峰和奇特的地下河溶洞。
+> The park is one of the most popular natural attractions in China. The Lijiang, or Li River, flows through the region's limestone karst landscape. It's the karst that gives the area its unusual geologic features, notably the cone-like hills covered in lush greenery, but also the craggy caves below the surface.
 > 
 > 
 
 </details>
 
-| ![中国桂林漓江风景区](https://cn.bing.com/th?id=OHR.KarstMountains_ZH-CN4719178982_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![中国桂林漓江风景区](https://cn.bing.com/th?id=OHR.KarstMountains_ZH-CN4719178982_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Guilin and Lijiang River National Park, China](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Guilin and Lijiang River National Park, China](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KarstMountains_ZH-CN4719178982_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KarstMountains_ZH-CN4719178982_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_1080x1920.jpg) |
 
 ### 20221021
 
-> 秋季的落羽杉，美国佐治亚州 (© Chris Moore/Tandem Stills + Motion)
+> Cypress trees in autumn, Georgia (© Chris Moore/Tandem Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 秋叶飘落，秋天已悄然走近。在这个季节，人们会想到法兰绒和灯芯绒，想到南瓜香料和棉花糖。让我们在晴朗的白天和凉爽的夜晚走出家门，去欣赏这尽染层林吧。说到秋叶，有人认为新英格兰的枫树最美，也有人认为洛基山脉的白杨或美国南部的柏树才是最佳。
+> Fall foliage is the hallmark of autumn, when thoughts turn to flannel and corduroy, pumpkin spice and s'mores. Sunny days and crisp nights invite us to step outside to enjoy the changing colors of the leaves. While some may consider the maples of New England the leaf-peeping gold standard, others would give the prize to the aspens of the Rocky Mountains or the cypress trees of the South.
 > 
-> 秋天，乔治亚州的落羽杉披上了灿烂的金色、橙色和深红色。大部分柏树的叶子是四季常青的，但落羽杉的树叶却是会掉的。落羽杉的羽毛状叶片在秋天变成红棕色，在冬天落下，然后在春天长出新的针叶。落羽杉原产于美国东南部，在墨西哥湾沿岸的密西西比河流域茂盛生长。它们在路易斯安那州的海湾很常见，也生长在大西洋中部的沿海平原，比如今天照片中这片绚丽的小树林。落羽杉在河岸和沼泽等潮湿环境中茁壮成长。它们生长缓慢，却能长到100英尺以上，为两栖动物、鱼类和鸟类提供了重要的栖息地，并保护海岸线免受侵蚀。如果你在这个季节来到乔治亚州，请在落羽杉落叶前，去欣赏它带来的秋日美景吧。
+> These bald cypress trees in Georgia turn brilliant shades of gold, orange, and crimson that rival their northern competitors. Most varieties of cypress are evergreen, but bald cypresses are deciduous—their lacy needles turn this vibrant copper color in autumn and fall in winter, then the trees grow a new set of needles in the spring. Bald cypresses are native to the southeastern US and flourish in the Mississippi River basin along the Gulf Coast. They're a familiar sight in the bayous of Louisiana and also grow in the coastal plains of the mid-Atlantic. Bald cypresses thrive in wet conditions like riverbanks and swamps. Commonly reaching well over 100 feet tall, these slow growers provide important habitat for amphibians, fish, and birds, and they protect coastlines from erosion and flooding. If you're in the area this time of year, head to the swamp to see the autumn display before the gentle giants shed their fall outfits.
 > 
 > 
 
 </details>
 
-| ![落羽杉，美国佐治亚州](https://cn.bing.com/th?id=OHR.GeorgiaCypress_ZH-CN3705257154_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![落羽杉，美国佐治亚州](https://cn.bing.com/th?id=OHR.GeorgiaCypress_ZH-CN3705257154_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Bald cypress trees in Georgia](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bald cypress trees in Georgia](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_ZH-CN3705257154_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_ZH-CN3705257154_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_1080x1920.jpg) |
 
 ### 20221020
 
-> 塔拉曼卡旧港的霍氏树懒母子，哥斯达黎加 (© Suzi Eszterhas/Minden Pictures)
+> Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 今天是国际树懒日，让我们都慢下来，感受下树懒整日懒洋洋的生活吧。如果你想实际体验下，可以去外面找一棵树，把自己倒挂上去。不过你可没法像树懒一样一直挂在那里，因为它们一生中的大部分时间都在做这件事。他们的胳膊、腿、手和脚都进化得适应悬挂，就像今天照片中的这两只霍氏树懒。
+> Is there another animal that has as coveted a life as the sloth? Your answer depends on how highly you rate the ability to just laze around all day, but in honor of International Sloth Day, let's all just embrace slothfulness. If you want to live the sloth life, head outside and hang upside down in the nearest tree. You won't be able to dangle there as long as a sloth though, because they spend most of their lives doing it. Their arms, legs, hands, and feet evolved for literally 'hanging around' like the pair of Hoffmann's two-toed sloths in today's photo.
 > 
-> 霍氏树懒属于二趾树懒，说是“二趾”，但其实是“二指”：它们的双臂（前足）仅有二趾，但后足上有三趾。尽管同在热带雨林中享受慢生活，两趾树懒和三趾树懒却是远亲。今天这张照片拍摄于哥斯达黎加的一个海边小镇。照片中的母子俩虽然亲密，但它们不会永远在一起，因为树懒“最好的生活”就是独居。成年树懒很少和别的树懒打交道，不过，有时候雌性树懒会在一起挂着玩。
+> Two-toed sloths might be better named as two-fingered: They have three toes on their hind legs. Even still, two-toed and three-toed sloths are distantly related, despite a shared preference for living the slow life in rainforests. The mother and child in today's photo are chilling together in a coastal town of Costa Rica. They won't be together forever, though, as part of the sloth's 'best life' is living alone. Adult sloths rarely interact with one another—though sometimes females will get together and, assumedly, hang out.
 > 
 > 
 
 </details>
 
-| ![国际树懒日](https://cn.bing.com/th?id=OHR.SlothDay_ZH-CN4945330735_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际树懒日](https://cn.bing.com/th?id=OHR.SlothDay_ZH-CN4945330735_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Sloth Day](https://cn.bing.com/th?id=OHR.SlothDay_EN-US8418438094_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Sloth Day](https://cn.bing.com/th?id=OHR.SlothDay_EN-US8418438094_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SlothDay_ZH-CN4945330735_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SlothDay_ZH-CN4945330735_1080x1920.jpg) |R.WartburgCastle_EN-US8283353282_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WartburgCastle_EN-US8283353282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WartburgCastle_EN-US8283353282_1080x1920.jpg) |
-
-### 20221018
-
-> Guggenheim Museum Bilbao, Spain (© Jeremy Horner/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Considered one of the world's most important architectural works of the past few decades, the Guggenheim Museum Bilbao celebrates its 25th anniversary today. To commemorate the event, the museum has unveiled a slogan: 'Art Inspires Future.' The museum has also released a special edition of its logo in which the characteristic Gs of the Guggenheim brand move like gears to shape the number 25. Perhaps they'll serve cake as well?
-> 
-> Designed by famed Canadian American architect Frank Gehry, the museum not only changed the skyline of Bilbao, Spain, by transforming the city's decrepit port area, it changed the entire way the city was perceived by the world. Architect Philip Johnson called it 'the greatest building of our time.' The acclaim was echoed by critic Calvin Tomkins, writing in The New Yorker, who characterized it as 'a fantastic dream ship of undulating form in a cloak of titanium.'
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SlothDay_EN-US8418438094_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SlothDay_EN-US8418438094_1080x1920.jpg) | Philip Johnson called it 'the greatest building of our time.' The acclaim was echoed by critic Calvin Tomkins, writing in The New Yorker, who characterized it as 'a fantastic dream ship of undulating form in a cloak of titanium.'
 > 
 > Since its opening on this day in 1997, the Guggenheim Museum Bilbao is credited with renewing the Spanish city from a gritty industrial backwater into a glitzy travel hotspot—a metamorphosis now described as the 'Bilbao effect.' Cities around the world have been attempting to repeat the formula: Hire a 'starchitect' to put a neglected locale on the cultural map, which will in turn attract more investment, prestigious brands, and tourism. Some attempts have been more successful than others, but there's no denying that Bilbao has long since arrived.
 
