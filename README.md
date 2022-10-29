@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221027
+
+> Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Beneath Venice's Ponte dei Sospiri (Bridge of Sighs) is a popular place to kiss your beloved as a gondolier guides you through the city's canals. But the sighs that the name refers to aren't from staring into your darling's eyes. The enclosed bridge, completed in 1600, connects the Prigioni Nuove (New Prison) to the interrogation rooms in the Doge's Palace, and it is said that a prisoner's last look at beautiful Venice would be from that bridge. And that's reason enough to sigh indeed.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Bridge of Sighs in Venice, Italy](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bridge of Sighs in Venice, Italy](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_1080x1920.jpg) |
+
 ### 20221026
 
 > Brocken spectre in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)
@@ -112,18 +131,7 @@
 
 | ![Bald cypress trees in Georgia](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bald cypress trees in Georgia](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_1080x1920.jpg) |
-
-### 20221020
-
-> Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Is there another animal that has as coveted a life as the sloth? Your answer depends on how highly you rate the ability to just laze around all day, but in honor of International Sloth Day, let's all just embrace slothfulness. If you want to live the sloth life, head outside and hang upside down in the nearest tree. You won't be able to dangle there as long as a sloth though, because they spend most of their lives doing it. Their arms, legs, hands, and feet evolved for literally 'hanging around' like the pair of Hoffmann's two-toed sloths in today's photo.
-> 
-> Two-toed sloths might be better named as two-fingered: They have three toes on their hind legs. Even still, two-toed and three-toed sloths are distantly related, despite a shared preference for living the slow life in rainforests. The mother and child in today's photo are chilling together in a coastal town of Costa Rica. They won't be together forever, though, as part of the sloth's 'best life' is living alone. Adult sloths rarely interact with one another—though sometimes females will get together and, assumedly, hang out.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_1080x1920.jpg) |'best life' is living alone. Adult sloths rarely interact with one another—though sometimes females will get together and, assumedly, hang out.
 > 
 > 
 
