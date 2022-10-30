@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221028
+
+> Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> If the sight of storm clouds gathering over Lake Geneva puts you in a dark mood, then you have an idea of Mary Shelley's frame of mind when she conceived the story that would become her seminal work. While Shelley wrote several historical novels and travel books, it was this macabre story of a grotesque creature that made her legacy.
+> 
+> Today and every final Friday of October is Frankenstein Friday, a celebration of Shelley's 1818 novel about a doctor who reanimates the dead—a tale of terror that many also think of as the first science fiction novel.  Shelley concocted the concept for 'Frankenstein' (aka 'The Modern Prometheus') at Lake Geneva in the northern Alps on the French-Swiss border. She spent an unusually cold and wet summer there in 1816 with her future husband, Percy Bysshe Shelley, and Lord Byron, both poets. Confined indoors, the group challenged one another to come up with ghost stories. Mary Shelley quickly wrote the short story that would become 'Frankenstein,' inspired in no small part by the gloom and chill of Lake Geneva on one dark and stormy night.
+> 
+> 
+
+</details>
+
+| ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_1080x1920.jpg) |
+
 ### 20221027
 
 > Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)
@@ -112,24 +131,7 @@
 
 | ![Guilin and Lijiang River National Park, China](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Guilin and Lijiang River National Park, China](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_1080x1920.jpg) |
-
-### 20221021
-
-> Cypress trees in autumn, Georgia (© Chris Moore/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Fall foliage is the hallmark of autumn, when thoughts turn to flannel and corduroy, pumpkin spice and s'mores. Sunny days and crisp nights invite us to step outside to enjoy the changing colors of the leaves. While some may consider the maples of New England the leaf-peeping gold standard, others would give the prize to the aspens of the Rocky Mountains or the cypress trees of the South.
-> 
-> These bald cypress trees in Georgia turn brilliant shades of gold, orange, and crimson that rival their northern competitors. Most varieties of cypress are evergreen, but bald cypresses are deciduous—their lacy needles turn this vibrant copper color in autumn and fall in winter, then the trees grow a new set of needles in the spring. Bald cypresses are native to the southeastern US and flourish in the Mississippi River basin along the Gulf Coast. They're a familiar sight in the bayous of Louisiana and also grow in the coastal plains of the mid-Atlantic. Bald cypresses thrive in wet conditions like riverbanks and swamps. Commonly reaching well over 100 feet tall, these slow growers provide important habitat for amphibians, fish, and birds, and they protect coastlines from erosion and flooding. If you're in the area this time of year, head to the swamp to see the autumn display before the gentle giants shed their fall outfits.
-> 
-> 
-
-</details>
-
-| ![Bald cypress trees in Georgia](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bald cypress trees in Georgia](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_1080x1920.jpg) |=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_1080x1920.jpg) |'best life' is living alone. Adult sloths rarely interact with one another—though sometimes females will get together and, assumedly, hang out.
 > 
