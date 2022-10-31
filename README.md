@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221029
+
+> Sea angel (© Alexander Semenov Images/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Swimming into view like an oceanic Halloween specter, today's 'sea angel' is one of about 3,000 sea slug species. Sea slugs can be found in all the oceans and seas of the world. Scientifically known as nudibranchs, sea slugs are mollusks and today is the day the world celebrates them. What, you didn't know? Perhaps that's because technically it's the birthday of the premier authority on all things related to sea slugs, Terry Gosliner. Gosliner has identified nearly half of the known sea slug species in the world, has written 150 scientific papers about them, and has personally named around 350 individual species. 'Everything about them just piques the imagination,' he says. So, we're saying 'Happy birthday, Terry' by taking a moment to examine the sea angel.
+> 
+> Sea angels are classified in six different families, and they're all remarkably small, with the largest being only about 3 inches long. They can be found anywhere from under the ice in arctic waters to tropical seas and all points in between. Gelatinous in nature, they're also mostly see-through. You see those 'wings' there in the photo? They allow the sea angel to 'fly' around in the water at about 0.22 mph, which may not seem very fast, but it's about twice as fast as its most common prey, the sea butterfly. Belying their name, these angels are ambush predators that actively attack and extract sea butterflies (technically sea snails) from their shells. Some species of sea angels emit a toxin to keep predators away, which has caused other sea creatures to carry them around as a sort of underwater pepper spray to fend off their own predators. Given this, maybe 'sea guardian angel' would be a more fitting name. Someone call Terry.
+> 
+> 
+
+</details>
+
+| ![Sea Slug Day](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Slug Day](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_1080x1920.jpg) |
+
 ### 20221028
 
 > Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)
@@ -112,36 +131,7 @@
 
 | ![Mute swan](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mute swan](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_1080x1920.jpg) |
-
-### 20221022
-
-> Karst mountains in Guilin and Lijiang River National Park, China (© Sean Pavone/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Mountains pierce the mist like dragon's teeth in this enchanting location. Though it may look like the setting of a fantasy story or science fiction epic, the remarkable Guilin and Lijiang River National Park is quite real.
-> 
-> The park is one of the most popular natural attractions in China. The Lijiang, or Li River, flows through the region's limestone karst landscape. It's the karst that gives the area its unusual geologic features, notably the cone-like hills covered in lush greenery, but also the craggy caves below the surface.
-> 
-> 
-
-</details>
-
-| ![Guilin and Lijiang River National Park, China](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Guilin and Lijiang River National Park, China](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_1080x1920.jpg) |=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_1080x1920.jpg) |'best life' is living alone. Adult sloths rarely interact with one another—though sometimes females will get together and, assumedly, hang out.
-> 
-> 
-
-</details>
-
-| ![International Sloth Day](https://cn.bing.com/th?id=OHR.SlothDay_EN-US8418438094_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Sloth Day](https://cn.bing.com/th?id=OHR.SlothDay_EN-US8418438094_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SlothDay_EN-US8418438094_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SlothDay_EN-US8418438094_1080x1920.jpg) | Philip Johnson called it 'the greatest building of our time.' The acclaim was echoed by critic Calvin Tomkins, writing in The New Yorker, who characterized it as 'a fantastic dream ship of undulating form in a cloak of titanium.'
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_1080x1920.jpg) |dulating form in a cloak of titanium.'
 > 
 > Since its opening on this day in 1997, the Guggenheim Museum Bilbao is credited with renewing the Spanish city from a gritty industrial backwater into a glitzy travel hotspot—a metamorphosis now described as the 'Bilbao effect.' Cities around the world have been attempting to repeat the formula: Hire a 'starchitect' to put a neglected locale on the cultural map, which will in turn attract more investment, prestigious brands, and tourism. Some attempts have been more successful than others, but there's no denying that Bilbao has long since arrived.
 
