@@ -1,51 +1,89 @@
 ## bing wallpaper
 
-### 20221029
+### 20221031
 
-> Sea angel (© Alexander Semenov Images/Shutterstock)
+> 牛津郡韦奇伍德森林的树，英国 (© Frederick Ardley/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Swimming into view like an oceanic Halloween specter, today's 'sea angel' is one of about 3,000 sea slug species. Sea slugs can be found in all the oceans and seas of the world. Scientifically known as nudibranchs, sea slugs are mollusks and today is the day the world celebrates them. What, you didn't know? Perhaps that's because technically it's the birthday of the premier authority on all things related to sea slugs, Terry Gosliner. Gosliner has identified nearly half of the known sea slug species in the world, has written 150 scientific papers about them, and has personally named around 350 individual species. 'Everything about them just piques the imagination,' he says. So, we're saying 'Happy birthday, Terry' by taking a moment to examine the sea angel.
+> 和鬼怪幽灵在闹鬼的森林里度过万圣节，还有比这应景的过节方式吗？今天，我们不慎闯入了韦奇伍德森林，这片森林位于英国，有很多诡异的背景故事。许多进入森林的人都声称遇到了一些无法解释的现象，例如，感觉到有一只手搭在他们的肩膀上，转过身却发现并没有人，或是乘坐马车穿过森林时，听到孩子的哭声。
 > 
-> Sea angels are classified in six different families, and they're all remarkably small, with the largest being only about 3 inches long. They can be found anywhere from under the ice in arctic waters to tropical seas and all points in between. Gelatinous in nature, they're also mostly see-through. You see those 'wings' there in the photo? They allow the sea angel to 'fly' around in the water at about 0.22 mph, which may not seem very fast, but it's about twice as fast as its most common prey, the sea butterfly. Belying their name, these angels are ambush predators that actively attack and extract sea butterflies (technically sea snails) from their shells. Some species of sea angels emit a toxin to keep predators away, which has caused other sea creatures to carry them around as a sort of underwater pepper spray to fend off their own predators. Given this, maybe 'sea guardian angel' would be a more fitting name. Someone call Terry.
+> 但是，韦奇伍德森林最令人毛骨悚然的传说，可能是艾米·罗布萨特的故事，据说她的鬼魂在森林中阴魂不散。她出生在大约500年前，是莱斯特伯爵罗伯特·达德利的第一任妻子。伯爵深受英国女王伊丽莎白一世的宠爱，甚至传闻他们之间有暧昧关系。后来，在伯爵夫妻于库姆广场租下的房屋里，艾米·罗布萨特神秘地跌落楼梯死亡，当时的伯爵正远在宫廷。这是谋杀？还是自杀？或者只是失足？直到今天，人们依然众说纷纭。
+> 
+> 传说她的鬼魂一直徘徊在楼梯脚下，尖叫着，从此莱斯特伯爵再没在那间房子里睡过。但后来的一天，当他骑马经过韦奇伍德森林时，罗布萨特的鬼魂抓住了他，并告诉他，他将在10天内死去，而他确实在10天内死了。所以，今年万圣节，或者任何一天，当你穿行于韦奇伍德森林时，请务必远离发出可怕警告的鬼魅女性。[注：这张照片经由AI处理］
+
+</details>
+
+| ![英国牛津郡韦奇伍德森林](https://cn.bing.com/th?id=OHR.WychwoodForest_ZH-CN6560180288_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![英国牛津郡韦奇伍德森林](https://cn.bing.com/th?id=OHR.WychwoodForest_ZH-CN6560180288_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WychwoodForest_ZH-CN6560180288_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WychwoodForest_ZH-CN6560180288_1080x1920.jpg) |
+
+### 20221030
+
+> 哈德逊湾边缘的北极熊，加拿大 (© Sean Crane/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> 陆地上最大的食肉动物漫步在冰天雪地的北极。北极熊一生中大部分时间都是在海冰上度过，跟踪它们最喜欢的猎物——海豹。极好的御寒能力使北极熊特别适合在冰上生活，因此它们也特别容易受到全球变暖的影响。北极熊的生存困境成为每年11月第一周“北极熊周”的焦点，让人们得以关注到这些生活在大多数人视线之外的动物。
+> 
+> 北极熊生活在格陵兰岛、挪威、俄罗斯、阿拉斯加和加拿大的部分地区。加拿大的大部分北极熊都生活在广阔的哈德逊湾附近。今天的照片拍摄于海豹河三角洲附近。随着夏季结束，几个月来一直靠脂肪储备生活的北极熊聚集在哈德逊湾沿岸，等待着冰层的形成，以便狩猎。由于气候变化，夏季的无冰期变长，缩短了北极熊的狩猎季节，增加了人与北极熊相遇的可能性。虽然这看似对北极观熊观察者来说是个好消息，但站在保护北极熊的角度，人类最好还是从远处观察这些海上巨兽吧。
 > 
 > 
 
 </details>
 
-| ![Sea Slug Day](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Slug Day](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![北极熊周](https://cn.bing.com/th?id=OHR.SealRiver_ZH-CN6334858649_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![北极熊周](https://cn.bing.com/th?id=OHR.SealRiver_ZH-CN6334858649_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_ZH-CN6334858649_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_ZH-CN6334858649_1080x1920.jpg) |
+
+### 20221029
+
+> 海洋天使 (© Alexander Semenov Images/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> 像万圣节的幽灵一样漂在海中，今天照片里的“海洋天使”是目前已知的大约3000种海蛞蝓中的一种。海蛞蝓广泛分布于世界各地的海域中，是一种软体动物。今天，是国际海蛞蝓日，也是海蛞蝓的第一权威专家特里·戈斯兰纳的生日。他发现了全球近一半的海蛞蝓种类，写了150篇有关海蛞蝓的学术论文，并亲自命名了大约350种海蛞蝓。今天，让我们把目光聚焦在海洋天使身上的同时，也对特里说一声“生日快乐”吧！
+> 
+> 海洋天使被分为六个不同的家族，它们都非常小，最大的只有约3英寸长。从北极到热带，世界各个海域中都有它们的身影。它们的身体呈胶状，几乎透明。你看到照片上这双“翅膀”了吗？海洋天使凭借这双“翅膀”，能以每小时0.22英里的速度在海里“飞行”。这速度可能不快，但已经是海蛞蝓最常见的猎物——海蝴蝶的两倍了。尽管名叫海洋天使，但这些天使是捕食者，它们会主动攻击并把海蝴蝶（严格来说是海蜗牛）从壳中取出。有些种类的海洋天使还会释放一种毒素来驱赶捕食者，这使得其他海洋生物经常会拿它们当“水下胡椒喷雾”，用来抵御自己的捕食者。这么说来，也许叫它们“海洋守护天使”更合适。
+> 
+> 
+
+</details>
+
+| ![国际海蛞蝓日](https://cn.bing.com/th?id=OHR.SeaAngel_ZH-CN6176844066_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际海蛞蝓日](https://cn.bing.com/th?id=OHR.SeaAngel_ZH-CN6176844066_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaAngel_ZH-CN6176844066_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaAngel_ZH-CN6176844066_1080x1920.jpg) |
 
 ### 20221028
 
-> Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)
+> 洛桑日内瓦湖上空的暴风雨，瑞士 (© Suradech Singhanat/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> If the sight of storm clouds gathering over Lake Geneva puts you in a dark mood, then you have an idea of Mary Shelley's frame of mind when she conceived the story that would become her seminal work. While Shelley wrote several historical novels and travel books, it was this macabre story of a grotesque creature that made her legacy.
+> 如果日内瓦湖上空乌云密布的景象让你的心情阴郁沉闷，那么你便可以体会玛丽·雪莱在构思《弗兰肯斯坦》时的心境了，这个故事后来也成为了她的开创性著作。虽然玛丽·雪莱曾写过一些历史小说和旅游书籍，但还是这个描写怪诞生物的恐怖故事让她声名大噪。
 > 
-> Today and every final Friday of October is Frankenstein Friday, a celebration of Shelley's 1818 novel about a doctor who reanimates the dead—a tale of terror that many also think of as the first science fiction novel.  Shelley concocted the concept for 'Frankenstein' (aka 'The Modern Prometheus') at Lake Geneva in the northern Alps on the French-Swiss border. She spent an unusually cold and wet summer there in 1816 with her future husband, Percy Bysshe Shelley, and Lord Byron, both poets. Confined indoors, the group challenged one another to come up with ghost stories. Mary Shelley quickly wrote the short story that would become 'Frankenstein,' inspired in no small part by the gloom and chill of Lake Geneva on one dark and stormy night.
+> 每年十月的最后一个星期五都是弗兰肯斯坦星期五，用以纪念玛丽·雪莱在1818年创作的小说《弗兰肯斯坦》。这部小说被许多人认为是世界上第一部科幻小说，它讲述了一个医生复活死人的惊险恐怖故事。在阿尔卑斯山北部的日内瓦湖，玛丽·雪莱构思了“弗兰肯斯坦”（又名“现代普罗米修斯”）的概念。1816年，她和她未来的丈夫、也就是诗人雪莱，以及诗人拜伦，在日内瓦湖边度过了一个异常阴冷潮湿的夏天。因为只能在室内活动，他们便开始比赛写鬼故事。玛丽·雪莱很快就写下了一个短篇故事，这个故事后来则成为了著名小说《弗兰肯斯坦》。而她的灵感，很大程度上来自于日内瓦湖边一个黑暗寒冷的暴风雨之夜。
 > 
 > 
 
 </details>
 
-| ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![弗兰肯斯坦星期五](https://cn.bing.com/th?id=OHR.FrankensteinFriday_ZH-CN5814917673_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![弗兰肯斯坦星期五](https://cn.bing.com/th?id=OHR.FrankensteinFriday_ZH-CN5814917673_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankensteinFriday_ZH-CN5814917673_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankensteinFriday_ZH-CN5814917673_1080x1920.jpg) |
 
 ### 20221027
 
-> Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)
+> 意大利威尼斯的叹息桥 (© Doug Pearson/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> Beneath Venice's Ponte dei Sospiri (Bridge of Sighs) is a popular place to kiss your beloved as a gondolier guides you through the city's canals. But the sighs that the name refers to aren't from staring into your darling's eyes. The enclosed bridge, completed in 1600, connects the Prigioni Nuove (New Prison) to the interrogation rooms in the Doge's Palace, and it is said that a prisoner's last look at beautiful Venice would be from that bridge. And that's reason enough to sigh indeed.
+> 当船夫带着你来到威尼斯叹息桥下，你可以在这里亲吻你的爱人，传闻在叹息桥下接吻爱情会长久。然而，叹息桥名字的来源与爱情无关。这座封闭的桥于1600年完工，它将新监狱和总督府的审讯室连接起来。据说，囚犯人生中最后一次欣赏美丽的威尼斯，便是在这座桥上。由此看来，这确实足以令人叹息。
 > 
 > 
 > 
@@ -53,18 +91,18 @@
 
 </details>
 
-| ![Bridge of Sighs in Venice, Italy](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bridge of Sighs in Venice, Italy](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![威尼斯叹息桥，意大利](https://cn.bing.com/th?id=OHR.BridgeofSighs_ZH-CN5414607871_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![威尼斯叹息桥，意大利](https://cn.bing.com/th?id=OHR.BridgeofSighs_ZH-CN5414607871_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeofSighs_ZH-CN5414607871_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeofSighs_ZH-CN5414607871_1080x1920.jpg) |
 
 ### 20221026
 
-> Brocken spectre in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)
+> 巴尔干中央国家公园的布罗肯现象，保加利亚 (© Maya Karkalicheva/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> With Halloween around the corner, we present the ghostly image of a Brocken spectre. Despite appearances and the season, there's nothing paranormal about a Brocken spectre. It's the magnified shadow of an observer cast in midair upon a cloud opposite a strong light source. Brocken spectres are rare but climb a mountain at dawn up to the misty slopes and you may be fortunate enough to witness the effect. The spectre, also known as a Brocken bow, mountain spectre, or spectre of the Brocken, can appear anywhere in which conditions are right—like here in the Balkans of Bulgaria. But it's the thick fogs of the Brocken, a peak in the Harz Mountains in Germany, from which the phenomenon draws its name.
+> 万圣节快到了，今天的照片也非常应景，展示了一只“幽灵”，也就是布罗肯现象。尽管看着灵异，但布罗肯现象并非超自然现象。这是一位观察者被投射在阳光对面云层上的阴影。布罗肯现象很少见，但如果你在黎明时分爬上薄雾弥漫的山坡，则有可能幸运地目睹这种现象。只要满足条件，布罗肯现象可以出现在任何地方。在德国哈尔茨山脉的布罗肯峰，当地传说浓雾弥漫的山间有幽灵出没。1780年，约翰·西尔伯施拉格在此观察到了“幽灵”，对其进行了描述记录，并将其命名为“布罗肯现象”。此后，布罗肯现象便常常被记录在有关该地区的文献之中。
 > 
 > 
 > 
@@ -72,66 +110,28 @@
 
 </details>
 
-| ![Brocken spectre in Central Balkan National Park, Bulgaria](https://cn.bing.com/th?id=OHR.BrockenSpecter_EN-US5247366251_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Brocken spectre in Central Balkan National Park, Bulgaria](https://cn.bing.com/th?id=OHR.BrockenSpecter_EN-US5247366251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![巴尔干中央国家公园的布罗肯现象](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![巴尔干中央国家公园的布罗肯现象](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_EN-US5247366251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_EN-US5247366251_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_1080x1920.jpg) |
 
 ### 20221025
 
-> Orcus sculpture in the Gardens of Bomarzo in Bomarzo, Italy (© Scott Wilson/Alamy)
+> 怪物公园里的奥库斯雕像, 意大利博马尔佐花园 (© Scott Wilson/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> Join us for a pre-Halloween trip to a small Italian town about 60 miles northwest of Rome. We're taking you to Bomarzo, where a once-forgotten 16th-century garden holds monstrous sculptures that are meant to evoke anything but pleasure. In our photo, 'The Mouth of Orcus,' a Roman god of the underworld and punisher of broken oaths, gives visitors the feeling of being swallowed into the abyss. During a visit to the Parco dei Mostri (Park of the Monsters), as it's known, you'll come across other grotesque sights such as a dragon being attacked by lions, a giant shredding a man, and Hannibal's elephant snatching a Roman soldier.
+> 万圣节前夕，跟我们一起前往位于罗马西北方向60英里处的一个意大利小镇。我们将带你去博马尔佐，那里有一个曾被遗忘的16世纪花园，里面陈列着巨大的雕像，绝对惊险刺激。在这张照片中，奥库斯黑洞洞的大嘴给人一种被吞入深渊的感觉，奥库斯是罗马的冥界之神，也是违背誓言的惩罚者。这座怪物公园里还有其他诡异怪诞的雕像，如龙被群狮攻击，巨人撕碎人，汉尼拔的大象抓走罗马士兵。这些雕像已有500年的历史，但它们仍然让人们发自内心感到恐惧，这或许就是这座公园的本意。16世纪博马尔佐的欧斯尼公爵在痛失爱妻后，委托人建造了这座公园。
 > 
-> Nearly 500 years after their creation, the grotesque figures still evoke a feeling of horror, perhaps as they were always meant to do. They were commissioned by Bomarzo's Duke Vicino Orsini as a way to cope with his grief upon the death of his wife.
+> 
 > 
 > 
 
 </details>
 
-| !['Park of the Monsters,' Bomarzo, Italy](https://cn.bing.com/th?id=OHR.OrcusMouth_EN-US5010597701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | !['Park of the Monsters,' Bomarzo, Italy](https://cn.bing.com/th?id=OHR.OrcusMouth_EN-US5010597701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![怪物公园，博马尔佐，意大利](https://cn.bing.com/th?id=OHR.OrcusMouth_ZH-CN7303142999_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![怪物公园，博马尔佐，意大利](https://cn.bing.com/th?id=OHR.OrcusMouth_ZH-CN7303142999_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrcusMouth_EN-US5010597701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrcusMouth_EN-US5010597701_1080x1920.jpg) |
-
-### 20221024
-
-> Oil lamps arranged on a rangoli to celebrate Diwali in Guwahati, India (© Biju Boro/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The oil lamps called 'diyas' have been lit for Diwali, the Festival of Lights, in Guwahati, India. Diwali is a five-day celebration of the symbolic victory of light over darkness, good over evil, and knowledge over ignorance. Diyas are a traditional symbol of the festival, and they are arranged on a rangoli, a colorful pattern made on the floor using dried rice flour, colored powdered stone, flower petals, or other colorings. Rangoli designs are more than just attractive—they're believed to attract Lakshmi, the Hindu goddess of wealth and prosperity. Each day of the festival has its own significance, but day three—called Lakshmi Puja—is considered the main event. To prepare for Lakshmi Puja, people clean their homes to welcome Lakshmi's blessings of prosperity and happiness. A rangoli design is created near the entrance to a home or building, and families pass down traditional designs from generation to generation.
-> 
-> Diwali is one of the most important festivals of the Hindu faith, though it is also embraced by Sikhs, Jains, and even some Buddhists. Lamps are lit in homes, temples, and markets, and you'll spot hanging lanterns illuminating just about any public space.
-> 
-> 
-
-</details>
-
-| ![Diwali lights in Guwahati, India](https://cn.bing.com/th?id=OHR.GuwahatiDiwali_EN-US3454357880_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Diwali lights in Guwahati, India](https://cn.bing.com/th?id=OHR.GuwahatiDiwali_EN-US3454357880_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GuwahatiDiwali_EN-US3454357880_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuwahatiDiwali_EN-US3454357880_1080x1920.jpg) |
-
-### 20221023
-
-> Mute swan in Valkenhorst Nature Reserve, near Valkenswaard, the Netherlands (© David Pattyn/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> The mute swan is a symbol of beauty and elegance, thanks in no small part to the beloved fairy tale 'The Ugly Duckling,' about an awkward and unsightly duckling who upon growing up discovers he is actually a swan. The proverbial story is often used as a lesson in transformation and the relative nature of beauty. One glance at this swan, seen here holding a feather in a nature preserve in the Netherlands, and it's easy to see how the idiom 'graceful as a swan' came about.
-> 
-> Mute swans are native to Europe and an introduced species in North America. Despite their name, mute swans do make sounds, although they tend to be less vocal than other swan species. The misnomer is also the source of the phrase 'swan song,' which refers to the final act or performance of a long career. Long ago, it was believed that swans sang a beautiful song shortly before their death after a lifetime of silence.
-> 
-> 
-
-</details>
-
-| ![Mute swan](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mute swan](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_1080x1920.jpg) |dulating form in a cloak of titanium.'
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrcusMouth_ZH-CN7303142999_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrcusMouth_ZH-CN7303142999_1080x1920.jpg) |80x1920.jpg) |dulating form in a cloak of titanium.'
 > 
 > Since its opening on this day in 1997, the Guggenheim Museum Bilbao is credited with renewing the Spanish city from a gritty industrial backwater into a glitzy travel hotspot—a metamorphosis now described as the 'Bilbao effect.' Cities around the world have been attempting to repeat the formula: Hire a 'starchitect' to put a neglected locale on the cultural map, which will in turn attract more investment, prestigious brands, and tourism. Some attempts have been more successful than others, but there's no denying that Bilbao has long since arrived.
 
