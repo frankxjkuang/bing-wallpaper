@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221101
+
+> 神秘森林里木桌上的两个微笑的万圣节南瓜 (© sandsun/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 南瓜灯最早起源于古代爱尔兰。后来这个习俗传入美国，新大陆的人们用南瓜替代萝卜，在上面雕刻鬼脸，在里面放上蜡烛，演变成了现在的南瓜灯，成为了万圣节的标志性装饰。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![万圣节](https://cn.bing.com/th?id=OHR.SmilingPunpkins2022_ZH-CN6763384812_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![万圣节](https://cn.bing.com/th?id=OHR.SmilingPunpkins2022_ZH-CN6763384812_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmilingPunpkins2022_ZH-CN6763384812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmilingPunpkins2022_ZH-CN6763384812_1080x1920.jpg) |
+
 ### 20221031
 
 > 牛津郡韦奇伍德森林的树，英国 (© Frederick Ardley/Getty Images)
@@ -112,16 +131,7 @@
 
 | ![巴尔干中央国家公园的布罗肯现象](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![巴尔干中央国家公园的布罗肯现象](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_1080x1920.jpg) |
-
-### 20221025
-
-> 怪物公园里的奥库斯雕像, 意大利博马尔佐花园 (© Scott Wilson/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> 万圣节前夕，跟我们一起前往位于罗马西北方向60英里处的一个意大利小镇。我们将带你去博马尔佐，那里有一个曾被遗忘的16世纪花园，里面陈列着巨大的雕像，绝对惊险刺激。在这张照片中，奥库斯黑洞洞的大嘴给人一种被吞入深渊的感觉，奥库斯是罗马的冥界之神，也是违背誓言的惩罚者。这座怪物公园里还有其他诡异怪诞的雕像，如龙被群狮攻击，巨人撕碎人，汉尼拔的大象抓走罗马士兵。这些雕像已有500年的历史，但它们仍然让人们发自内心感到恐惧，这或许就是这座公园的本意。16世纪博马尔佐的欧斯尼公爵在痛失爱妻后，委托人建造了这座公园。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_ZH-CN5278743909_1080x1920.jpg) |公园。
 > 
 > 
 > 
