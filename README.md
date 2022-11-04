@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221102
+
+> The Hughes H-4 Hercules, aka the Spruce Goose, November 1947, Long Beach Harbor, California (© J R Eyerman/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Today we're looking back to a time when an eccentric billionaire's dream of reaching new heights was still a novel idea. It was 75 years ago today that Howard Hughes' 'flying boat,' dubbed the 'Spruce Goose,' made its one and only flight. Officially named the Hughes H-4 Hercules, the press persisted in calling it the 'Spruce Goose' even though it was constructed almost entirely of birch wood. The plane was commissioned in 1942 by American industrialist Henry Kaiser, who supplied ships to the US during World War II. Kaiser recruited Hughes—the film producer turned pilot, engineer, and business magnate—to build a flying cargo ship that could avoid German submarines while transporting troops and war supplies across the Atlantic. The contract called for three of the planes to be built within two years. Hughes was still working on the design when the war ended—in the end, he delivered only the one in our photo, two years after V-E Day.
+> 
+> Adjusted for inflation, the Spruce Goose cost roughly $213 million. It remains the largest flying boat ever built and when it was finished, it had the longest wingspan of any previously built aircraft at 320 feet, 11 inches. Even though the plane was no longer needed for the war effort, Hughes was committed to seeing it fly, which it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
+> 
+> 
+
+</details>
+
+| ![75th anniversary of the 'Spruce Goose'](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![75th anniversary of the 'Spruce Goose'](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_1080x1920.jpg) |
+
 ### 20221101
 
 > Skeleton figures (calacas) dressed up for Día de los Muertos celebrations in Mexico (© Amelia Fuentes Marin/Getty Images)
@@ -112,34 +131,7 @@
 
 | ![Bridge of Sighs in Venice, Italy](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bridge of Sighs in Venice, Italy](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_1080x1920.jpg) |
-
-### 20221026
-
-> Brocken spectre in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> With Halloween around the corner, we present the ghostly image of a Brocken spectre. Despite appearances and the season, there's nothing paranormal about a Brocken spectre. It's the magnified shadow of an observer cast in midair upon a cloud opposite a strong light source. Brocken spectres are rare but climb a mountain at dawn up to the misty slopes and you may be fortunate enough to witness the effect. The spectre, also known as a Brocken bow, mountain spectre, or spectre of the Brocken, can appear anywhere in which conditions are right—like here in the Balkans of Bulgaria. But it's the thick fogs of the Brocken, a peak in the Harz Mountains in Germany, from which the phenomenon draws its name.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Brocken spectre in Central Balkan National Park, Bulgaria](https://cn.bing.com/th?id=OHR.BrockenSpecter_EN-US5247366251_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Brocken spectre in Central Balkan National Park, Bulgaria](https://cn.bing.com/th?id=OHR.BrockenSpecter_EN-US5247366251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_EN-US5247366251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrockenSpecter_EN-US5247366251_1080x1920.jpg) |_EN-US8198972228_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GB25Anni_EN-US8198972228_1080x1920.jpg) | and 8th centuries. Only a few hundred yards away is the archaeological site known as Naqsh-e Rajab, with more rock carvings depicting three Sassanid kings and a high priest. While these civilizations have faded, what they created endures as a permanent record of human history.
-> 
-> 
-
-</details>
-
-| ![International Archaeology Day](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaqsheRustam_EN-US7919143366_1080x1920.jpg) |ge_EN-US7763700078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_1080x1920.jpg) |//cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Upper Geyser Basin, Yellowstone National Park](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_1080x1920.jpg) |7763700078_1080x1920.jpg) |//cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Upper Geyser Basin, Yellowstone National Park](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.SusitnaRiver_EN-US7154675950_1080x1920.jpg) |d=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg) |.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
