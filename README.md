@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221103
+
+> Mount Kilimanjaro with Cape buffaloes in foreground, Amboseli Biosphere Reserve, Kenya (© RealityImages/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> UNESCO designated November 3, 2022, the first annual International Day for Biosphere Reserves. Biosphere reserves are vast areas around the world used to promote biodiversity, cultural diversity, environmentally sustainable economic development, and research and education on how humans can coexist with nature.
+> 
+> The Amboseli Biosphere Reserve, which we feature today, is located on the Kenyan side of Mount Kilimanjaro and includes an amazing variety of ecological zones, including dry mountain forests, mountains, savannah rangelands, wetlands, and swamps. Elephants, lions, and giraffes make their home in the Amboseli. Designated a UNESCO biosphere reserve in 1980, Amboseli was a focus of a UN-sponsored program to ensure the long-term conservation of biodiversity in the area, partly by involving the local population in sustainable use.
+> 
+> 
+
+</details>
+
+| ![International Day for Biosphere Reserves](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biosphere Reserves](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |
+
 ### 20221102
 
 > The Hughes H-4 Hercules, aka the Spruce Goose, November 1947, Long Beach Harbor, California (© J R Eyerman/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_1080x1920.jpg) |
-
-### 20221027
-
-> Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Beneath Venice's Ponte dei Sospiri (Bridge of Sighs) is a popular place to kiss your beloved as a gondolier guides you through the city's canals. But the sighs that the name refers to aren't from staring into your darling's eyes. The enclosed bridge, completed in 1600, connects the Prigioni Nuove (New Prison) to the interrogation rooms in the Doge's Palace, and it is said that a prisoner's last look at beautiful Venice would be from that bridge. And that's reason enough to sigh indeed.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Bridge of Sighs in Venice, Italy](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bridge of Sighs in Venice, Italy](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_1080x1920.jpg) |7763700078_1080x1920.jpg) |//cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Upper Geyser Basin, Yellowstone National Park](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.SusitnaRiver_EN-US7154675950_1080x1920.jpg) |d=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg) |.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_1080x1920.jpg) |m/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.SusitnaRiver_EN-US7154675950_1080x1920.jpg) |d=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg) |.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg) |ng.com/th?id=OHR.LastDollarRoad_EN-US7923638318_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![First day of autumn](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
