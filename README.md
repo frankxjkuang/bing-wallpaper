@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221104
+
+> Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> A hundred years ago today, British archaeologist and Egyptologist Howard Carter discovered the sarcophagus of Tutankhamun, better known as King Tut, in Egypt's Valley of the Kings. Though they first uncovered the tomb of the 'boy king' on November 4, 1922, Carter and crew took years to excavate the burial site. What they found astonished the world. It was loaded with more than 5,000 artifacts, including a solid gold coffin, face mask, thrones, archery bows, trumpets, a lotus chalice, furniture, food, wine, sandals, gold caps to protect Tut's toes, and fresh linen underwear. Because you should always bring clean undies, even when you're crossing into the realm of the dead.
+> 
+> Though Tut is considered a minor pharaoh by historians, the discovery of his tomb was one of the most significant in the history of archaeology. The burial site was remarkably well preserved—unlike many neighboring tombs, it was untouched by grave robbers, thanks to debris covering the entrance for most of the tomb's existence. In the 1960s, Egypt allowed the treasures of King Tut to leave the country for display, and the exhibit has traveled the world numerous times. Today, King Tut's death mask and sarcophagus are displayed here at the Egyptian Museum in Cairo.
+> 
+> 
+
+</details>
+
+| ![A century since Tut's tomb was discovered](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A century since Tut's tomb was discovered](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg) |
+
 ### 20221103
 
 > Mount Kilimanjaro with Cape buffaloes in foreground, Amboseli Biosphere Reserve, Kenya (© RealityImages/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Sea Slug Day](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Slug Day](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_1080x1920.jpg) |
-
-### 20221028
-
-> Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> If the sight of storm clouds gathering over Lake Geneva puts you in a dark mood, then you have an idea of Mary Shelley's frame of mind when she conceived the story that would become her seminal work. While Shelley wrote several historical novels and travel books, it was this macabre story of a grotesque creature that made her legacy.
-> 
-> Today and every final Friday of October is Frankenstein Friday, a celebration of Shelley's 1818 novel about a doctor who reanimates the dead—a tale of terror that many also think of as the first science fiction novel.  Shelley concocted the concept for 'Frankenstein' (aka 'The Modern Prometheus') at Lake Geneva in the northern Alps on the French-Swiss border. She spent an unusually cold and wet summer there in 1816 with her future husband, Percy Bysshe Shelley, and Lord Byron, both poets. Confined indoors, the group challenged one another to come up with ghost stories. Mary Shelley quickly wrote the short story that would become 'Frankenstein,' inspired in no small part by the gloom and chill of Lake Geneva on one dark and stormy night.
-> 
-> 
-
-</details>
-
-| ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankensteinFriday_EN-US3119113489_1080x1920.jpg) |m/th?id=OHR.YellowstoneUGB_EN-US7573964019_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.SusitnaRiver_EN-US7154675950_1080x1920.jpg) |d=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg) |.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaAngel_EN-US5531672696_1080x1920.jpg) |OHR.DarkSkyAcadia_EN-US6966527964_1080x1920.jpg) |.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_1080x1920.jpg) |ng.com/th?id=OHR.LastDollarRoad_EN-US7923638318_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![First day of autumn](https://cn.bing.com/th?id=OHR.LastDollarRoad_EN-US7923638318_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
