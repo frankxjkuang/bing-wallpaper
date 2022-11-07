@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221105
+
+> Tigh Mor Trossachs on Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)
+
+<details>
+<summary>Description</summary>
+
+> Fairy-tale castle? Check. Stunning Scottish backdrop? Check. Calm, tranquil loch? Check. If Tigh Mor looks idyllic to you, you're not alone. Queen Victoria spent time here in its heyday, and though the old hotel (it was built in 1849) declined over the years, a multimillion-dollar restoration has brought it right back to its former glory.
+> 
+> Tigh Mor sits above Loch Achray in Scotland's Trossachs, a region with scenery so stunning it draws artists and painters like moths to a flame. Writers are also inspired by its beauty: Way back in the early 1800s Sir Walter Scott's poem 'The Lady of the Lake' and novel 'Rob Roy' stirred interest in visiting this area of wooded glens, braes, and waterways called 'the Trossachs.'
+> 
+> Today many visitors hike or bike the Trossachs Trail, a beautiful 40-mile route that starts at Loch Lomond and winds along rivers and through woods, offering family-friendly adventures as well as challenges for mountain bikers and rock climbers. More of a water person? The Trossachs are also great for canoeing, kayaking, paddleboarding, sailing, swimming, and fishing on rivers and lochs aplenty.
+
+</details>
+
+| ![Tigh Mor Trossachs on Loch Achray, Scotland](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tigh Mor Trossachs on Loch Achray, Scotland](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg) |
+
 ### 20221104
 
 > Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)
@@ -112,18 +131,7 @@
 
 | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |
-
-### 20221029
-
-> Sea angel (© Alexander Semenov Images/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Swimming into view like an oceanic Halloween specter, today's 'sea angel' is one of about 3,000 sea slug species. Sea slugs can be found in all the oceans and seas of the world. Scientifically known as nudibranchs, sea slugs are mollusks and today is the day the world celebrates them. What, you didn't know? Perhaps that's because technically it's the birthday of the premier authority on all things related to sea slugs, Terry Gosliner. Gosliner has identified nearly half of the known sea slug species in the world, has written 150 scientific papers about them, and has personally named around 350 individual species. 'Everything about them just piques the imagination,' he says. So, we're saying 'Happy birthday, Terry' by taking a moment to examine the sea angel.
-> 
-> Sea angels are classified in six different families, and they're all remarkably small, with the largest being only about 3 inches long. They can be found anywhere from under the ice in arctic waters to tropical seas and all points in between. Gelatinous in nature, they're also mostly see-through. You see those 'wings' there in the photo? They allow the sea angel to 'fly' around in the water at about 0.22 mph, which may not seem very fast, but it's about twice as fast as its most common prey, the sea butterfly. Belying their name, these angels are ambush predators that actively attack and extract sea butterflies (technically sea snails) from their shells. Some species of sea angels emit a toxin to keep predators away, which has caused other sea creatures to carry them around as a sort of underwater pepper spray to fend off their own predators. Given this, maybe 'sea guardian angel' would be a more fitting name. Someone call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
 > 
 
