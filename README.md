@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221106
+
+> Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The route for the 2022 New York City Marathon starts right here at the Verrazzano-Narrows Bridge, crossing from Staten Island into Brooklyn and eventually coursing through all five boroughs of New York. This photo gives you an idea just how many people will be running today. Because the race starts early on a November morning, many runners show up in layered clothing to beat the typical chill. But once they heat up from running, those layers come off and are often discarded on sidewalks. Race organizers collect the activewear left behind by 50,000 runners, about 26 tons a year, and donate it to charity.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![New York City Marathon](https://cn.bing.com/th?id=OHR.MarathonSunday_EN-US0342685769_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![New York City Marathon](https://cn.bing.com/th?id=OHR.MarathonSunday_EN-US0342685769_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarathonSunday_EN-US0342685769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarathonSunday_EN-US0342685769_1080x1920.jpg) |
+
 ### 20221105
 
 > Tigh Mor Trossachs on Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)
@@ -112,24 +131,7 @@
 
 | ![Wychwood Forest, Oxfordshire, England](https://cn.bing.com/th?id=OHR.WychwoodForest_EN-US6378774990_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wychwood Forest, Oxfordshire, England](https://cn.bing.com/th?id=OHR.WychwoodForest_EN-US6378774990_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WychwoodForest_EN-US6378774990_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WychwoodForest_EN-US6378774990_1080x1920.jpg) |
-
-### 20221030
-
-> Polar bear at the edge of Hudson Bay, Manitoba, Canada (© Sean Crane/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> The largest carnivore on land roams the icy north. Polar bears like this one spend much of their lives on sea ice rather than terra firma, stalking their favorite prey: seals. Superbly insulated against the cold, polar bears are uniquely suited for life on the ice—so they're especially vulnerable to a warming planet. Their plight is the focus of Polar Bear Week, observed the first week of every November, bringing attention to these creatures who live far out of sight of most humans.
-> 
-> Polar bears live in portions of Greenland, Norway, Russia, Alaska, and Canada. Most of Canada's polar bears live near the vast Hudson Bay, seen here near the delta of the Seal River. As summer ends, hungry bears who have been living on fat reserves for months gather on the shores of Hudson Bay, waiting for ice to form so they can return to the hunt. Due to climate change, the ice-free period of summer has grown longer, cutting short the bears' hunting season and making human-bear encounters more likely. And while the latter may seem like good news for bear-watchers, these maritime beasts are best viewed from afar.
-> 
-> 
-
-</details>
-
-| ![Polar Bear Week](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WychwoodForest_EN-US6378774990_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WychwoodForest_EN-US6378774990_1080x1920.jpg) |ear Week](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
