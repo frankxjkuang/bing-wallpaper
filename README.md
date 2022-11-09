@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221107
+
+> Lunar eclipse above Mount Crested Butte, Colorado (© Mengzhonghua Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> If you missed the first full lunar eclipse of the year back in May, you'll get another chance tonight as the second blood moon (as lunar eclipses are often called) of 2022 takes to the sky over the Pacific region. Tonight's display can be seen from Asia, Australia, North America, and parts of northern Europe and South America. If you're lucky enough to find yourself under a clear sky, the view might look something like this image, taken over Mount Crested Butte, Colorado, during the lunar eclipse of September 27, 2015.
+> 
+> A lunar eclipse is a happy accident of the solar system and is possible because of relative sizes of and distances between the sun, Earth, and moon. Every couple of years on average, the Earth casts a perfect shadow on the moon, causing a full lunar eclipse. During a full solar eclipse, the moon casts a perfect shadow on the Earth. While not as rare, and perhaps not quite as dramatic as a solar eclipse, lunar eclipses have plenty of upsides. For one, you can safely look at them without doing any harm to your eyes. They last for hours, while solar eclipses last minutes. And a lunar eclipse is visible from a much larger portion of the planet—in fact, the eclipsed moon can be seen at the time of the eclipse wherever the moon is above the horizon.
+> 
+> If you want to see tonight's lunar eclipse in the US, you'll likely have to sacrifice some sleep. Totality on the West Coast begins at 2:16 AM, 5:16 AM on the East Coast, and will last about 85 minutes. The next total lunar eclipse won't happen until March 2025, so a few hours of lost sleep seem a small price to pay for this dazzling view.
+
+</details>
+
+| ![Lunar eclipse](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lunar eclipse](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_1080x1920.jpg) |
+
 ### 20221106
 
 > Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Día de los Muertos celebrations in Mexico](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Día de los Muertos celebrations in Mexico](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |
-
-### 20221031
-
-> Trees in Wychwood Forest near Chipping Norton, Oxfordshire, England (© Frederick Ardley/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> What better way to spend Halloween than with a ghostly apparition in a scary haunted forest? Today we've (ill-advisedly?) wandered into Wychwood, an English forest with more than its share of spooky backstory. Many people walking in these woods have reported unexplained phenomena, such as feeling a hand on their shoulder and turning to find…no one. Or hearing children wailing as they're driven through the forest in a ghostly horse-drawn carriage.
-> 
-> But maybe the most spine-tingling yarn linked to Wychwood is that of Amy Robsart, whose ghost is said to haunt the forest. Born almost 500 years ago, she was the first wife of Robert Dudley, Earl of Leicester, a favorite—and perhaps love interest—of Elizabeth I of England. Robsart died mysteriously from a fall down the stairs in Cumnor Place, the couple's rented home in Oxfordshire, while Dudley was away at the royal court. But was it murder? Suicide? A simple misstep? Theories and conspiracies abound to this day.
-> 
-> Legend has it that her apparition lingered at the foot of the stairs, screaming, and Dudley never slept in that house again. But later, as he rode through Wychwood one day, the specter of Robsart caught up with him and told him he'd be dead within 10 days—and he was. So, if you find yourself walking in Wychwood this Halloween, or any night, stay clear of ghostly women with dire warnings. [Note: This photo was enhanced with the help of AI image-generating tools.]
-
-</details>
-
-| ![Wychwood Forest, Oxfordshire, England](https://cn.bing.com/th?id=OHR.WychwoodForest_EN-US6378774990_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wychwood Forest, Oxfordshire, England](https://cn.bing.com/th?id=OHR.WychwoodForest_EN-US6378774990_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WychwoodForest_EN-US6378774990_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WychwoodForest_EN-US6378774990_1080x1920.jpg) |ear Week](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
