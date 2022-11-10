@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221108
+
+> Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The bright light of the full moon is mirrored by lit lanterns launched skyward in the Thai festival of Yi Peng. It's a beautiful celebration, as you can see, and it happens around the second full moon at this time of year ('yi' means 'two' and 'peng' means 'full moon day'). Our photo shows the lanterns in Chiang Mai, Thailand's second-largest city and the home of the most famous Yi Peng observance, which has strong ties to the Lanna people of northern Thailand.
+> 
+> Yi Peng is a religious festival that also features entertainment and local traditional food. It is believed that sending lanterns up into the sky will honor the gods, and traditionally the release of lanterns has represented letting go of bad luck and wishing for good fortune. During the festival, lanterns or candles are also lit outside homes and businesses to show devotion to the Buddha.
+> 
+> 
+
+</details>
+
+| ![Yi Peng Festival in Chiang Mai, Thailand](https://cn.bing.com/th?id=OHR.YiPeng_EN-US0467115147_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yi Peng Festival in Chiang Mai, Thailand](https://cn.bing.com/th?id=OHR.YiPeng_EN-US0467115147_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YiPeng_EN-US0467115147_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YiPeng_EN-US0467115147_1080x1920.jpg) |
+
 ### 20221107
 
 > Lunar eclipse above Mount Crested Butte, Colorado (© Mengzhonghua Photography/Getty Images)
@@ -112,22 +131,7 @@
 
 | ![75th anniversary of the 'Spruce Goose'](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![75th anniversary of the 'Spruce Goose'](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_1080x1920.jpg) |
-
-### 20221101
-
-> Skeleton figures (calacas) dressed up for Día de los Muertos celebrations in Mexico (© Amelia Fuentes Marin/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It may seem odd to celebrate death—after all, it's the end of our personal era. But tell that to people who celebrate the Day of the Dead, or el Día de los Muertos, and they'll smile. They may explain that death is part of the circle of life, and as natural as any other human milestone. As our photo shows, the Day of the Dead is a big holiday in Mexico, where calacas—skeleton figures of musicians, workers, and other folks in merry scenes of everyday 'life'—lurk everywhere for weeks before the main event. Of course, living people also play dead for the day, donning skeleton outfits, masks, and grotesque makeup. Music, processions, and food add to the quirky, fun carnival atmosphere.
-> 
-> The Day of the Dead has deep roots in Mexico. In Aztec times, for example, the belief was that after people died, they traveled to the Land of the Dead, called Chicunamictlán. Mexico's pre-Hispanic beliefs eventually melded with Catholic celebrations of All Saints' Day and All Souls' Day to create the joyous event celebrated today. Families leave food or other gifts on their loved ones' graves or on homemade altars called 'ofrendas,' welcoming deceased relatives for the day. No wonder it's viewed as a happy holiday—you get to hang out with the spirits of the dearly loved people whom you've lost. (Just don't let Uncle Joe tell one of his jokes.)
-> 
-> 
-
-</details>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_1080x1920.jpg) |/details>
 
 | ![Día de los Muertos celebrations in Mexico](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Día de los Muertos celebrations in Mexico](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
