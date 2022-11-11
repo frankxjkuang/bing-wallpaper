@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221109
+
+> European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Join us for a trip across the pond as we take a moment to examine the prickly European hedgehog. Our friend in today's photo is in Sussex, England, but European hedgehogs are widespread across the continent. They're thought to be the largest and heaviest of the hedgehog family. A nocturnal creature, the hedgehog can often be found in gardens snacking on its preferred diet of insects.
+> 
+> The European hedgehog is sometimes considered an invasive species. In New Zealand, for example, the hedgehog has no natural predators and threatens the food supply of native bush birds. But it's hard to blame such a cute little creature. With roughly 6,000 spines on its back, the hedgehog was, at one point, used as an unofficial symbol for NATO, chosen because it's a peaceful animal that has a rather pointed defense system.
+> 
+> 
+
+</details>
+
+| ![European hedgehog in Sussex, England](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European hedgehog in Sussex, England](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_1080x1920.jpg) |
+
 ### 20221108
 
 > Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)
@@ -112,18 +131,7 @@
 
 | ![International Day for Biosphere Reserves](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biosphere Reserves](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |
-
-### 20221102
-
-> The Hughes H-4 Hercules, aka the Spruce Goose, November 1947, Long Beach Harbor, California (© J R Eyerman/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Today we're looking back to a time when an eccentric billionaire's dream of reaching new heights was still a novel idea. It was 75 years ago today that Howard Hughes' 'flying boat,' dubbed the 'Spruce Goose,' made its one and only flight. Officially named the Hughes H-4 Hercules, the press persisted in calling it the 'Spruce Goose' even though it was constructed almost entirely of birch wood. The plane was commissioned in 1942 by American industrialist Henry Kaiser, who supplied ships to the US during World War II. Kaiser recruited Hughes—the film producer turned pilot, engineer, and business magnate—to build a flying cargo ship that could avoid German submarines while transporting troops and war supplies across the Atlantic. The contract called for three of the planes to be built within two years. Hughes was still working on the design when the war ended—in the end, he delivered only the one in our photo, two years after V-E Day.
-> 
-> Adjusted for inflation, the Spruce Goose cost roughly $213 million. It remains the largest flying boat ever built and when it was finished, it had the longest wingspan of any previously built aircraft at 320 feet, 11 inches. Even though the plane was no longer needed for the war effort, Hughes was committed to seeing it fly, which it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
 > 
 > 
 
