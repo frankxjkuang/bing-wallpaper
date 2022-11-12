@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221110
+
+> Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)
+
+<details>
+<summary>Description</summary>
+
+> Forty-four years ago today, a rugged, inhospitable area of South Dakota was designated a national park to protect the many fossils found there. The region has a 12,000-year history as hunting grounds for Native Americans. In fact, the name we know it by today, Badlands, comes from the Lakota phrase 'mako sica,' which literally translates to 'bad lands.' Covering nearly 380 square miles, its harshly eroded rock formations make it one of the most distinct landscapes in the United States.
+> 
+> And it's still forming! The National Park Service says the Badlands erode about an inch every year, which is awfully fast as erosion goes. Scientists estimate that within the next half million years, the Badlands will have eroded away completely. Might want to start planning your visit soon.
+> 
+> 
+
+</details>
+
+| ![Badlands National Park turns 44](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Badlands National Park turns 44](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_1080x1920.jpg) |
+
 ### 20221109
 
 > European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![A century since Tut's tomb was discovered](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A century since Tut's tomb was discovered](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg) |
-
-### 20221103
-
-> Mount Kilimanjaro with Cape buffaloes in foreground, Amboseli Biosphere Reserve, Kenya (© RealityImages/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> UNESCO designated November 3, 2022, the first annual International Day for Biosphere Reserves. Biosphere reserves are vast areas around the world used to promote biodiversity, cultural diversity, environmentally sustainable economic development, and research and education on how humans can coexist with nature.
-> 
-> The Amboseli Biosphere Reserve, which we feature today, is located on the Kenyan side of Mount Kilimanjaro and includes an amazing variety of ecological zones, including dry mountain forests, mountains, savannah rangelands, wetlands, and swamps. Elephants, lions, and giraffes make their home in the Amboseli. Designated a UNESCO biosphere reserve in 1980, Amboseli was a focus of a UN-sponsored program to ensure the long-term conservation of biodiversity in the area, partly by involving the local population in sustainable use.
-> 
-> 
-
-</details>
-
-| ![International Day for Biosphere Reserves](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biosphere Reserves](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
 > 
 > 
 
