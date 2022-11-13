@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221111
+
+> The Vietnam Women's Memorial in Washington, DC (© Cvandyke/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> On the National Mall in Washington, DC, just north of the Reflecting Pool, is a sculpture honoring the women who served during the Vietnam War. The military efforts of women, less visible than those of men, are commemorated by the Vietnam Women's Memorial, featured today on Veterans Day. While Memorial Day honors those who died during military service, Veterans Day recognizes the service of all veterans, whether or not they served during a war. Veterans Day, a federal holiday, was originally known as Armistice Day and coincides with the anniversary of the end of World War I. For this reason, other countries also observe today as a holiday.
+> 
+> The Vietnam Women's Memorial was officially dedicated on Veterans Day in 1993. During the Vietnam War, 265,000 American women volunteered to serve. About 11,000 were stationed in Vietnam, most as nurses. Women were not allowed to serve in combat roles then as they are now. It took decades before their contributions were publicly acknowledged with the addition of this memorial. It depicts three uniformed women tending to a wounded soldier and reminds us of the roles women played during this and other wars, often behind the scenes, as nurses, physicians, air traffic controllers, translators, and intelligence officers.
+> 
+> 
+
+</details>
+
+| ![Veterans Day](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Veterans Day](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_1080x1920.jpg) |
+
 ### 20221110
 
 > Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)
@@ -112,26 +131,7 @@
 
 | ![Tigh Mor Trossachs on Loch Achray, Scotland](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tigh Mor Trossachs on Loch Achray, Scotland](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg) |
-
-### 20221104
-
-> Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> A hundred years ago today, British archaeologist and Egyptologist Howard Carter discovered the sarcophagus of Tutankhamun, better known as King Tut, in Egypt's Valley of the Kings. Though they first uncovered the tomb of the 'boy king' on November 4, 1922, Carter and crew took years to excavate the burial site. What they found astonished the world. It was loaded with more than 5,000 artifacts, including a solid gold coffin, face mask, thrones, archery bows, trumpets, a lotus chalice, furniture, food, wine, sandals, gold caps to protect Tut's toes, and fresh linen underwear. Because you should always bring clean undies, even when you're crossing into the realm of the dead.
-> 
-> Though Tut is considered a minor pharaoh by historians, the discovery of his tomb was one of the most significant in the history of archaeology. The burial site was remarkably well preserved—unlike many neighboring tombs, it was untouched by grave robbers, thanks to debris covering the entrance for most of the tomb's existence. In the 1960s, Egypt allowed the treasures of King Tut to leave the country for display, and the exhibit has traveled the world numerous times. Today, King Tut's death mask and sarcophagus are displayed here at the Egyptian Museum in Cairo.
-> 
-> 
-
-</details>
-
-| ![A century since Tut's tomb was discovered](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A century since Tut's tomb was discovered](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
 > 
 > 
 
