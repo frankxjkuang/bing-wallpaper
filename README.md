@@ -1,5 +1,43 @@
 ## bing wallpaper
 
+### 20221113
+
+> The Punch Bowl on the River Quoich in the Cairngorms, Aberdeenshire, Scotland (© AWL Images/Danita Delimont)
+
+<details>
+<summary>Description</summary>
+
+> In the eastern Highlands of Scotland, tucked into the forested plateaus of the Cairngorms mountain range, is a small but beloved river that runs through a ravine. The River Quoich is frequented by nature lovers, hikers, and intrepid paddlers willing to brave its surprisingly swift currents and its several waterfalls, including the one featured here, the Linn of Quoich. This spot is famous for the bowl-shaped cavity in the rock that you see on the left.
+> 
+> Called the Punch Bowl, this natural feature has become the star attraction for those who visit the river and take the 3-mile hike along its banks. According to lore, the Earl of Mar, the 18th-century nobleman who owned the forest, placed a ceremonial punch bowl atop the hole and drank from it after a successful deer hunt. Queen Victoria loved these pine woods and built a rustic lodge near the falls around 1850. While the beauty of the River Quoich is fit for a queen, you don't have to be royalty to enjoy it.
+> 
+> 
+
+</details>
+
+| ![River Quoich in Aberdeenshire, Scotland](https://cn.bing.com/th?id=OHR.PunchBowl_EN-US0351920520_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![River Quoich in Aberdeenshire, Scotland](https://cn.bing.com/th?id=OHR.PunchBowl_EN-US0351920520_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PunchBowl_EN-US0351920520_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PunchBowl_EN-US0351920520_1080x1920.jpg) |
+
+### 20221112
+
+> Bald eagles near Haines, Alaska (© Marion Vollborn/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Each November as many as 4,000 bald eagles descend on the Chilkat River near Haines, Alaska, to feed on the late run of chum and coho salmon that have returned to spawn in the river flats. It's a feast for birds and birders alike, as the raptors tear into a never-ending supply of tasty fish. The largest congregation of eagles in the world, it's celebrated by the annual Alaska Bald Eagle Festival in the second week of November. The event features live raptor demonstrations, educational programs, guided hikes, and live music.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Alaska Bald Eagle Festival](https://cn.bing.com/th?id=OHR.HainesEagle_EN-US1470582706_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska Bald Eagle Festival](https://cn.bing.com/th?id=OHR.HainesEagle_EN-US1470582706_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HainesEagle_EN-US1470582706_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HainesEagle_EN-US1470582706_1080x1920.jpg) |
+
 ### 20221111
 
 > The Vietnam Women's Memorial in Washington, DC (© Cvandyke/Shutterstock)
@@ -93,43 +131,7 @@
 
 | ![Lunar eclipse](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lunar eclipse](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_1080x1920.jpg) |
-
-### 20221106
-
-> Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The route for the 2022 New York City Marathon starts right here at the Verrazzano-Narrows Bridge, crossing from Staten Island into Brooklyn and eventually coursing through all five boroughs of New York. This photo gives you an idea just how many people will be running today. Because the race starts early on a November morning, many runners show up in layered clothing to beat the typical chill. But once they heat up from running, those layers come off and are often discarded on sidewalks. Race organizers collect the activewear left behind by 50,000 runners, about 26 tons a year, and donate it to charity.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![New York City Marathon](https://cn.bing.com/th?id=OHR.MarathonSunday_EN-US0342685769_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![New York City Marathon](https://cn.bing.com/th?id=OHR.MarathonSunday_EN-US0342685769_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarathonSunday_EN-US0342685769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarathonSunday_EN-US0342685769_1080x1920.jpg) |
-
-### 20221105
-
-> Tigh Mor Trossachs on Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)
-
-<details>
-<summary>Description</summary>
-
-> Fairy-tale castle? Check. Stunning Scottish backdrop? Check. Calm, tranquil loch? Check. If Tigh Mor looks idyllic to you, you're not alone. Queen Victoria spent time here in its heyday, and though the old hotel (it was built in 1849) declined over the years, a multimillion-dollar restoration has brought it right back to its former glory.
-> 
-> Tigh Mor sits above Loch Achray in Scotland's Trossachs, a region with scenery so stunning it draws artists and painters like moths to a flame. Writers are also inspired by its beauty: Way back in the early 1800s Sir Walter Scott's poem 'The Lady of the Lake' and novel 'Rob Roy' stirred interest in visiting this area of wooded glens, braes, and waterways called 'the Trossachs.'
-> 
-> Today many visitors hike or bike the Trossachs Trail, a beautiful 40-mile route that starts at Loch Lomond and winds along rivers and through woods, offering family-friendly adventures as well as challenges for mountain bikers and rock climbers. More of a water person? The Trossachs are also great for canoeing, kayaking, paddleboarding, sailing, swimming, and fishing on rivers and lochs aplenty.
-
-</details>
-
-| ![Tigh Mor Trossachs on Loch Achray, Scotland](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tigh Mor Trossachs on Loch Achray, Scotland](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_1080x1920.jpg) |x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
 > 
