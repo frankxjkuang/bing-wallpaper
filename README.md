@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221115
+
+> North American river otters swimming in Acadia National Park, Maine (© George Sanker/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> You 'otter' know something about the creatures in today's photo. They're a pair of North American river otters swimming in Maine's Acadia National Park. Technically members of the weasel family, these 'water dogs' aren't just locked into rivers. They can be found in other waterways and along the coasts of North America. A myopic animal with eyesight adapted to help with swimming, river otters will come right up on humans or boats, usually within a few feet.
+> 
+> They're active year-round, though they tend to do most of their business at night, which primarily consists of hunting and eating. River otters are highly active predators, usually going after fish, but they have been known to munch on fruit, reptiles, ducks, and even the rare beaver. River otters are highly sensitive to pollution, so will tend to disappear from tainted areas. Scientists value them as trusted bioindicators of the environments where they live due to the way their bodies accumulate various chemical compounds.
+> 
+> 
+
+</details>
+
+| ![River otters at Acadia National Park, Maine](https://cn.bing.com/th?id=OHR.LontraCanadensis_EN-US1791102347_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![River otters at Acadia National Park, Maine](https://cn.bing.com/th?id=OHR.LontraCanadensis_EN-US1791102347_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LontraCanadensis_EN-US1791102347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LontraCanadensis_EN-US1791102347_1080x1920.jpg) |
+
 ### 20221114
 
 > Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)
@@ -112,28 +131,7 @@
 
 | ![European hedgehog in Sussex, England](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European hedgehog in Sussex, England](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_1080x1920.jpg) |
-
-### 20221108
-
-> Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The bright light of the full moon is mirrored by lit lanterns launched skyward in the Thai festival of Yi Peng. It's a beautiful celebration, as you can see, and it happens around the second full moon at this time of year ('yi' means 'two' and 'peng' means 'full moon day'). Our photo shows the lanterns in Chiang Mai, Thailand's second-largest city and the home of the most famous Yi Peng observance, which has strong ties to the Lanna people of northern Thailand.
-> 
-> Yi Peng is a religious festival that also features entertainment and local traditional food. It is believed that sending lanterns up into the sky will honor the gods, and traditionally the release of lanterns has represented letting go of bad luck and wishing for good fortune. During the festival, lanterns or candles are also lit outside homes and businesses to show devotion to the Buddha.
-> 
-> 
-
-</details>
-
-| ![Yi Peng Festival in Chiang Mai, Thailand](https://cn.bing.com/th?id=OHR.YiPeng_EN-US0467115147_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yi Peng Festival in Chiang Mai, Thailand](https://cn.bing.com/th?id=OHR.YiPeng_EN-US0467115147_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YiPeng_EN-US0467115147_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YiPeng_EN-US0467115147_1080x1920.jpg) |15&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_1080x1920.jpg) |x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_1080x1920.jpg) |x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
 > 
