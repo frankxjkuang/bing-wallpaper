@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221116
+
+> Cliff dwellings in Mesa Verde National Park, Colorado (© Brad McGinley Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> At its World Heritage Convention on November 16, 1972, UNESCO adopted an international treaty that for the first time linked the concepts of nature conservation and preservation of cultural properties. The World Heritage Sites program was sparked by Egypt's plans to construct the Aswan High Dam. UNESCO helped save thousands of antiquities that would have been lost as a result of the dam, which flooded a large swath of the Nile Valley.
+> 
+> Colorado's Mesa Verde National Park, where Ancestral Puebloans lived for seven centuries, was among the first World Heritage Sites chosen by the UNESCO committee, in 1978.
+> 
+> 
+
+</details>
+
+| ![50 years of World Heritage Sites](https://cn.bing.com/th?id=OHR.Unesco50_EN-US1537915198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![50 years of World Heritage Sites](https://cn.bing.com/th?id=OHR.Unesco50_EN-US1537915198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Unesco50_EN-US1537915198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Unesco50_EN-US1537915198_1080x1920.jpg) |
+
 ### 20221115
 
 > North American river otters swimming in Acadia National Park, Maine (© George Sanker/Minden Pictures)
@@ -112,25 +131,7 @@
 
 | ![Badlands National Park turns 44](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Badlands National Park turns 44](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_1080x1920.jpg) |
-
-### 20221109
-
-> European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Join us for a trip across the pond as we take a moment to examine the prickly European hedgehog. Our friend in today's photo is in Sussex, England, but European hedgehogs are widespread across the continent. They're thought to be the largest and heaviest of the hedgehog family. A nocturnal creature, the hedgehog can often be found in gardens snacking on its preferred diet of insects.
-> 
-> The European hedgehog is sometimes considered an invasive species. In New Zealand, for example, the hedgehog has no natural predators and threatens the food supply of native bush birds. But it's hard to blame such a cute little creature. With roughly 6,000 spines on its back, the hedgehog was, at one point, used as an unofficial symbol for NATO, chosen because it's a peaceful animal that has a rather pointed defense system.
-> 
-> 
-
-</details>
-
-| ![European hedgehog in Sussex, England](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European hedgehog in Sussex, England](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_1080x1920.jpg) |-:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_1080x1920.jpg) |x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
