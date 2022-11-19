@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221117
+
+> Bridge on the McKenzie River Trail, Willamette National Forest, Oregon (© Don Paulson/Danita Delimont)
+
+<details>
+<summary>Description</summary>
+
+> It's National Take a Hike Day, so what better time to lace up those boots and head out on a trail to pay homage to John Muir, the patron saint (not really) of US hiking. Muir was instrumental in persuading the government that enjoying nature is the right of every American and that there should be an official national park system. He saw the spectacular beauty of the American West when he walked through the Sierra Nevada in California, and was passionate about preserving the country's national wonders. In 1892, Muir founded the Sierra Club, an environmental organization that protects wild lands to this day.
+> 
+> The US boasts more than 60,000 miles of national trails, and you can choose coastal paths or mountain climbs, forest meanders or historical walks like Boston's Freedom Trail. Our photo shows Oregon's McKenzie River National Recreation Trail, part of the Willamette National Forest. This trail winds by lakes, rivers, and springs, guiding you through shady old-growth forests. One highlight: the view overlooking Tamolitch Blue Pool, a crystal-clear pool created by the river bubbling up into it.
+> 
+> 
+
+</details>
+
+| ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_1080x1920.jpg) |
+
 ### 20221116
 
 > Cliff dwellings in Mesa Verde National Park, Colorado (© Brad McGinley Photography/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Veterans Day](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Veterans Day](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_1080x1920.jpg) |
-
-### 20221110
-
-> Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)
-
-<details>
-<summary>Description</summary>
-
-> Forty-four years ago today, a rugged, inhospitable area of South Dakota was designated a national park to protect the many fossils found there. The region has a 12,000-year history as hunting grounds for Native Americans. In fact, the name we know it by today, Badlands, comes from the Lakota phrase 'mako sica,' which literally translates to 'bad lands.' Covering nearly 380 square miles, its harshly eroded rock formations make it one of the most distinct landscapes in the United States.
-> 
-> And it's still forming! The National Park Service says the Badlands erode about an inch every year, which is awfully fast as erosion goes. Scientists estimate that within the next half million years, the Badlands will have eroded away completely. Might want to start planning your visit soon.
-> 
-> 
-
-</details>
-
-| ![Badlands National Park turns 44](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Badlands National Park turns 44](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadLightning_EN-US0865590962_1080x1920.jpg) |-:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_1080x1920.jpg) |x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_1080x1920.jpg) |------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
 > 
 > 
