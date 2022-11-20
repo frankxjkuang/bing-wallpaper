@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221118
+
+> The gates of the Royal Palace (Dar al-Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The International Day of Islamic Art, proclaimed by UNESCO in 2019, occurs every November 18 to celebrate past and contemporary artistic expressions of Islam, and to highlight Islamic artists' contributions to world civilization. November 18 also marks Morocco's independence day, commemorating Sultan Muhammad V's return to Morocco from exile in November 1955.
+> 
+> Our image honors both of today's events: You're beholding the main gates of the Dar al-Makhzen, the royal palace of the King of Morocco in the city of Fez. While the palace was originally founded in 1276, these ornate gates were added in the 1960s and '70s, crafted of wood and bronze—plus intricate mosaic tiling, a hallmark of Islamic art both old and new.
+> 
+> 
+
+</details>
+
+| ![International Day of Islamic Art](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Islamic Art](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_1080x1920.jpg) |
+
 ### 20221117
 
 > Bridge on the McKenzie River Trail, Willamette National Forest, Oregon (© Don Paulson/Danita Delimont)
@@ -112,18 +131,7 @@
 
 | ![Alaska Bald Eagle Festival](https://cn.bing.com/th?id=OHR.HainesEagle_EN-US1470582706_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska Bald Eagle Festival](https://cn.bing.com/th?id=OHR.HainesEagle_EN-US1470582706_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HainesEagle_EN-US1470582706_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HainesEagle_EN-US1470582706_1080x1920.jpg) |
-
-### 20221111
-
-> The Vietnam Women's Memorial in Washington, DC (© Cvandyke/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> On the National Mall in Washington, DC, just north of the Reflecting Pool, is a sculpture honoring the women who served during the Vietnam War. The military efforts of women, less visible than those of men, are commemorated by the Vietnam Women's Memorial, featured today on Veterans Day. While Memorial Day honors those who died during military service, Veterans Day recognizes the service of all veterans, whether or not they served during a war. Veterans Day, a federal holiday, was originally known as Armistice Day and coincides with the anniversary of the end of World War I. For this reason, other countries also observe today as a holiday.
-> 
-> The Vietnam Women's Memorial was officially dedicated on Veterans Day in 1993. During the Vietnam War, 265,000 American women volunteered to serve. About 11,000 were stationed in Vietnam, most as nurses. Women were not allowed to serve in combat roles then as they are now. It took decades before their contributions were publicly acknowledged with the addition of this memorial. It depicts three uniformed women tending to a wounded soldier and reminds us of the roles women played during this and other wars, often behind the scenes, as nurses, physicians, air traffic controllers, translators, and intelligence officers.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HainesEagle_EN-US1470582706_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HainesEagle_EN-US1470582706_1080x1920.jpg) |lligence officers.
 > 
 > 
 
