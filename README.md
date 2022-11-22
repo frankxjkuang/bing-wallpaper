@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221120
+
+> 'World in Progress II,' a land art painting by Saype, United Nations Headquarters, New York City (© Valentin Flauraud/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Color, creativity, and fun are three things that go along with being a kid, so what better way to illustrate World Children's Day than with this huge (we're talking more than 100,000 square feet!) piece of 'land art' in New York City, painted by the French-Swiss artist known as Saype. Gifted to the United Nations by Switzerland in honor of the UN's 75th anniversary, 'World in Progress II,' shows two children busily drawing and using origami to create their ideal world.
+> 
+> World Children's Day launched in 1954 as Universal Children's Day, and it's always celebrated on November 20, the date in 1959 when the UN adopted the Declaration of the Rights of the Child. The day is meant to focus global attention on improving the lives of children around the world, and to foster equality and inclusion among the youngest generation. After all, children are our future!
+> 
+> 
+
+</details>
+
+| ![World Children's Day](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Children's Day](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_1080x1920.jpg) |
+
 ### 20221119
 
 > Virgin River in Zion National Park, Utah (© Jonathan Ross/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Castle ruins on the island of Halki, Greece](https://cn.bing.com/th?id=OHR.SanGiovanni_EN-US1675492729_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castle ruins on the island of Halki, Greece](https://cn.bing.com/th?id=OHR.SanGiovanni_EN-US1675492729_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SanGiovanni_EN-US1675492729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SanGiovanni_EN-US1675492729_1080x1920.jpg) |
-
-### 20221113
-
-> The Punch Bowl on the River Quoich in the Cairngorms, Aberdeenshire, Scotland (© AWL Images/Danita Delimont)
-
-<details>
-<summary>Description</summary>
-
-> In the eastern Highlands of Scotland, tucked into the forested plateaus of the Cairngorms mountain range, is a small but beloved river that runs through a ravine. The River Quoich is frequented by nature lovers, hikers, and intrepid paddlers willing to brave its surprisingly swift currents and its several waterfalls, including the one featured here, the Linn of Quoich. This spot is famous for the bowl-shaped cavity in the rock that you see on the left.
-> 
-> Called the Punch Bowl, this natural feature has become the star attraction for those who visit the river and take the 3-mile hike along its banks. According to lore, the Earl of Mar, the 18th-century nobleman who owned the forest, placed a ceremonial punch bowl atop the hole and drank from it after a successful deer hunt. Queen Victoria loved these pine woods and built a rustic lodge near the falls around 1850. While the beauty of the River Quoich is fit for a queen, you don't have to be royalty to enjoy it.
-> 
-> 
-
-</details>
-
-| ![River Quoich in Aberdeenshire, Scotland](https://cn.bing.com/th?id=OHR.PunchBowl_EN-US0351920520_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![River Quoich in Aberdeenshire, Scotland](https://cn.bing.com/th?id=OHR.PunchBowl_EN-US0351920520_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PunchBowl_EN-US0351920520_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PunchBowl_EN-US0351920520_1080x1920.jpg) |s.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SanGiovanni_EN-US1675492729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SanGiovanni_EN-US1675492729_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.PunchBowl_EN-US0351920520_1080x1920.jpg) |s.
 > 
 > 
 
