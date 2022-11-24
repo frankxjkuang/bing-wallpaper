@@ -2,69 +2,69 @@
 
 ### 20221122
 
-> 阿姆斯特丹供水沙丘自然保护区的赤狐，荷兰 (© Edwin Giesbers/Minden Pictures)
+> Red fox in Amsterdamse Waterleidingduinen Nature Reserve, Netherlands (© Edwin Giesbers/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 今天，让我们一起前往荷兰阿姆斯特丹供水沙丘自然保护区，去看一看那里的赤狐。这个自然保护区在阿姆斯特丹市以西8英里处。这里不仅有各种各样的动植物，还有数百个专门用于过滤雨水的沙丘。自19世纪以来，这些沙丘便一直是城市饮用水的来源。
+> Today we're heading to the Netherlands to visit the red foxes at the Amsterdamse Waterleidingduinen Nature Reserve. This protected area about 8 miles west of Amsterdam is host to not only a diverse assortment of plants and animals, but also hundreds of specially designed sand dunes that help filter rainwater. The Waterleidingduinen ('water supply dunes') have been the source of the city's drinking water since the 19th century.
 > 
-> 一直以来，人们经常在供水沙丘一带看见赤狐。作为世界上体型最大的狐狸，赤狐广泛分布于北半球。它们倾向于群居，年幼的小狐狸会帮助照顾下一代幼崽。然而，红狐并不满足于生活在森林，它们越来越多地移居到城市。不过在漫长历史里，狐狸与人类共存的事情并不鲜见，它们早就活跃在印第安、希腊、凯尔特和中国的民间传说中了。
+> Maybe for almost as long, red fox sightings have been common at the Waterleidingduinen. Red foxes are the world's largest foxes and are widespread across the Northern Hemisphere. They stick together with their families, the young often helping to care for the next generation of kits. Not fully content in the woods, red foxes are increasingly colonizing urban areas. It's just the latest move in a long history of foxes sharing the planet with humans, as they appear in the folklore of Native American, Greek, Celtic, and Chinese cultures.
 > 
 > 
 
 </details>
 
-| ![赤狐](https://cn.bing.com/th?id=OHR.Waterleidingduinen_ZH-CN1430683267_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![赤狐](https://cn.bing.com/th?id=OHR.Waterleidingduinen_ZH-CN1430683267_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Red fox in the Netherlands](https://cn.bing.com/th?id=OHR.Waterleidingduinen_EN-US9090200846_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red fox in the Netherlands](https://cn.bing.com/th?id=OHR.Waterleidingduinen_EN-US9090200846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Waterleidingduinen_ZH-CN1430683267_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Waterleidingduinen_ZH-CN1430683267_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Waterleidingduinen_EN-US9090200846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Waterleidingduinen_EN-US9090200846_1080x1920.jpg) |
 
 ### 20221121
 
-> 伊索拉贝拉岛，意大利马焦雷湖 (© Massimo Ripani/eStock)
+> Ahmad Bin Ali Stadium in Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 伊索拉贝拉岛属于意大利北部马焦雷湖的博罗梅安群岛。该岛位于博罗梅安湾，距离湖畔小镇斯特雷萨400米。全岛长320米、宽400米，分为宫殿、意大利花园和小渔村三部分。
+> Finally, after years of planning, building, and controversy, the 2022 World Cup is kicking off in Qatar. It's the biggest event on the international soccer calendar, bringing together the globe's top teams to proudly represent their countries. The prestigious World Cup tournament has been held every four years since 1930, except when WWII derailed it in 1942 and 1946. There will be fierce competition in Qatar as the champion French team seeks to defend their title, with the final scheduled for Qatar National Day, December 18. This is the first World Cup hosted by a country in the Middle East, and it's later in the year than usual due to the hot weather in Qatar.
 > 
-> 马西莫剧院是伊索拉贝拉最重要的古迹。剧院四周长满了各种花卉和植物，杜鹃、黄杨木、山茶、玫瑰、夹竹桃、柑橘树、绣球花……它们在不同的季节里编织出不同的风景，白孔雀在其间自由徜徉，这就是充满生机又让人赏心悦目的意大利式花园伊索拉贝拉。
+> Controversy swirled around Qatar 2022 from the get-go. Senior officials in FIFA, soccer's governing body, expressed concerns about corruption in the process of awarding World Cup hosting to Qatar, though an internal investigation didn't prove any violation. Soon Qatar's treatment of the country's invaluable 2 million migrant workers—most from Africa and Asia—was criticized, with groups like Amnesty International citing unethical labor practices. While Qatar enacted new laws to improve worker safety, conditions, and pay due to the international spotlight, Amnesty has stressed that these laws must also be effectively implemented. Perhaps the extent of the reforms will be revealed as soccer fans flood the nation and the TV cameras roll.
 > 
 > 
 
 </details>
 
-| ![意大利伊索拉贝拉岛](https://cn.bing.com/th?id=OHR.BorromeanIslands_ZH-CN0480730115_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![意大利伊索拉贝拉岛](https://cn.bing.com/th?id=OHR.BorromeanIslands_ZH-CN0480730115_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![2022 FIFA World Cup](https://cn.bing.com/th?id=OHR.FIFA2022_EN-US9006895256_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![2022 FIFA World Cup](https://cn.bing.com/th?id=OHR.FIFA2022_EN-US9006895256_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorromeanIslands_ZH-CN0480730115_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorromeanIslands_ZH-CN0480730115_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FIFA2022_EN-US9006895256_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FIFA2022_EN-US9006895256_1080x1920.jpg) |
 
 ### 20221120
 
-> 船底星云中的宇宙悬崖 (© NASA, ESA, CSA, and STScI)
+> 'World in Progress II,' a land art painting by Saype, United Nations Headquarters, New York City (© Valentin Flauraud/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 这片“山脉”和“山谷”点缀着闪闪发光的星星，实际上是船底座星云中一个名为NGC 3324的年轻恒星形成区域的边缘。这张由美国宇航局新的詹姆斯韦伯太空望远镜在红外光下拍摄的图像首次揭示了以前不可见的恒星诞生区域。被称为“宇宙悬崖”的这张看似立体的照片，在月光下的夜晚看起来像是崎岖的山脉。事实上，它是NGC 3324内巨大的气态腔的边缘，这张照片中最高的“峰”大约有7光年高。这个海绵状的区域是由星云中强烈的紫外线辐射和恒星风从位于气泡中心的巨大、炽热的年轻恒星中划出的，在这张图片所示的区域上方。
+> Color, creativity, and fun are three things that go along with being a kid, so what better way to illustrate World Children's Day than with this huge (we're talking more than 100,000 square feet!) piece of 'land art' in New York City, painted by the French-Swiss artist known as Saype. Gifted to the United Nations by Switzerland in honor of the UN's 75th anniversary, 'World in Progress II,' shows two children busily drawing and using origami to create their ideal world.
 > 
-> 
+> World Children's Day launched in 1954 as Universal Children's Day, and it's always celebrated on November 20, the date in 1959 when the UN adopted the Declaration of the Rights of the Child. The day is meant to focus global attention on improving the lives of children around the world, and to foster equality and inclusion among the youngest generation. After all, children are our future!
 > 
 > 
 
 </details>
 
-| ![宇宙悬崖，船底星云](https://cn.bing.com/th?id=OHR.CosmicCliffs_ZH-CN9555199651_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![宇宙悬崖，船底星云](https://cn.bing.com/th?id=OHR.CosmicCliffs_ZH-CN9555199651_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Children's Day](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Children's Day](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CosmicCliffs_ZH-CN9555199651_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CosmicCliffs_ZH-CN9555199651_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_1080x1920.jpg) |
 
 ### 20221119
 
-> 犹他州锡安国家公园的维尔京河，美国 (© Jonathan Ross/Getty)
+> Virgin River in Zion National Park, Utah (© Jonathan Ross/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 今天照片上展示的是维尔京河，它绵延16英里，切割出了壮丽的锡安峡谷。维尔京河流经锡安国家公园，该区域有许多当地特有的动植物。科罗拉多高原、大盆地和莫哈韦沙漠在这里交汇，形成了独特的交叉生物群落。若没有维尔京河的河水，当地的许多罕见动植物都会无法生存。
+> Our photo brings us to a 16-mile stretch of the Virgin River where it cuts a spectacular thousand-foot-deep gorge through the upper reaches of Utah's Zion Canyon. Flowing through Zion National Park (which turns 103 today!), the Virgin River is home to unique plants and animals that aren't found anywhere else, due to the unique intersection of biomes found where the Colorado Plateau, Great Basin, and Mojave Desert all meet. Without the water of the Virgin River system, creatures like the woundfin minnow, one of rarest species on the planet, couldn't exist.
 > 
 > 
 > 
@@ -72,87 +72,66 @@
 
 </details>
 
-| ![锡安国家公园](https://cn.bing.com/th?id=OHR.ZNPVR_ZH-CN0123954914_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![锡安国家公园](https://cn.bing.com/th?id=OHR.ZNPVR_ZH-CN0123954914_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Zion National Park turns 103](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Zion National Park turns 103](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZNPVR_ZH-CN0123954914_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZNPVR_ZH-CN0123954914_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_1080x1920.jpg) |
 
 ### 20221118
 
-> 菲斯皇宫的大门，摩洛哥 (© Adam Smigielski/Getty Images)
+> The gates of the Royal Palace (Dar al-Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 2019年，联合国教科文组织宣布将每年的11月18日定为“伊斯兰艺术国际日”，旨在宣传古代和现当代伊斯兰艺术，以及伊斯兰艺术对人类文明的贡献。11月18日也是摩洛哥的独立日，纪念摩洛哥苏丹穆罕默德五世1955年结束流亡回到摩洛哥。
+> The International Day of Islamic Art, proclaimed by UNESCO in 2019, occurs every November 18 to celebrate past and contemporary artistic expressions of Islam, and to highlight Islamic artists' contributions to world civilization. November 18 also marks Morocco's independence day, commemorating Sultan Muhammad V's return to Morocco from exile in November 1955.
 > 
-> 今天的照片展示的是菲斯皇宫的大门，这是摩洛哥国王在菲斯城的皇宫。宫殿本身建于1276年，而这些富丽堂皇的大门是在20世纪六七十年代建造的，由木头和青铜制成，辅以复杂的马赛克瓷砖，是古代和现当代伊斯兰艺术的象征。
+> Our image honors both of today's events: You're beholding the main gates of the Dar al-Makhzen, the royal palace of the King of Morocco in the city of Fez. While the palace was originally founded in 1276, these ornate gates were added in the 1960s and '70s, crafted of wood and bronze—plus intricate mosaic tiling, a hallmark of Islamic art both old and new.
 > 
 > 
 
 </details>
 
-| ![伊斯兰艺术国际日](https://cn.bing.com/th?id=OHR.IslamicArt_ZH-CN9972614185_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![伊斯兰艺术国际日](https://cn.bing.com/th?id=OHR.IslamicArt_ZH-CN9972614185_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Day of Islamic Art](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Islamic Art](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IslamicArt_ZH-CN9972614185_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IslamicArt_ZH-CN9972614185_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_1080x1920.jpg) |
 
 ### 20221117
 
-> 威拉米特国家森林麦肯齐河步道上的桥，美国 (© Don Paulson/Danita Delimont)
+> Bridge on the McKenzie River Trail, Willamette National Forest, Oregon (© Don Paulson/Danita Delimont)
 
 <details>
 <summary>Description</summary>
 
-> 今天照片里的是俄勒冈州的麦肯齐河国家休闲步道，它是威拉米特国家森林的一部分。这条小径蜿蜒经过湖泊、河流和泉水，带你穿过郁郁葱葱的古老森林。这段旅途的一个亮点是，你可以俯瞰幽蓝的塔默里克潭，这里的潭水由河水汇集而成，如蓝宝石般清澈透亮。
+> It's National Take a Hike Day, so what better time to lace up those boots and head out on a trail to pay homage to John Muir, the patron saint (not really) of US hiking. Muir was instrumental in persuading the government that enjoying nature is the right of every American and that there should be an official national park system. He saw the spectacular beauty of the American West when he walked through the Sierra Nevada in California, and was passionate about preserving the country's national wonders. In 1892, Muir founded the Sierra Club, an environmental organization that protects wild lands to this day.
 > 
-> 
+> The US boasts more than 60,000 miles of national trails, and you can choose coastal paths or mountain climbs, forest meanders or historical walks like Boston's Freedom Trail. Our photo shows Oregon's McKenzie River National Recreation Trail, part of the Willamette National Forest. This trail winds by lakes, rivers, and springs, guiding you through shady old-growth forests. One highlight: the view overlooking Tamolitch Blue Pool, a crystal-clear pool created by the river bubbling up into it.
 > 
 > 
 
 </details>
 
-| ![麦肯齐河步道上的一座桥](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_ZH-CN3786429850_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![麦肯齐河步道上的一座桥](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_ZH-CN3786429850_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_ZH-CN3786429850_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_ZH-CN3786429850_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_1080x1920.jpg) |
 
 ### 20221116
 
-> 梅萨维德国家公园的悬崖宫，美国 (© Brad McGinley Photography/Getty Images)
+> Cliff dwellings in Mesa Verde National Park, Colorado (© Brad McGinley Photography/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 1972年11月16日，联合国教科文组织通过了《保护世界文化和自然遗产公约》，首次将自然保护和文化遗产保护的概念联系起来。这个公约的起源要追溯到上世纪60年代初，埃及修建阿斯旺大坝时，尼罗河水将淹没阿布辛贝勒神庙的原址，为保护这个人类文明的历史见证和文化瑰宝，世界各国展开了积极合作，最终《保护世界文化和自然遗产公约》诞生了。
+> At its World Heritage Convention on November 16, 1972, UNESCO adopted an international treaty that for the first time linked the concepts of nature conservation and preservation of cultural properties. The World Heritage Sites program was sparked by Egypt's plans to construct the Aswan High Dam. UNESCO helped save thousands of antiquities that would have been lost as a result of the dam, which flooded a large swath of the Nile Valley.
 > 
-> 梅萨维德国家公园是普韦布洛人生活了七个世纪的地方，在1978年被联合国教科文组织列为首批世界遗产之一。
+> Colorado's Mesa Verde National Park, where Ancestral Puebloans lived for seven centuries, was among the first World Heritage Sites chosen by the UNESCO committee, in 1978.
 > 
 > 
 
 </details>
 
-| ![《保护世界文化和自然遗产公约》50周年](https://cn.bing.com/th?id=OHR.Unesco50_ZH-CN3652927413_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![《保护世界文化和自然遗产公约》50周年](https://cn.bing.com/th?id=OHR.Unesco50_ZH-CN3652927413_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![50 years of World Heritage Sites](https://cn.bing.com/th?id=OHR.Unesco50_EN-US1537915198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![50 years of World Heritage Sites](https://cn.bing.com/th?id=OHR.Unesco50_EN-US1537915198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Unesco50_ZH-CN3652927413_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Unesco50_ZH-CN3652927413_1080x1920.jpg) |n.bing.com/th?id=OHR.LontraCanadensis_EN-US1791102347_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LontraCanadensis_EN-US1791102347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LontraCanadensis_EN-US1791102347_1080x1920.jpg) |
-
-### 20221114
-
-> Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)
-
-<details>
-<summary>Description</summary>
-
-> Halki, a tiny Greek island in the Aegean Sea, is the type of place you go to when you need a getaway from your getaway. Off the beaten path, Halki is quiet and sleepy when other Greek islands are flush with visitors. The only way to arrive is by ferry. Halki, with a total area of just 11 sun-kissed square miles, is the smallest inhabited island in the Dodecanese island group.
-> 
-> One of the most popular attractions on Halki is the ruins of this medieval castle built by the Knights of St. John in the 14th century in the now abandoned village of Chorio on the island's south-facing shore. It's a short, uphill walk from the only town on the island, the port village of Emporio, where most of the island's few hundred permanent residents live. A significant portion of the population left in the mid-20th century, many of them settling in the Gulf Coast town of Tarpon Springs, Florida, which lays claim to having the highest percentage of Greek Americans of any US city. People from Halki and other Greek islands were lured to Tarpon Springs to work as sponge divers, a skill they honed for generations in Greece. These days, not much goes on in Halki beyond eating, relaxing, and swimming. Like all Greek islands, Halki has beautiful beaches. Here, you're more likely to have them all to yourself.
-> 
-> 
-
-</details>
-
-| ![Castle ruins on the island of Halki, Greece](https://cn.bing.com/th?id=OHR.SanGiovanni_EN-US1675492729_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castle ruins on the island of Halki, Greece](https://cn.bing.com/th?id=OHR.SanGiovanni_EN-US1675492729_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SanGiovanni_EN-US1675492729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SanGiovanni_EN-US1675492729_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.PunchBowl_EN-US0351920520_1080x1920.jpg) |s.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Unesco50_EN-US1537915198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Unesco50_EN-US1537915198_1080x1920.jpg) |i_EN-US1675492729_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.PunchBowl_EN-US0351920520_1080x1920.jpg) |s.
 > 
 > 
 
