@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221123
+
+> Sunflower (© Dileep Chandran/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> The sunflower is an eye-catcher, growing to the sky and brightly singing of summer no matter the time of year. Helianthus annuus is native to the Americas, and its flowering head is actually made up of more tiny flowers that mature into seeds (and, of course, get eaten around the world). But did you know that sunflowers also bring one of nature's mathematical wonders to life?
+> 
+> The gorgeous sunflower displays its seeds in two spirals that twist and curve in opposite directions, fanning out from the center to the golden petals. If you mapped either of those spirals on a graph, they would closely follow the Fibonacci sequence (1, 1, 2, 3, 5, 8, 13, 21…), where you add a number to the one before it to get the next number. While the famous spiral formula is attributed to Fibonacci, the 13th-century Italian math whiz, scholars in India described the sequence centuries before him—and they probably weren't the first to figure it out either. But regardless of the origin story, each November 23 (11/23…get it?) we celebrate the infinite series known as the Fibonacci sequence.
+> 
+> 
+
+</details>
+
+| ![Fibonacci Day](https://cn.bing.com/th?id=OHR.HelianthusAnnuus_EN-US9168789034_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fibonacci Day](https://cn.bing.com/th?id=OHR.HelianthusAnnuus_EN-US9168789034_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelianthusAnnuus_EN-US9168789034_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelianthusAnnuus_EN-US9168789034_1080x1920.jpg) |
+
 ### 20221122
 
 > Red fox in Amsterdamse Waterleidingduinen Nature Reserve, Netherlands (© Edwin Giesbers/Minden Pictures)
@@ -112,33 +131,7 @@
 
 | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_1080x1920.jpg) |
-
-### 20221116
-
-> Cliff dwellings in Mesa Verde National Park, Colorado (© Brad McGinley Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> At its World Heritage Convention on November 16, 1972, UNESCO adopted an international treaty that for the first time linked the concepts of nature conservation and preservation of cultural properties. The World Heritage Sites program was sparked by Egypt's plans to construct the Aswan High Dam. UNESCO helped save thousands of antiquities that would have been lost as a result of the dam, which flooded a large swath of the Nile Valley.
-> 
-> Colorado's Mesa Verde National Park, where Ancestral Puebloans lived for seven centuries, was among the first World Heritage Sites chosen by the UNESCO committee, in 1978.
-> 
-> 
-
-</details>
-
-| ![50 years of World Heritage Sites](https://cn.bing.com/th?id=OHR.Unesco50_EN-US1537915198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![50 years of World Heritage Sites](https://cn.bing.com/th?id=OHR.Unesco50_EN-US1537915198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Unesco50_EN-US1537915198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Unesco50_EN-US1537915198_1080x1920.jpg) |i_EN-US1675492729_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.PunchBowl_EN-US0351920520_1080x1920.jpg) |s.
-> 
-> 
-
-</details>
-
-| ![Veterans Day](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Veterans Day](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_1080x1920.jpg) |------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
 > 
