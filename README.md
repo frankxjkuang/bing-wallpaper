@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221124
+
+> Cranberry bog (© SHSPhotography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Whether made from scratch or plopped out of a can, your cranberry sauce started in a bog like the one seen here. Cranberry shrubs are planted in beds surrounded by dikes. Once the fruit ripens in the fall, the beds are flooded with water, creating bogs full of submerged shrubs. A harvester machine dislodges the berries, which float to the top of the water. Then they're easily corralled on the surface with flexible booms.
+> 
+> The very sour cranberries will need to be further processed, with lots and lots of sugar, to be palatable as turkey's best friend on the Thanksgiving table. Cranberries grow wild in the wetlands of North America and were an important food for Native Americans, who used them to make pemmican, a nutritious paste of berries, dried meat, and fat. Today, the US accounts for more than half of commercially grown cranberries in the world.
+> 
+> 
+
+</details>
+
+| ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.CranberryBog_EN-US4145520322_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.CranberryBog_EN-US4145520322_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CranberryBog_EN-US4145520322_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CranberryBog_EN-US4145520322_1080x1920.jpg) |
+
 ### 20221123
 
 > Sunflower (© Dileep Chandran/Alamy)
@@ -112,24 +131,7 @@
 
 | ![International Day of Islamic Art](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Islamic Art](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_1080x1920.jpg) |
-
-### 20221117
-
-> Bridge on the McKenzie River Trail, Willamette National Forest, Oregon (© Don Paulson/Danita Delimont)
-
-<details>
-<summary>Description</summary>
-
-> It's National Take a Hike Day, so what better time to lace up those boots and head out on a trail to pay homage to John Muir, the patron saint (not really) of US hiking. Muir was instrumental in persuading the government that enjoying nature is the right of every American and that there should be an official national park system. He saw the spectacular beauty of the American West when he walked through the Sierra Nevada in California, and was passionate about preserving the country's national wonders. In 1892, Muir founded the Sierra Club, an environmental organization that protects wild lands to this day.
-> 
-> The US boasts more than 60,000 miles of national trails, and you can choose coastal paths or mountain climbs, forest meanders or historical walks like Boston's Freedom Trail. Our photo shows Oregon's McKenzie River National Recreation Trail, part of the Willamette National Forest. This trail winds by lakes, rivers, and springs, guiding you through shady old-growth forests. One highlight: the view overlooking Tamolitch Blue Pool, a crystal-clear pool created by the river bubbling up into it.
-> 
-> 
-
-</details>
-
-| ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_1080x1920.jpg) |------:|:---------:|
