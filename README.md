@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221125
+
+> Monks Mound at the Cahokia Mounds UNESCO World Heritage Site near Collinsville, Illinois (© Matthew Gush/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Today we mark Native American Heritage Day and Month with the imposing pyramid now known as Monks Mound, once the center of a city that rivaled any European city of the age in population. Built by people of the Mississippian culture, construction of Monks Mound began early in the 900s CE in present day southern Illinois. By around 1050 the area had grown into a major hub of commerce and agriculture now known as Cahokia. With a population that may have exceeded 40,000 at its peak, Cahokia was the largest urban center north of the great Mesoamerican cities of Mexico and Central America. In the 13th century, for reasons still debated by scholars, the city began to decline, and it was abandoned around 1350. Excavations in the 19th and 20th century revealed a society far more sophisticated and complex than many had believed existed north of Mesoamerica previously.
+> 
+> Native American Heritage Month celebrates the rich traditions, languages, and stories of Native American, Alaska Native, Native Hawaiian, and Island communities.  Public schools are encouraged to enhance student understanding of Native Americans by providing classroom instruction focusing on Indigenous history, achievements, and contributions, while many government institutions make efforts to recognize the contributions of the first Americans.
+> 
+> 
+
+</details>
+
+| ![Native American Heritage Day](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Native American Heritage Day](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |
+
 ### 20221124
 
 > Cranberry bog (© SHSPhotography/Getty Images)
@@ -112,30 +131,7 @@
 
 | ![Zion National Park turns 103](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Zion National Park turns 103](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_1080x1920.jpg) |
-
-### 20221118
-
-> The gates of the Royal Palace (Dar al-Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The International Day of Islamic Art, proclaimed by UNESCO in 2019, occurs every November 18 to celebrate past and contemporary artistic expressions of Islam, and to highlight Islamic artists' contributions to world civilization. November 18 also marks Morocco's independence day, commemorating Sultan Muhammad V's return to Morocco from exile in November 1955.
-> 
-> Our image honors both of today's events: You're beholding the main gates of the Dar al-Makhzen, the royal palace of the King of Morocco in the city of Fez. While the palace was originally founded in 1276, these ornate gates were added in the 1960s and '70s, crafted of wood and bronze—plus intricate mosaic tiling, a hallmark of Islamic art both old and new.
-> 
-> 
-
-</details>
-
-| ![International Day of Islamic Art](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Islamic Art](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_EN-US2967958579_1080x1920.jpg) |---:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WomensMemorialMall_EN-US1199151625_1080x1920.jpg) |------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
 > 
 > 
 
