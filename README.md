@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221126
+
+> An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> While not everyone would recognize this as an olive tree, most of us understand the meaning of the phrase 'extending an olive branch,' long known as a gesture of peace and friendship. That sentiment of compassion, harmony, and wisdom is at the heart of UNESCO's World Olive Tree Day, created in 2019 and observed every November 26. The intent of the day is to bring attention to the resolution of conflict worldwide and to the preservation of the olive tree itself, like this one standing in front of the Temple of Concordia in Agrigento, Italy. The well-preserved, Greek Doric temple was built on what is now the south shore of Sicily, around 440 BCE. Olive trees are native to the coastal regions of the Mediterranean and are cultivated today in places with similar climates, like parts of California and Israel. About 90% of harvested olives are used to make olive oil, the quintessential ingredient in Mediterranean cooking.
+> 
+> The cultivation of olives is about as old as human civilization itself, as are some of the trees themselves. Although olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+> 
+> 
+
+</details>
+
+| ![World Olive Tree Day](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Olive Tree Day](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |
+
 ### 20221125
 
 > Monks Mound at the Cahokia Mounds UNESCO World Heritage Site near Collinsville, Illinois (© Matthew Gush/Alamy)
@@ -112,32 +131,7 @@
 
 | ![World Children's Day](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Children's Day](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_1080x1920.jpg) |
-
-### 20221119
-
-> Virgin River in Zion National Park, Utah (© Jonathan Ross/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Our photo brings us to a 16-mile stretch of the Virgin River where it cuts a spectacular thousand-foot-deep gorge through the upper reaches of Utah's Zion Canyon. Flowing through Zion National Park (which turns 103 today!), the Virgin River is home to unique plants and animals that aren't found anywhere else, due to the unique intersection of biomes found where the Colorado Plateau, Great Basin, and Mojave Desert all meet. Without the water of the Virgin River system, creatures like the woundfin minnow, one of rarest species on the planet, couldn't exist.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Zion National Park turns 103](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Zion National Park turns 103](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZNPVR_EN-US8821805600_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Trossachs_EN-US0183507678_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliBioshere_EN-US9391999022_1080x1920.jpg) |it did, but just barely. After liftoff, it flew at 135 mph roughly 70 feet above the water. It cruised for about a mile for a whopping 26 seconds. 'I put the sweat of my life into this thing,' Hughes had said just a few months prior, vowing to leave the country if it was a failure. Failure is in the eye of the beholder, however, as Hughes never left and his spending of government funds was considered reasonable, because, technically, the Spruce Goose did fly.
-> 
-> 
-
-</details>
-
-| ![75th anniversary of the 'Spruce Goose'](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![75th anniversary of the 'Spruce Goose'](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_1080x1920.jpg) |w=400&h=224&rs=1&c=4) | ![75th anniversary of the 'Spruce Goose'](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_1080x1920.jpg) |/details>
 
