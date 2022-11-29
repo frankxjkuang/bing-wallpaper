@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221127
+
+> Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> No doubt your eyes are drawn to the large, silver-bluish leaf in today's photo, but there's a little more to this colorful display. We're on the floor of a Mexican rainforest to examine a large Cecropia leaf and some lobster claw petals. The genus called Cecropia contains some of the most recognizable neotropical trees anywhere, but the roughly 60 different species can be hard to tell apart. All Cecropias grow fast, by tree standards anyway. On average, they'll climb about 2.5 feet per year and under perfect conditions can grow as much as 10 feet in that time, eventually reaching around 60 feet tall. When dried, Cecropia leaves shrivel into a fist-like form which displays interesting patterns and shapes. Not only are Cecropias very popular with animals like sloths, monkeys, and toucans for their fruit and leaves, many species have a symbiotic relationship with Azteca ants. Cecropias provide shelter and food for ants, and the ants in turn defend the trees from plant-eating predators.
+> 
+> The other striking leaves here are cup-shaped flower petals of the hanging lobster claw plant, or what botanists call the Heliconia rostrata. With its bright colors and distinctive shape, the lobster claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
+> 
+> 
+
+</details>
+
+| ![Cecropia leaf and lobster claw petals in Mexico](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cecropia leaf and lobster claw petals in Mexico](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |
+
 ### 20221126
 
 > An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)
@@ -112,30 +131,7 @@
 
 | ![2022 FIFA World Cup](https://cn.bing.com/th?id=OHR.FIFA2022_EN-US9006895256_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![2022 FIFA World Cup](https://cn.bing.com/th?id=OHR.FIFA2022_EN-US9006895256_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FIFA2022_EN-US9006895256_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FIFA2022_EN-US9006895256_1080x1920.jpg) |
-
-### 20221120
-
-> 'World in Progress II,' a land art painting by Saype, United Nations Headquarters, New York City (© Valentin Flauraud/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Color, creativity, and fun are three things that go along with being a kid, so what better way to illustrate World Children's Day than with this huge (we're talking more than 100,000 square feet!) piece of 'land art' in New York City, painted by the French-Swiss artist known as Saype. Gifted to the United Nations by Switzerland in honor of the UN's 75th anniversary, 'World in Progress II,' shows two children busily drawing and using origami to create their ideal world.
-> 
-> World Children's Day launched in 1954 as Universal Children's Day, and it's always celebrated on November 20, the date in 1959 when the UN adopted the Declaration of the Rights of the Child. The day is meant to focus global attention on improving the lives of children around the world, and to foster equality and inclusion among the youngest generation. After all, children are our future!
-> 
-> 
-
-</details>
-
-| ![World Children's Day](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Children's Day](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_1080x1920.jpg) |w=400&h=224&rs=1&c=4) | ![75th anniversary of the 'Spruce Goose'](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpruceGoose_EN-US0021752220_1080x1920.jpg) |/details>
-
-| ![Día de los Muertos celebrations in Mexico](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Día de los Muertos celebrations in Mexico](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FIFA2022_EN-US9006895256_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FIFA2022_EN-US9006895256_1080x1920.jpg) |920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
