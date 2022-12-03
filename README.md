@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221201
+
+> Paradise Harbour, Antarctica (© SinghaphanAllB/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The most isolated continent in the world is hands down the polar desert that is Antarctica, the coldest, driest, and windiest continent on Earth. Inhospitable as it sounds, Antarctica, which lies almost completely below the Antarctic Circle, is also a place of stunning beauty as evidenced by this image of Paradise Harbour, aka Paradise Bay, near the tip of the Antarctic Peninsula. Antarctica is also extraordinarily vulnerable to the effects of climate change, worth remembering today on Antarctica Day, which marks the anniversary of the signing of the 1959 Antarctic Treaty. The international agreement protects Antarctica as a scientific preserve.
+> 
+> The Antarctic Peninsula is the northernmost part of Antarctica and the closest to South America, making it relatively accessible. Paradise Harbour is one of the most-visited places on the continent, and a regular stop for cruise ships. The area is home to a thriving colony of penguins and is an excellent place to see glacial calving. While the loss of glacial ice is normal, the process has accelerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
+> 
+> 
+
+</details>
+
+| ![Antarctica Day](https://cn.bing.com/th?id=OHR.AntarcticaDay_EN-US9921573438_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Antarctica Day](https://cn.bing.com/th?id=OHR.AntarcticaDay_EN-US9921573438_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AntarcticaDay_EN-US9921573438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AntarcticaDay_EN-US9921573438_1080x1920.jpg) |
+
 ### 20221130
 
 > The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)
@@ -112,30 +131,7 @@
 
 | ![Native American Heritage Day](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Native American Heritage Day](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |
-
-### 20221124
-
-> Cranberry bog (© SHSPhotography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Whether made from scratch or plopped out of a can, your cranberry sauce started in a bog like the one seen here. Cranberry shrubs are planted in beds surrounded by dikes. Once the fruit ripens in the fall, the beds are flooded with water, creating bogs full of submerged shrubs. A harvester machine dislodges the berries, which float to the top of the water. Then they're easily corralled on the surface with flexible booms.
-> 
-> The very sour cranberries will need to be further processed, with lots and lots of sugar, to be palatable as turkey's best friend on the Thanksgiving table. Cranberries grow wild in the wetlands of North America and were an important food for Native Americans, who used them to make pemmican, a nutritious paste of berries, dried meat, and fat. Today, the US accounts for more than half of commercially grown cranberries in the world.
-> 
-> 
-
-</details>
-
-| ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.CranberryBog_EN-US4145520322_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.CranberryBog_EN-US4145520322_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CranberryBog_EN-US4145520322_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CranberryBog_EN-US4145520322_1080x1920.jpg) |nthusAnnuus_EN-US9168789034_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelianthusAnnuus_EN-US9168789034_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelianthusAnnuus_EN-US9168789034_1080x1920.jpg) |_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.FIFA2022_EN-US9006895256_1080x1920.jpg) |920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
