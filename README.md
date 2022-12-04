@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221202
+
+> Tlikakila River Delta in Lake Clark National Park, Alaska (© Dawn Wilson Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On this day in 1980, the single largest expansion of protected lands in history doubled the size of the US National Park System. As a result, Alaska now has eight national parks, plus numerous monuments and preserves that protect more than 157 million total acres. When President Jimmy Carter signed the Alaska National Interest Lands Conservation Act, the public was granted the right to appreciate stunning locations like the one in today's photo: the braided river delta of the 51-mile-long Tlikakila River in Lake Clark National Park.
+> 
+> In the native Athabaskan language, Tlikakila literally means 'salmon are there river.' The park is known for its salmon-laden waterways and the fish are of major importance to the local economy and ecosystem. Local bear populations benefit from the excess salmon, and bear watching is very popular at Lake Clark. The abundance of salmon has also benefited a wolf pack within the park—the only one in the world known to be solely dependent on salmon.
+> 
+> 
+
+</details>
+
+| ![Alaska National Interest Lands Conservation Act marks 42 years](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska National Interest Lands Conservation Act marks 42 years](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |
+
 ### 20221201
 
 > Paradise Harbour, Antarctica (© SinghaphanAllB/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![World Olive Tree Day](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Olive Tree Day](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |
-
-### 20221125
-
-> Monks Mound at the Cahokia Mounds UNESCO World Heritage Site near Collinsville, Illinois (© Matthew Gush/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Today we mark Native American Heritage Day and Month with the imposing pyramid now known as Monks Mound, once the center of a city that rivaled any European city of the age in population. Built by people of the Mississippian culture, construction of Monks Mound began early in the 900s CE in present day southern Illinois. By around 1050 the area had grown into a major hub of commerce and agriculture now known as Cahokia. With a population that may have exceeded 40,000 at its peak, Cahokia was the largest urban center north of the great Mesoamerican cities of Mexico and Central America. In the 13th century, for reasons still debated by scholars, the city began to decline, and it was abandoned around 1350. Excavations in the 19th and 20th century revealed a society far more sophisticated and complex than many had believed existed north of Mesoamerica previously.
-> 
-> Native American Heritage Month celebrates the rich traditions, languages, and stories of Native American, Alaska Native, Native Hawaiian, and Island communities.  Public schools are encouraged to enhance student understanding of Native Americans by providing classroom instruction focusing on Indigenous history, achievements, and contributions, while many government institutions make efforts to recognize the contributions of the first Americans.
-> 
-> 
-
-</details>
-
-| ![Native American Heritage Day](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Native American Heritage Day](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
