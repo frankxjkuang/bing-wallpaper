@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221203
+
+> Miami Beach, Florida (© Matteo Colombo/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Every December the center of the art world convenes not in New York, Tokyo, or London, but in a town known more for its wide sandy beaches, café Cubano, and conga rhythms. Art Basel Miami Beach, which wraps up its three-day run today, is the American leg of an international art fair also staged in Basel, Switzerland (where the festival started in 1970), Hong Kong, and Paris. The event, now 20 years old, is the most comprehensive contemporary art fair in North America, attracting thousands of artists, dealers, collectors, appreciators, and just fun-seeking tourists for this annual burst of creativity steps from the sand.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Art Basel Miami Beach](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Art Basel Miami Beach](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_1080x1920.jpg) |
+
 ### 20221202
 
 > Tlikakila River Delta in Lake Clark National Park, Alaska (© Dawn Wilson Photography/Getty Images)
@@ -112,18 +131,7 @@
 
 | ![Cecropia leaf and lobster claw petals in Mexico](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cecropia leaf and lobster claw petals in Mexico](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |
-
-### 20221126
-
-> An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> While not everyone would recognize this as an olive tree, most of us understand the meaning of the phrase 'extending an olive branch,' long known as a gesture of peace and friendship. That sentiment of compassion, harmony, and wisdom is at the heart of UNESCO's World Olive Tree Day, created in 2019 and observed every November 26. The intent of the day is to bring attention to the resolution of conflict worldwide and to the preservation of the olive tree itself, like this one standing in front of the Temple of Concordia in Agrigento, Italy. The well-preserved, Greek Doric temple was built on what is now the south shore of Sicily, around 440 BCE. Olive trees are native to the coastal regions of the Mediterranean and are cultivated today in places with similar climates, like parts of California and Israel. About 90% of harvested olives are used to make olive oil, the quintessential ingredient in Mediterranean cooking.
-> 
-> The cultivation of olives is about as old as human civilization itself, as are some of the trees themselves. Although olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
