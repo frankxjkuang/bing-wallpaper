@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221204
+
+> Elephants near Mount Kilimanjaro, Amboseli National Park, Kenya (© Diana Robinson Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> We're taking a walk with these beautiful beasts for World Wildlife Conservation Day. Tanzania's Mount Kilimanjaro, known as the Great White Mountain to local tribes, stands sentinel as these African bush elephants cross the vast savannahs of Amboseli National Park in Kenya. Habitat loss and poaching for ivory have decimated the populations of the bush elephant and its cousin the forest elephant, which roams the nearby foothills of Kilimanjaro.
+> 
+> Today is an occasion to recognize our planet's fragile ecosystem and the daily impact humans have on biodiversity. It's up to all of us to help these elephants keep roaming.
+> 
+> 
+
+</details>
+
+| ![World Wildlife Conservation Day](https://cn.bing.com/th?id=OHR.KilimanjaroElephants_EN-US1249382486_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Wildlife Conservation Day](https://cn.bing.com/th?id=OHR.KilimanjaroElephants_EN-US1249382486_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KilimanjaroElephants_EN-US1249382486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KilimanjaroElephants_EN-US1249382486_1080x1920.jpg) |
+
 ### 20221203
 
 > Miami Beach, Florida (© Matteo Colombo/Getty Images)
@@ -112,18 +131,7 @@
 
 | ![Red Planet Day](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red Planet Day](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |
-
-### 20221127
-
-> Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> No doubt your eyes are drawn to the large, silver-bluish leaf in today's photo, but there's a little more to this colorful display. We're on the floor of a Mexican rainforest to examine a large Cecropia leaf and some lobster claw petals. The genus called Cecropia contains some of the most recognizable neotropical trees anywhere, but the roughly 60 different species can be hard to tell apart. All Cecropias grow fast, by tree standards anyway. On average, they'll climb about 2.5 feet per year and under perfect conditions can grow as much as 10 feet in that time, eventually reaching around 60 feet tall. When dried, Cecropia leaves shrivel into a fist-like form which displays interesting patterns and shapes. Not only are Cecropias very popular with animals like sloths, monkeys, and toucans for their fruit and leaves, many species have a symbiotic relationship with Azteca ants. Cecropias provide shelter and food for ants, and the ants in turn defend the trees from plant-eating predators.
-> 
-> The other striking leaves here are cup-shaped flower petals of the hanging lobster claw plant, or what botanists call the Heliconia rostrata. With its bright colors and distinctive shape, the lobster claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
 > 
 
