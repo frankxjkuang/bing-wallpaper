@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221206
+
+> A great egret in Everglades National Park, Florida (© Troy Harrison/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> We're heading down to Florida today to celebrate the 75th year of Everglades National Park, the largest tropical wilderness in the United States. The park was established in 1947 to defend a fragile ecosystem and covers about 20% of the entire Everglades wetland. But even with the park service's protection, the Everglades' features, primarily shallow freshwater pools, have suffered significantly due to human activity.
+> 
+> For example, the park is the most important North American breeding ground for wading birds, like the great egret seen in today's photo. Though great egrets are a robust and widespread species, breeding pairs in the park have declined to a tenth of what they once were. And great egrets are just one of 40 species native to Florida listed as endangered or threatened in the Everglades—so one can see why this unique corner of the country demands protection.
+> 
+> 
+
+</details>
+
+| ![Everglades National Park turns 75](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Everglades National Park turns 75](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_1080x1920.jpg) |
+
 ### 20221205
 
 > Saint Nicholas Day in Verbier, Switzerland (© Denis Balibouse/Reuters)
@@ -112,26 +131,7 @@
 
 | ![Old Town of Rovinj, Croatia](https://cn.bing.com/th?id=OHR.RovinjCroatia_EN-US9834093615_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Old Town of Rovinj, Croatia](https://cn.bing.com/th?id=OHR.RovinjCroatia_EN-US9834093615_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RovinjCroatia_EN-US9834093615_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RovinjCroatia_EN-US9834093615_1080x1920.jpg) |
-
-### 20221129
-
-> Great blue herons building a nest in Wakodahatchee Wetlands, Delray Beach, Florida (© Imagebroker/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> The largest heron in North America, the great blue heron makes its nest in a 'basket' made from twigs, usually placed high in a tree. The herons line the interior with moss, leaves, grass, and other softer materials, and tend to return to the same nesting site each year, though not the same nest. The male heron finds building materials while the female assembles the nest, then both birds maintain and add to it. The helpful male heron shown here is presenting his mate with nesting material—he seems an apt mascot for this year's Giving Tuesday.
-> 
-> Always observed on the Tuesday after Thanksgiving in the US, Giving Tuesday began in 2012. It has since spread around the globe, as other countries have embraced the idea. The purpose of the observance is to encourage everyone to set aside some time to do something good for others. So this year, after you've finished your shopping, think about contributing to your favorite nonprofit, giving to someone in need, or just helping someone build their nest.
-> 
-> 
-
-</details>
-
-| ![Giving Tuesday](https://cn.bing.com/th?id=OHR.HeronGiving_EN-US9774285216_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Giving Tuesday](https://cn.bing.com/th?id=OHR.HeronGiving_EN-US9774285216_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HeronGiving_EN-US9774285216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HeronGiving_EN-US9774285216_1080x1920.jpg) |693219784_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red Planet Day](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RovinjCroatia_EN-US9834093615_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RovinjCroatia_EN-US9834093615_1080x1920.jpg) |85216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HeronGiving_EN-US9774285216_1080x1920.jpg) |693219784_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red Planet Day](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
