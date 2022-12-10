@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221208
+
+> The Cathedral of Florence, Italy (© Alexander Baert/Amazing Aerial Agency)
+
+<details>
+<summary>Description</summary>
+
+> Considered the birthplace of the Renaissance, Florence helped lead Europe out of the Middle Ages as a center of politics, finance, art, and culture. Seven-odd centuries later, it's a snap to get aerial views of that era's marvels, like the Cathedral of Santa Maria del Fiore (known more simply as the Cathedral of Florence). A crowning achievement in a city of crowning achievements, the complex includes a campanile, or bell tower, and a white-roofed baptistery in addition to the cathedral with its grand dome.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![The Cathedral of Florence, Italy](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Cathedral of Florence, Italy](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_1080x1920.jpg) |
+
 ### 20221207
 
 > Mokoli'I Island in Kaneohe Bay, seen from Kualoa Regional Park, Oahu, Hawaii (© Riddhish Chakraborty/Getty Images)
@@ -112,18 +131,7 @@
 
 | ![Alaska National Interest Lands Conservation Act marks 42 years](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska National Interest Lands Conservation Act marks 42 years](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |
-
-### 20221201
-
-> Paradise Harbour, Antarctica (© SinghaphanAllB/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The most isolated continent in the world is hands down the polar desert that is Antarctica, the coldest, driest, and windiest continent on Earth. Inhospitable as it sounds, Antarctica, which lies almost completely below the Antarctic Circle, is also a place of stunning beauty as evidenced by this image of Paradise Harbour, aka Paradise Bay, near the tip of the Antarctic Peninsula. Antarctica is also extraordinarily vulnerable to the effects of climate change, worth remembering today on Antarctica Day, which marks the anniversary of the signing of the 1959 Antarctic Treaty. The international agreement protects Antarctica as a scientific preserve.
-> 
-> The Antarctic Peninsula is the northernmost part of Antarctica and the closest to South America, making it relatively accessible. Paradise Harbour is one of the most-visited places on the continent, and a regular stop for cruise ships. The area is home to a thriving colony of penguins and is an excellent place to see glacial calving. While the loss of glacial ice is normal, the process has accelerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
 > 
 
