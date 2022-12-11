@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221209
+
+> Muskox mother and calf in Dovre-Sunndalsfjella National Park, Norway (© Robert Haasmann/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> These handsome beasts are a living legacy of primeval times—they've watched history unfold around them from the era of the woolly mammoth.  The cow and calf in our photo belong to Norway's only herd of muskoxen, and you can visit them in Dovre-Sunndalsfjella National Park. If you feel like roaming by yourself, follow the signposted Musk Ox Trail; just be aware that the massive animals are known to attack if they feel threatened, so give them a wide berth. That sound too scary? Jump on a park safari with an experienced guide who can keep you safe and help you see the muskox in all its hairy glory.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Muskoxen in Dovre-Sunndalsfjella National Park, Norway](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Muskoxen in Dovre-Sunndalsfjella National Park, Norway](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_1080x1920.jpg) |
+
 ### 20221208
 
 > The Cathedral of Florence, Italy (© Alexander Baert/Amazing Aerial Agency)
@@ -112,24 +131,7 @@
 
 | ![Art Basel Miami Beach](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Art Basel Miami Beach](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_1080x1920.jpg) |
-
-### 20221202
-
-> Tlikakila River Delta in Lake Clark National Park, Alaska (© Dawn Wilson Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On this day in 1980, the single largest expansion of protected lands in history doubled the size of the US National Park System. As a result, Alaska now has eight national parks, plus numerous monuments and preserves that protect more than 157 million total acres. When President Jimmy Carter signed the Alaska National Interest Lands Conservation Act, the public was granted the right to appreciate stunning locations like the one in today's photo: the braided river delta of the 51-mile-long Tlikakila River in Lake Clark National Park.
-> 
-> In the native Athabaskan language, Tlikakila literally means 'salmon are there river.' The park is known for its salmon-laden waterways and the fish are of major importance to the local economy and ecosystem. Local bear populations benefit from the excess salmon, and bear watching is very popular at Lake Clark. The abundance of salmon has also benefited a wolf pack within the park—the only one in the world known to be solely dependent on salmon.
-> 
-> 
-
-</details>
-
-| ![Alaska National Interest Lands Conservation Act marks 42 years](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska National Interest Lands Conservation Act marks 42 years](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_1080x1920.jpg) |1&c=4) | ![Alaska National Interest Lands Conservation Act marks 42 years](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
