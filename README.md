@@ -2,31 +2,31 @@
 
 ### 20221211
 
-> 泰根塞山脉Roßstein山顶的景色，德国巴伐利亚州 (© Christian Bäck/eStock Photo)
+> Tangle Creek Falls in Jasper National Park, Alberta, Canada (© Jeff Foott/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 山岳是世界上最有趣的地质特征之一，清晰记录了地球表面之下发生的巨大变化。山岳还是千百年来人类休闲、娱乐、乃至朝圣的地方。今天是12月11日，让我们庆祝国际山岳日!
+> Jasper National Park boasts numerous breathtaking waterfalls, but the multi-tiered cascade of Tangle Creek Falls makes for a must-see spectacle. Located off the Icefields Parkway (Highway 93) in Alberta, the falls are easily accessed. Tangle Creek Falls' misty spray can be felt out on the highway itself. If you're looking to capture some breathtaking shots, it may be worth getting off the highway and going closer to the falls to truly soak in its beauty.
 > 
-> 今天的照片是德国巴伐利亚的泰根塞山脉。这张照片展示了从Roßstein山（1698米）望向Buchstein山（1701米）的风景。两座山峰形成一个马鞍的形状，在马鞍中间是一座山间小屋。这座小屋于5月中旬至11月初开放，为徒步者和登山者提供食宿。由于其位置特殊，它常常被称为“鹰巢”。
+> 
 > 
 > 
 
 </details>
 
-| ![国际山岳日](https://cn.bing.com/th?id=OHR.BuchsteinRossstein_ZH-CN4924477552_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际山岳日](https://cn.bing.com/th?id=OHR.BuchsteinRossstein_ZH-CN4924477552_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Jasper National Park, Alberta, Canada](https://cn.bing.com/th?id=OHR.TangleCreekFalls_EN-US2231198096_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Jasper National Park, Alberta, Canada](https://cn.bing.com/th?id=OHR.TangleCreekFalls_EN-US2231198096_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BuchsteinRossstein_ZH-CN4924477552_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BuchsteinRossstein_ZH-CN4924477552_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TangleCreekFalls_EN-US2231198096_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TangleCreekFalls_EN-US2231198096_1080x1920.jpg) |
 
 ### 20221210
 
-> 玻利维亚的乌尤尼盐沼 (© Theo Allofs/Minden Pictures)
+> Salar de Uyuni in Bolivia (© Theo Allofs/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 在安第斯山脉的顶峰附近，海拔两英里以上的地方出现了自然界的异象——这是一片面积比许多国家都大的盐滩。这是玻利维亚的乌尤尼盐沼，它是世界上最大的盐沼，占地约4000平方英里。乌尤尼盐沼是一个古老湖泊的遗迹，这个湖泊在很久以前蒸发，留下了厚厚的矿物地壳。这里不仅是食用盐的来源，也是火烈鸟重要的繁殖地。但是，对于一个电池紧缺的世界来说，其最宝贵的财富可能藏在地壳下面——那里藏着大量富含锂的盐水。
+> More than 2 miles above sea level, near the crest of the Andes, is an anomaly of the natural world, a salt flat bigger than many countries. The Salar de Uyuni in Bolivia is the largest salt flat in the world at about 4,000 square miles. The salt flat is the remains of an ancient lake that evaporated long ago leaving behind a thick mineral crust that is both a source of edible salt and a critical breeding ground for, of all things, flamingos. But for a battery-hungry world, the greatest riches might lie below the crust—a vast brine rich in lithium.
 > 
 > 
 > 
@@ -34,18 +34,18 @@
 
 </details>
 
-| ![乌尤尼盐沼，玻利维亚](https://cn.bing.com/th?id=OHR.SaltDesert_ZH-CN4728398785_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![乌尤尼盐沼，玻利维亚](https://cn.bing.com/th?id=OHR.SaltDesert_ZH-CN4728398785_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Salar de Uyuni in Bolivia](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salar de Uyuni in Bolivia](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaltDesert_ZH-CN4728398785_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaltDesert_ZH-CN4728398785_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_1080x1920.jpg) |
 
 ### 20221209
 
-> 多弗勒山-松达尔国家公园的麝牛与她的宝宝，挪威 (© Robert Haasmann/Minden Pictures)
+> Muskox mother and calf in Dovre-Sunndalsfjella National Park, Norway (© Robert Haasmann/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 这些健美的野兽是远古时代的“活化石”，它们早在猛犸象的时代就已存在。今天照片中的麝牛妈妈和麝牛宝宝属于挪威唯一的麝牛群，生活在多夫勒山国家公园里。在这里游玩时，你可以沿着公园里有路标指示的麝牛小径徒步。不过要注意，如果麝牛感觉受到威胁，它们便会发起攻击，所以请与它们保持远距离。如果觉得这过于危险，你也可以让经验丰富的导游陪你一起游览，既安全又能一饱眼福。
+> These handsome beasts are a living legacy of primeval times—they've watched history unfold around them from the era of the woolly mammoth.  The cow and calf in our photo belong to Norway's only herd of muskoxen, and you can visit them in Dovre-Sunndalsfjella National Park. If you feel like roaming by yourself, follow the signposted Musk Ox Trail; just be aware that the massive animals are known to attack if they feel threatened, so give them a wide berth. That sound too scary? Jump on a park safari with an experienced guide who can keep you safe and help you see the muskox in all its hairy glory.
 > 
 > 
 > 
@@ -53,18 +53,18 @@
 
 </details>
 
-| ![多弗勒山-松达尔国家公园里的麝牛，挪威](https://cn.bing.com/th?id=OHR.NorwayMuskox_ZH-CN6137934745_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多弗勒山-松达尔国家公园里的麝牛，挪威](https://cn.bing.com/th?id=OHR.NorwayMuskox_ZH-CN6137934745_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Muskoxen in Dovre-Sunndalsfjella National Park, Norway](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Muskoxen in Dovre-Sunndalsfjella National Park, Norway](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_ZH-CN6137934745_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_ZH-CN6137934745_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_1080x1920.jpg) |
 
 ### 20221208
 
-> 威斯特曼森林，达特穆尔国家公园，英格兰德文郡 (© Richard Garvey-Williams/Alamy)
+> The Cathedral of Florence, Italy (© Alexander Baert/Amazing Aerial Agency)
 
 <details>
 <summary>Description</summary>
 
-> 在西达特谷的斜坡上，威斯曼森林位于海拔 380 米至 435 米之间，地面上散落着裸露的花岗岩巨石。 如我们的主页图片所示，最常见的树木类型是苔藓和地衣覆盖的矮橡树，它们在岩石之间和某些地方沿着森林地面扭曲。 人们认为威斯曼森林是公元前 7000 年左右覆盖达特穆尔大部分地区的古老森林的祖先。 这里最古老的橡树被认为有 400 到 500 年的历史。
+> Considered the birthplace of the Renaissance, Florence helped lead Europe out of the Middle Ages as a center of politics, finance, art, and culture. Seven-odd centuries later, it's a snap to get aerial views of that era's marvels, like the Cathedral of Santa Maria del Fiore (known more simply as the Cathedral of Florence). A crowning achievement in a city of crowning achievements, the complex includes a campanile, or bell tower, and a white-roofed baptistery in addition to the cathedral with its grand dome.
 > 
 > 
 > 
@@ -72,83 +72,66 @@
 
 </details>
 
-| ![达特穆尔国家公园](https://cn.bing.com/th?id=OHR.WistmansWood_ZH-CN4453301808_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![达特穆尔国家公园](https://cn.bing.com/th?id=OHR.WistmansWood_ZH-CN4453301808_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![The Cathedral of Florence, Italy](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Cathedral of Florence, Italy](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WistmansWood_ZH-CN4453301808_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WistmansWood_ZH-CN4453301808_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_1080x1920.jpg) |
 
 ### 20221207
 
-> 贾斯珀国家公园纠结溪瀑布，阿尔伯塔省，加拿大 (© Jeff Foott/Minden Pictures)
+> Mokoli'I Island in Kaneohe Bay, seen from Kualoa Regional Park, Oahu, Hawaii (© Riddhish Chakraborty/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 贾斯珀国家公园拥有无数令人惊叹的瀑布，而纠结溪瀑布的阶梯式瀑布群则是不容错过的奇观。纠结溪瀑布位于阿尔伯塔省93号公路冰原大道附近，那里交通便利，在高速公路上就可以感受到纠结溪瀑布朦胧的水汽。如果你想捕捉一些让人叹为观止的镜头，你可以离开公路前往瀑布，字面意义上地“沉浸”在瀑布之美中。
+> While most know the US entered World War II after the Japanese bombed Pearl Harbor, fewer know that the battle on December 7, 1941, actually started here on Oahu's eastern shore at the old Kaneohe Bay Naval Air Station. Now a Marine Corps airfield, the base lies beyond the small, cone-shaped Mokoli'I Island in the background of this image.
 > 
-> 
+> Kaneohe Bay is a protected notch along the windward shore of Oahu, about 10 miles from Pearl Harbor. To ensure a successful attack, the Japanese first destroyed American air defenses here, taking out dozens of planes before moving on to the ships tied up at Pearl Harbor—starting a chain of events that would alter the world.
 > 
 > 
 
 </details>
 
-| ![贾斯珀国家公园，阿尔伯塔省，加拿大](https://cn.bing.com/th?id=OHR.TangleCreekFalls_ZH-CN4281148652_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![贾斯珀国家公园，阿尔伯塔省，加拿大](https://cn.bing.com/th?id=OHR.TangleCreekFalls_ZH-CN4281148652_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TangleCreekFalls_ZH-CN4281148652_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TangleCreekFalls_ZH-CN4281148652_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_1080x1920.jpg) |
 
 ### 20221206
 
-> 大沼泽国家公园里的一只大白鹭，美国佛罗里达州 (© Troy Harrison/Getty Images)
+> A great egret in Everglades National Park, Florida (© Troy Harrison/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 今天是佛罗里达州的大沼泽国家公园成立75周年。该公园建于1947年，旨在保护脆弱的生态系统，覆盖了大沼泽湿地面积的20%。尽管有公园管理局的保护，在人类活动干扰之下，大沼泽的生态还是受到了严重影响，尤其是当地的淡水资源。
+> We're heading down to Florida today to celebrate the 75th year of Everglades National Park, the largest tropical wilderness in the United States. The park was established in 1947 to defend a fragile ecosystem and covers about 20% of the entire Everglades wetland. But even with the park service's protection, the Everglades' features, primarily shallow freshwater pools, have suffered significantly due to human activity.
 > 
-> 大沼泽国家公园是北美涉禽最重要的繁殖地，比如今天照片里的大白鹭。尽管大白鹭是一种适应力强且分布广泛的物种，但现在公园里配对繁殖的白鹭数已经减少到从前的十分之一。而大白鹭只是佛罗里达州40种易危和濒危原生物种之一。
+> For example, the park is the most important North American breeding ground for wading birds, like the great egret seen in today's photo. Though great egrets are a robust and widespread species, breeding pairs in the park have declined to a tenth of what they once were. And great egrets are just one of 40 species native to Florida listed as endangered or threatened in the Everglades—so one can see why this unique corner of the country demands protection.
 > 
 > 
 
 </details>
 
-| ![大沼泽国家公园里的一只大白鹭](https://cn.bing.com/th?id=OHR.GreatEgret_ZH-CN4088261519_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大沼泽国家公园里的一只大白鹭](https://cn.bing.com/th?id=OHR.GreatEgret_ZH-CN4088261519_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Everglades National Park turns 75](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Everglades National Park turns 75](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatEgret_ZH-CN4088261519_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatEgret_ZH-CN4088261519_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_1080x1920.jpg) |
 
 ### 20221205
 
-> 古瓦哈提的竹子，印度阿萨姆邦 (© Page Bazar/500px/Getty Images)
+> Saint Nicholas Day in Verbier, Switzerland (© Denis Balibouse/Reuters)
 
 <details>
 <summary>Description</summary>
 
-> 古瓦哈提位于雅鲁藏布江河岸和西隆高原山麓之间，是印度东北部最大的城市。古瓦哈提地区拥有多种野生动物，包括亚洲象、蟒蛇、老虎、犀牛、野牛、灵长类动物等稀有动物 和濒临灭绝的鸟类。
+> We're used to Santa Claus sliding down chimneys, but who knew he could ski? Thousands of Santa Clauses make a stunning downhill display to open the ski season in Verbier, Switzerland, each year. Why the costumes? Their annual descent also celebrates the feast day of Saint Nicholas, observed in Europe on December 5 and in the US on December 6.
 > 
-> 
+> Little is known historically of Saint Nicholas, but he's thought to have grown up under the Roman Empire, in a wealthy Greek family in what's now southern Turkey. When his parents died, he used his inheritance to help those in need, the sick, and the suffering—even tossing gifts through strangers' open windows (not chimneys) now and then. Nicholas   joined the early Christian clergy as a bishop, dedicating his life to serving others generously. It's said he loved and helped children especially, and that, of course, is at the root of the legend of Santa Claus.
 > 
 > 
 
 </details>
 
-| ![古瓦哈提的竹子](https://cn.bing.com/th?id=OHR.BambooTreesIndia_ZH-CN3943852151_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![古瓦哈提的竹子](https://cn.bing.com/th?id=OHR.BambooTreesIndia_ZH-CN3943852151_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Saint Nicholas Day in Verbier, Switzerland](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Saint Nicholas Day in Verbier, Switzerland](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BambooTreesIndia_ZH-CN3943852151_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BambooTreesIndia_ZH-CN3943852151_1080x1920.jpg) |US1249382486_1080x1920.jpg) |
-
-### 20221203
-
-> Miami Beach, Florida (© Matteo Colombo/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Every December the center of the art world convenes not in New York, Tokyo, or London, but in a town known more for its wide sandy beaches, café Cubano, and conga rhythms. Art Basel Miami Beach, which wraps up its three-day run today, is the American leg of an international art fair also staged in Basel, Switzerland (where the festival started in 1970), Hong Kong, and Paris. The event, now 20 years old, is the most comprehensive contemporary art fair in North America, attracting thousands of artists, dealers, collectors, appreciators, and just fun-seeking tourists for this annual burst of creativity steps from the sand.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Art Basel Miami Beach](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Art Basel Miami Beach](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_1080x1920.jpg) |55&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_1080x1920.jpg) |1&c=4) | ![Alaska National Interest Lands Conservation Act marks 42 years](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
