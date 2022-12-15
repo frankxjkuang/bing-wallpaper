@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221213
+
+> Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> This tiny, snow-dusted village is Hallstatt, in Austria's mountainous Salzkammergut region, sandwiched between the shore of Lake Hallstatt and the slopes of the Dachstein Mountains. The salt mines here are thought to be among the oldest in the world and were once the backbone of Hallstatt's economy. Today they're a popular tourist attraction—this little village draws in so many visitors that it is considered an area of over-tourism. Hallstatt has sought to limit the number of people who can visit each day.
+> 
+> Hallstatt's charms are so considerable that an identical recreation of the town was built in Guangdong, China, in 2011. So, if they can't squeeze you into Hallstatt, perhaps you can pop over to China's version.
+> 
+> 
+
+</details>
+
+| ![Hallstatt, Austria](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hallstatt, Austria](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_1080x1920.jpg) |
+
 ### 20221212
 
 > Poinsettia plants (© Elizabeth Fernandez/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_1080x1920.jpg) |
-
-### 20221206
-
-> A great egret in Everglades National Park, Florida (© Troy Harrison/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> We're heading down to Florida today to celebrate the 75th year of Everglades National Park, the largest tropical wilderness in the United States. The park was established in 1947 to defend a fragile ecosystem and covers about 20% of the entire Everglades wetland. But even with the park service's protection, the Everglades' features, primarily shallow freshwater pools, have suffered significantly due to human activity.
-> 
-> For example, the park is the most important North American breeding ground for wading birds, like the great egret seen in today's photo. Though great egrets are a robust and widespread species, breeding pairs in the park have declined to a tenth of what they once were. And great egrets are just one of 40 species native to Florida listed as endangered or threatened in the Everglades—so one can see why this unique corner of the country demands protection.
-> 
-> 
-
-</details>
-
-| ![Everglades National Park turns 75](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Everglades National Park turns 75](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_1080x1920.jpg) |Nick_EN-US1370158441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_1080x1920.jpg) |ownload landscape 4K](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_1080x1920.jpg) |Nick_EN-US1370158441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_1080x1920.jpg) |55&h=315&rs=1&c=4) |
 |:---------:|:---------:|
