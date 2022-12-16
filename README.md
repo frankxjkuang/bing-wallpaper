@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221214
+
+> Great horned owls and a gilded flicker on a saguaro cactus in the Sonoran Desert, Arizona (© John Cancalosi/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> It's that time again! Grab your binoculars and bird guide and head outside to start counting. The National Audubon Society's Christmas Bird Count starts on December 14 annually and runs until January 5. Originating as an actual hunt in the 19th century, on Christmas Day in 1900 someone had the bright idea to stop killing the birds and instead just observe them.
+> 
+> Conducted entirely by volunteers, the Christmas Bird Count is the largest citizen science project in the world. It helps to track the health and well-being of bird populations and is vital to conservation efforts. Without it, species like the great horned owl and the gilded flicker, seen nesting in a saguaro cactus in today's photo of Arizona's Sonoran Desert, could end up being underrepresented and possibly endangered.
+> 
+> 
+
+</details>
+
+| ![National Audubon Society's Christmas Bird Count](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Audubon Society's Christmas Bird Count](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_1080x1920.jpg) |
+
 ### 20221213
 
 > Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)
@@ -112,26 +131,7 @@
 
 | ![The Cathedral of Florence, Italy](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Cathedral of Florence, Italy](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_1080x1920.jpg) |
-
-### 20221207
-
-> Mokoli'I Island in Kaneohe Bay, seen from Kualoa Regional Park, Oahu, Hawaii (© Riddhish Chakraborty/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> While most know the US entered World War II after the Japanese bombed Pearl Harbor, fewer know that the battle on December 7, 1941, actually started here on Oahu's eastern shore at the old Kaneohe Bay Naval Air Station. Now a Marine Corps airfield, the base lies beyond the small, cone-shaped Mokoli'I Island in the background of this image.
-> 
-> Kaneohe Bay is a protected notch along the windward shore of Oahu, about 10 miles from Pearl Harbor. To ensure a successful attack, the Japanese first destroyed American air defenses here, taking out dozens of planes before moving on to the ships tied up at Pearl Harbor—starting a chain of events that would alter the world.
-> 
-> 
-
-</details>
-
-| ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KaneoheHI_EN-US1621373073_1080x1920.jpg) |ownload landscape 4K](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_1080x1920.jpg) |Nick_EN-US1370158441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_1080x1920.jpg) |92796_1080x1920.jpg) |Nick_EN-US1370158441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_1080x1920.jpg) |55&h=315&rs=1&c=4) |
 |:---------:|:---------:|
