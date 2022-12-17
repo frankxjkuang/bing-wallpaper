@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221215
+
+> Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)
+
+<details>
+<summary>Description</summary>
+
+> This frosty scene shows Borovets, Bulgaria's oldest winter resort, established in 1896. It's a budget-friendly skiing alternative to the more expensive resorts in the Alps, especially for beginners and those looking for fun on the slopes without shelling out the big bucks.
+> 
+> The resort area was once used by Bulgarian royalty as hunting grounds. Borovets covers the foothills and ridge-spine of Musala Peak, the highest mountain in Bulgaria and the Balkans, in the eastern Rila Mountains, only a few dozen miles south of the national capital, Sofia.
+> 
+> 
+
+</details>
+
+| ![Borovets ski resort in Bulgaria](https://cn.bing.com/th?id=OHR.Borovets_EN-US3037571286_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Borovets ski resort in Bulgaria](https://cn.bing.com/th?id=OHR.Borovets_EN-US3037571286_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Borovets_EN-US3037571286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Borovets_EN-US3037571286_1080x1920.jpg) |
+
 ### 20221214
 
 > Great horned owls and a gilded flicker on a saguaro cactus in the Sonoran Desert, Arizona (© John Cancalosi/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Muskoxen in Dovre-Sunndalsfjella National Park, Norway](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Muskoxen in Dovre-Sunndalsfjella National Park, Norway](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_1080x1920.jpg) |
-
-### 20221208
-
-> The Cathedral of Florence, Italy (© Alexander Baert/Amazing Aerial Agency)
-
-<details>
-<summary>Description</summary>
-
-> Considered the birthplace of the Renaissance, Florence helped lead Europe out of the Middle Ages as a center of politics, finance, art, and culture. Seven-odd centuries later, it's a snap to get aerial views of that era's marvels, like the Cathedral of Santa Maria del Fiore (known more simply as the Cathedral of Florence). A crowning achievement in a city of crowning achievements, the complex includes a campanile, or bell tower, and a white-roofed baptistery in addition to the cathedral with its grand dome.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![The Cathedral of Florence, Italy](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Cathedral of Florence, Italy](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_1080x1920.jpg) |92796_1080x1920.jpg) |Nick_EN-US1370158441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_1080x1920.jpg) |1080x1920.jpg) |92796_1080x1920.jpg) |Nick_EN-US1370158441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_1080x1920.jpg) |55&h=315&rs=1&c=4) |
 |:---------:|:---------:|
