@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221216
+
+> Holiday lights in the Atlanta Botanical Garden, Georgia (© Natalia Kuzmina/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Winter comes alive at the Atlanta Botanical Garden in Georgia for two months every year with a dazzling holiday light display, 'Garden Lights, Holiday Nights,' which began in 2011 and has become a tradition for local families and many tourists. Behind the shimmering lights, the garden staff has decades of experience in plant conservation and species recovery through the Southeastern Center for Conservation. The center works locally and globally to help efforts to preserve and proliferate a variety of plant species.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Atlanta Botanical Garden](https://cn.bing.com/th?id=OHR.AtlantaLights_EN-US5495340965_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Atlanta Botanical Garden](https://cn.bing.com/th?id=OHR.AtlantaLights_EN-US5495340965_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AtlantaLights_EN-US5495340965_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AtlantaLights_EN-US5495340965_1080x1920.jpg) |
+
 ### 20221215
 
 > Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)
@@ -112,26 +131,7 @@
 
 | ![Salar de Uyuni in Bolivia](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salar de Uyuni in Bolivia](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_1080x1920.jpg) |
-
-### 20221209
-
-> Muskox mother and calf in Dovre-Sunndalsfjella National Park, Norway (© Robert Haasmann/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> These handsome beasts are a living legacy of primeval times—they've watched history unfold around them from the era of the woolly mammoth.  The cow and calf in our photo belong to Norway's only herd of muskoxen, and you can visit them in Dovre-Sunndalsfjella National Park. If you feel like roaming by yourself, follow the signposted Musk Ox Trail; just be aware that the massive animals are known to attack if they feel threatened, so give them a wide berth. That sound too scary? Jump on a park safari with an experienced guide who can keep you safe and help you see the muskox in all its hairy glory.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Muskoxen in Dovre-Sunndalsfjella National Park, Norway](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Muskoxen in Dovre-Sunndalsfjella National Park, Norway](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_1080x1920.jpg) |1080x1920.jpg) |92796_1080x1920.jpg) |Nick_EN-US1370158441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_1080x1920.jpg) |1080x1920.jpg) |92796_1080x1920.jpg) |Nick_EN-US1370158441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_1080x1920.jpg) |55&h=315&rs=1&c=4) |
 |:---------:|:---------:|
