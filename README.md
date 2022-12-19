@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221217
+
+> Mountain goats at Glacier National Park in Montana (© Sumio Harada/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> You're maybe more likely to see a mountain goat in Montana's Glacier National Park than anywhere else in the lower 48 states. And you may not just see the goats from afar—they are accustomed to humans and will saunter right up to visitors. You're going to want to keep your distance, though: Mountain goats can deliver forceful headbutts.
+> 
+> These goats are excellent climbers and often can be found on high cliffs and seemingly defying gravity on the sides of mountains. That's thanks to a special split hoof that allows them to grip rocky slopes. Being plant eaters, mountain goats tend to spend most of their time grazing and looking for places to lick up much needed minerals.
+> 
+> 
+
+</details>
+
+| ![Mountain goats at Glacier National Park in Montana](https://cn.bing.com/th?id=OHR.GlacierGoats_EN-US5564943350_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mountain goats at Glacier National Park in Montana](https://cn.bing.com/th?id=OHR.GlacierGoats_EN-US5564943350_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlacierGoats_EN-US5564943350_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierGoats_EN-US5564943350_1080x1920.jpg) |
+
 ### 20221216
 
 > Holiday lights in the Atlanta Botanical Garden, Georgia (© Natalia Kuzmina/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Jasper National Park, Alberta, Canada](https://cn.bing.com/th?id=OHR.TangleCreekFalls_EN-US2231198096_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Jasper National Park, Alberta, Canada](https://cn.bing.com/th?id=OHR.TangleCreekFalls_EN-US2231198096_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TangleCreekFalls_EN-US2231198096_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TangleCreekFalls_EN-US2231198096_1080x1920.jpg) |
-
-### 20221210
-
-> Salar de Uyuni in Bolivia (© Theo Allofs/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> More than 2 miles above sea level, near the crest of the Andes, is an anomaly of the natural world, a salt flat bigger than many countries. The Salar de Uyuni in Bolivia is the largest salt flat in the world at about 4,000 square miles. The salt flat is the remains of an ancient lake that evaporated long ago leaving behind a thick mineral crust that is both a source of edible salt and a critical breeding ground for, of all things, flamingos. But for a battery-hungry world, the greatest riches might lie below the crust—a vast brine rich in lithium.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Salar de Uyuni in Bolivia](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salar de Uyuni in Bolivia](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaltDesert_EN-US2123050087_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayMuskox_EN-US1914627688_1080x1920.jpg) |1080x1920.jpg) |92796_1080x1920.jpg) |Nick_EN-US1370158441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TangleCreekFalls_EN-US2231198096_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TangleCreekFalls_EN-US2231198096_1080x1920.jpg) |EN-US1370158441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_1080x1920.jpg) |55&h=315&rs=1&c=4) |
 |:---------:|:---------:|
