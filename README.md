@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221219
+
+> A northern cardinal perched in a common winterberry bush in Marion County, Illinois (© Richard and Susan Day/Danita Delimont)
+
+<details>
+<summary>Description</summary>
+
+> This scarlet winterberry shrub is the perfect hiding place for the northern cardinal. What better spot for singing in the winter holidays? Winterberry is a deciduous holly that's native to North America and can be a modest shrub or a tree reaching up to 15 feet. The yellow and green flower clusters that bloom in spring give way to bright red berries in winter.
+> 
+> Cardinals winter in the Midwest and the Eastern US, brightening the dreary winter months with flashes of bold scarlet. It's only the male cardinal that sports the crimson plumage. Female cardinals are mostly light brown, with a bit of red. Some people believe sighting a cardinal is good luck or a message of support from a lost loved one.
+> 
+> 
+
+</details>
+
+| ![Northern cardinal in winterberry bush](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Northern cardinal in winterberry bush](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |
+
 ### 20221218
 
 > South Beach in Miami Beach, Florida (© Claudia Uripos/eStock Photo)
@@ -112,27 +131,7 @@
 
 | ![Hallstatt, Austria](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hallstatt, Austria](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_1080x1920.jpg) |
-
-### 20221212
-
-> Poinsettia plants (© Elizabeth Fernandez/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It's been almost 200 years since poinsettias were first brought to the US from their native Mexico, where the Aztecs used the leaves to make dye and the sap to treat fevers. American botanist and government representative Joel Roberts Poinsett introduced the scarlet foliage to the US in 1828. Flash forward to the 1960s, when a breeding program resulted in hardier, fuller plants and many variations. The booming poinsettia wholesale trade in the US brings in a whopping $250 million a year. The House of Representatives designated December 12 as Poinsettia Day in 2002. Poinsettias are the top-selling potted plant in the US and Canada, brightening holiday tables every December.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Poinsettia Day](https://cn.bing.com/th?id=OHR.PoinsettiaDay_EN-US2361694439_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Poinsettia Day](https://cn.bing.com/th?id=OHR.PoinsettiaDay_EN-US2361694439_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PoinsettiaDay_EN-US2361694439_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PoinsettiaDay_EN-US2361694439_1080x1920.jpg) |58441_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_1080x1920.jpg) |55&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_1080x1920.jpg) |--------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_1080x1920.jpg) |1&c=4) | ![Alaska National Interest Lands Conservation Act marks 42 years](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
