@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221220
+
+> Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Christmas markets win the holiday trifecta: You can buy interesting, often handcrafted gifts, they are set in picturesque, romantic towns and villages in Europe, and they tempt you with mulled wine and local delicacies. What's not to like? Christmas markets, or 'Weihnachtsmärkt,' are one of Europe's oldest Advent events.
+> 
+> Our photo shows Austria's Belvedere Christmas market from across the Danube River, outside Upper Belvedere, one of two palaces on the property. If you visit a Christmas market, make the time to stroll, taking in all the sights and smells of the season. In Vienna, the architecturally impressive city goes all out for the holidays, with lights, decorations, and music, and the Belvedere Palace is a suitably dramatic backdrop.
+> 
+> 
+
+</details>
+
+| ![Christmas market at Belvedere Palace in Vienna](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas market at Belvedere Palace in Vienna](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |
+
 ### 20221219
 
 > A northern cardinal perched in a common winterberry bush in Marion County, Illinois (© Richard and Susan Day/Danita Delimont)
@@ -112,27 +131,7 @@
 
 | ![National Audubon Society's Christmas Bird Count](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Audubon Society's Christmas Bird Count](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_1080x1920.jpg) |
-
-### 20221213
-
-> Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> This tiny, snow-dusted village is Hallstatt, in Austria's mountainous Salzkammergut region, sandwiched between the shore of Lake Hallstatt and the slopes of the Dachstein Mountains. The salt mines here are thought to be among the oldest in the world and were once the backbone of Hallstatt's economy. Today they're a popular tourist attraction—this little village draws in so many visitors that it is considered an area of over-tourism. Hallstatt has sought to limit the number of people who can visit each day.
-> 
-> Hallstatt's charms are so considerable that an identical recreation of the town was built in Guangdong, China, in 2011. So, if they can't squeeze you into Hallstatt, perhaps you can pop over to China's version.
-> 
-> 
-
-</details>
-
-| ![Hallstatt, Austria](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hallstatt, Austria](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_1080x1920.jpg) |--------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_1080x1920.jpg) |1&c=4) | ![Alaska National Interest Lands Conservation Act marks 42 years](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_1080x1920.jpg) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_1080x1920.jpg) |1&c=4) | ![Alaska National Interest Lands Conservation Act marks 42 years](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
