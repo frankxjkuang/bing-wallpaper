@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221221
+
+> Sun halo over Lake Antermoia in the Dolomite Mountains of Italy (© Walter Donega/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The days only get longer from here! The Northern Hemisphere marks the beginning of winter today, but the winter solstice is also the shortest day of the year. The rainbow that encircles the sun in our image, a sun halo, is above Lake Antermoia, in the Dolomite Mountains of northern Italy. Sun halos form when sun or moon light shines through ice crystals suspended in the upper atmosphere. When the light of the sun hits the crystals they serve as a prism, separating the light into individual colors of the spectrum, the same way rainbows occur after a rain shower.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Winter solstice](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winter solstice](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_1080x1920.jpg) |
+
 ### 20221220
 
 > Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)
@@ -112,24 +131,7 @@
 
 | ![Borovets ski resort in Bulgaria](https://cn.bing.com/th?id=OHR.Borovets_EN-US3037571286_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Borovets ski resort in Bulgaria](https://cn.bing.com/th?id=OHR.Borovets_EN-US3037571286_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Borovets_EN-US3037571286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Borovets_EN-US3037571286_1080x1920.jpg) |
-
-### 20221214
-
-> Great horned owls and a gilded flicker on a saguaro cactus in the Sonoran Desert, Arizona (© John Cancalosi/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> It's that time again! Grab your binoculars and bird guide and head outside to start counting. The National Audubon Society's Christmas Bird Count starts on December 14 annually and runs until January 5. Originating as an actual hunt in the 19th century, on Christmas Day in 1900 someone had the bright idea to stop killing the birds and instead just observe them.
-> 
-> Conducted entirely by volunteers, the Christmas Bird Count is the largest citizen science project in the world. It helps to track the health and well-being of bird populations and is vital to conservation efforts. Without it, species like the great horned owl and the gilded flicker, seen nesting in a saguaro cactus in today's photo of Arizona's Sonoran Desert, could end up being underrepresented and possibly endangered.
-> 
-> 
-
-</details>
-
-| ![National Audubon Society's Christmas Bird Count](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Audubon Society's Christmas Bird Count](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Borovets_EN-US3037571286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Borovets_EN-US3037571286_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_1080x1920.jpg) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_1080x1920.jpg) |1&c=4) | ![Alaska National Interest Lands Conservation Act marks 42 years](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
