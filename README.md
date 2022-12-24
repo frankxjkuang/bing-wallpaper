@@ -1,13 +1,51 @@
 ## bing wallpaper
 
-### 20221221
+### 20221223
 
-> Sun halo over Lake Antermoia in the Dolomite Mountains of Italy (© Walter Donega/Getty Images)
+> 南极洲的巴布亚企鹅 (© Nature Picture Library/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> The days only get longer from here! The Northern Hemisphere marks the beginning of winter today, but the winter solstice is also the shortest day of the year. The rainbow that encircles the sun in our image, a sun halo, is above Lake Antermoia, in the Dolomite Mountains of northern Italy. Sun halos form when sun or moon light shines through ice crystals suspended in the upper atmosphere. When the light of the sun hits the crystals they serve as a prism, separating the light into individual colors of the spectrum, the same way rainbows occur after a rain shower.
+> “科普”一下，每年的12月23日是Festivus节（“不过圣诞节”节），这个节日源于上世纪90年代的热门美剧《宋飞正传》中的一集，是为不喜欢商业化的圣诞节的人们所设立的一个节日。这个节日在现实中也越来越受人们欢迎。
+> 
+> 今天照片里的这些巴布亚企鹅看来也在过Festivus节，因为它们正在进行这个节日的主要传统之一——“发泄不满”。倒也不奇怪，巴布亚企鹅肯定是会有情绪的，因为不忠而被驱逐啦，嫉妒邻居的筑巢石又多又好啦，巴布亚企鹅的内心可能都是咸涩的呢。有趣的是，由于饮食含盐量非常高，它们真的会从嘴喙上部的鼻孔将多余的盐分以粘液的形式排出。
+> 
+> 
+
+</details>
+
+| ![“不过圣诞节”节](https://cn.bing.com/th?id=OHR.GentooGrievances_ZH-CN2875292726_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![“不过圣诞节”节](https://cn.bing.com/th?id=OHR.GentooGrievances_ZH-CN2875292726_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_ZH-CN2875292726_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_ZH-CN2875292726_1080x1920.jpg) |
+
+### 20221222
+
+> 安纳西，法国上瓦萨省 (© Sabine Klein/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> 从著名的安纳西城堡到流水潺潺的运河，安纳西老城处处是充满魅力的古迹。安纳西在中世纪日内瓦伯爵治下兴旺起来，后又因萨伏伊公爵而一度扩张。如今，安纳西仍然有着许多16世纪和17世纪的建筑，里面可能是餐厅、面包房，也可能是精品店。几条运河穿城而过，也给了安纳西“阿尔卑斯山的威尼斯”的美称。
+> 
+> 安纳西城里点缀着天鹅和游船，这里据说有着欧洲最干净的水。安纳西居民非常热爱户外活动，他们在湖里划船，在城里滑旱冰和骑行，冬天开车去附近的拉克吕萨滑雪。在这里吸两口山风，你说不定也会忍不住加入他们呢。
+> 
+> 
+
+</details>
+
+| ![安纳西，法国](https://cn.bing.com/th?id=OHR.AnnecyXmas_ZH-CN2540694929_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![安纳西，法国](https://cn.bing.com/th?id=OHR.AnnecyXmas_ZH-CN2540694929_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AnnecyXmas_ZH-CN2540694929_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AnnecyXmas_ZH-CN2540694929_1080x1920.jpg) |
+
+### 20221221
+
+> 多洛米蒂山脉安特莫亚湖上的日晕，意大利 (© Walter Donega/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 今天照片里的日晕拍摄于意大利北部的多洛米蒂山脉安特莫亚湖之上。当日光穿过悬浮在大气层中的冰晶时，会形成日晕，而当这些冰晶的棱镜效应将日光分成不同的颜色频率，就产生了彩色的日晕，和彩虹的原理一样。
 > 
 > 
 > 
@@ -15,56 +53,56 @@
 
 </details>
 
-| ![Winter solstice](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winter solstice](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![日晕](https://cn.bing.com/th?id=OHR.SolarHalo_ZH-CN2320274967_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![日晕](https://cn.bing.com/th?id=OHR.SolarHalo_ZH-CN2320274967_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarHalo_ZH-CN2320274967_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarHalo_ZH-CN2320274967_1080x1920.jpg) |
 
 ### 20221220
 
-> Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)
+> 维也纳美景宫的圣诞市场，奥地利 (© Diyana Dimitrova/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> Christmas markets win the holiday trifecta: You can buy interesting, often handcrafted gifts, they are set in picturesque, romantic towns and villages in Europe, and they tempt you with mulled wine and local delicacies. What's not to like? Christmas markets, or 'Weihnachtsmärkt,' are one of Europe's oldest Advent events.
+> 圣诞集市有三个吸引游客的点：在欧洲风景如画的城镇村庄里举行，可以买到有趣的礼物（通常是手工制作的），还可以品尝到热红酒和当地美食。圣诞集市是欧洲最古老的降临节活动之一。
 > 
-> Our photo shows Austria's Belvedere Christmas market from across the Danube River, outside Upper Belvedere, one of two palaces on the property. If you visit a Christmas market, make the time to stroll, taking in all the sights and smells of the season. In Vienna, the architecturally impressive city goes all out for the holidays, with lights, decorations, and music, and the Belvedere Palace is a suitably dramatic backdrop.
+> 今天的照片展示了多瑙河对岸的上美景宫外的圣诞集市。如果你想去参观圣诞集市，那就花点时间逛逛，仔细感受这个季节所有的节日氛围。节日期间，维也纳处处都张灯结彩、飘扬着欢快的音乐。而此时的美景宫也是组成这欢快音乐的一个悦耳的音符。
 > 
 > 
 
 </details>
 
-| ![Christmas market at Belvedere Palace in Vienna](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas market at Belvedere Palace in Vienna](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![维也纳美景宫的圣诞集市](https://cn.bing.com/th?id=OHR.PalaceBelvedere_ZH-CN1818163173_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![维也纳美景宫的圣诞集市](https://cn.bing.com/th?id=OHR.PalaceBelvedere_ZH-CN1818163173_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_ZH-CN1818163173_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_ZH-CN1818163173_1080x1920.jpg) |
 
 ### 20221219
 
-> A northern cardinal perched in a common winterberry bush in Marion County, Illinois (© Richard and Susan Day/Danita Delimont)
+> 栖息在北美冬青上的北美红雀，美国伊利诺伊州 (© Richard and Susan Day/Danita Delimont)
 
 <details>
 <summary>Description</summary>
 
-> This scarlet winterberry shrub is the perfect hiding place for the northern cardinal. What better spot for singing in the winter holidays? Winterberry is a deciduous holly that's native to North America and can be a modest shrub or a tree reaching up to 15 feet. The yellow and green flower clusters that bloom in spring give way to bright red berries in winter.
+> 这种绯红的北美冬青灌木丛是北美红雀绝佳的藏身之处。在冬日假期里，还有比这儿更适合鸟儿唱歌的地方吗？北美冬青是一种原产于北美的落叶冬青，它可以长成不起眼的灌木，也可以长成高达15英尺的树。春天盛开的黄绿花簇，在冬天就被鲜红色的浆果所替代。
 > 
-> Cardinals winter in the Midwest and the Eastern US, brightening the dreary winter months with flashes of bold scarlet. It's only the male cardinal that sports the crimson plumage. Female cardinals are mostly light brown, with a bit of red. Some people believe sighting a cardinal is good luck or a message of support from a lost loved one.
+> 北美红雀在美国东部过冬，用醒目的绯红色点亮沉闷的冬季。只有雄性红雀才会披着深红色的羽毛；而雌性红雀大多是浅棕色，带有一点点红色。有些人相信看到北美红雀象征着好运，或者象征着已逝亲人的鼓励。
 > 
 > 
 
 </details>
 
-| ![Northern cardinal in winterberry bush](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Northern cardinal in winterberry bush](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![北美冬青灌木丛中的北美红雀](https://cn.bing.com/th?id=OHR.WinterberryBush_ZH-CN1414026440_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![北美冬青灌木丛中的北美红雀](https://cn.bing.com/th?id=OHR.WinterberryBush_ZH-CN1414026440_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_ZH-CN1414026440_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_ZH-CN1414026440_1080x1920.jpg) |
 
 ### 20221218
 
-> South Beach in Miami Beach, Florida (© Claudia Uripos/eStock Photo)
+> 迈阿密南海滩，美国佛罗里达州 (© Claudia Uripos/eStock Photo)
 
 <details>
 <summary>Description</summary>
 
-> The seaside resort of Miami Beach is perhaps best captured here by the surf at South Beach, its most famous neighborhood. Cosmopolitan Miami Beach is perpetually fixed inside the lens of the world as a playground for the wealthy, glamorous, and aesthetically advantaged set. You're likely to hear many languages spoken while strolling the sidewalks of Miami Beach. It's home to the music academy known as the New World Symphony, and host to the visual arts festival, Art Basel. Miami Beach also boasts the world's largest array of preserved Art Deco structures. It's a favorite haunt of celebrities—none of whom can outshine the real star, this beach of endless sand.
+> 作为富豪、美女和艺术家的游乐场，国际化的迈阿密海滩永远是全世界镜头里的焦点。漫步在迈阿密海滩上时，你可能会听到许多种不同的语言。迈阿密海滩是被称为新世界交响乐团的音乐学院的所在地，也是巴塞尔艺术博览会的主办地。迈阿密海滩拥有世界上规模最大的一批保存完好的装饰艺术建筑群。迈阿密海滩也不乏名人明星们的身影。但这里最耀眼的明星还是这一片美丽的海滩。
 > 
 > 
 > 
@@ -72,58 +110,28 @@
 
 </details>
 
-| ![South Beach in Miami Beach, Florida](https://cn.bing.com/th?id=OHR.SouthBeach_EN-US5638482869_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![South Beach in Miami Beach, Florida](https://cn.bing.com/th?id=OHR.SouthBeach_EN-US5638482869_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![迈阿密南海滩，佛罗里达州](https://cn.bing.com/th?id=OHR.SouthBeach_ZH-CN0989287734_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![迈阿密南海滩，佛罗里达州](https://cn.bing.com/th?id=OHR.SouthBeach_ZH-CN0989287734_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SouthBeach_EN-US5638482869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SouthBeach_EN-US5638482869_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SouthBeach_ZH-CN0989287734_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SouthBeach_ZH-CN0989287734_1080x1920.jpg) |
 
 ### 20221217
 
-> Mountain goats at Glacier National Park in Montana (© Sumio Harada/Minden Pictures)
+> 冰川国家公园的山羊，美国蒙大拿州 (© Sumio Harada/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> You're maybe more likely to see a mountain goat in Montana's Glacier National Park than anywhere else in the lower 48 states. And you may not just see the goats from afar—they are accustomed to humans and will saunter right up to visitors. You're going to want to keep your distance, though: Mountain goats can deliver forceful headbutts.
+> 比起美国其它48个州，你更可能在蒙大拿州的冰川国家公园里看到雪羊。雪羊已经习惯人类了，会悠闲地走到游客面前。不过，还是建议你跟它们保持距离，因为雪羊的“铁头功”可不是开玩笑的。
 > 
-> These goats are excellent climbers and often can be found on high cliffs and seemingly defying gravity on the sides of mountains. That's thanks to a special split hoof that allows them to grip rocky slopes. Being plant eaters, mountain goats tend to spend most of their time grazing and looking for places to lick up much needed minerals.
+> 这些雪羊是出色的登山者，它们经常会出现在悬崖峭壁上，似乎完全摆脱了地心引力的影响。这要归功于雪羊特殊的分蹄，让它们可以紧紧抓牢峭壁。作为食草动物，雪羊大部分时间都在吃草和舔舐矿物质摄取盐分。
 > 
 > 
 
 </details>
 
-| ![Mountain goats at Glacier National Park in Montana](https://cn.bing.com/th?id=OHR.GlacierGoats_EN-US5564943350_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mountain goats at Glacier National Park in Montana](https://cn.bing.com/th?id=OHR.GlacierGoats_EN-US5564943350_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![蒙大拿州的雪羊](https://cn.bing.com/th?id=OHR.GlacierGoats_ZH-CN0764810245_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![蒙大拿州的雪羊](https://cn.bing.com/th?id=OHR.GlacierGoats_ZH-CN0764810245_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlacierGoats_EN-US5564943350_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierGoats_EN-US5564943350_1080x1920.jpg) |
-
-### 20221216
-
-> Holiday lights in the Atlanta Botanical Garden, Georgia (© Natalia Kuzmina/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Winter comes alive at the Atlanta Botanical Garden in Georgia for two months every year with a dazzling holiday light display, 'Garden Lights, Holiday Nights,' which began in 2011 and has become a tradition for local families and many tourists. Behind the shimmering lights, the garden staff has decades of experience in plant conservation and species recovery through the Southeastern Center for Conservation. The center works locally and globally to help efforts to preserve and proliferate a variety of plant species.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Atlanta Botanical Garden](https://cn.bing.com/th?id=OHR.AtlantaLights_EN-US5495340965_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Atlanta Botanical Garden](https://cn.bing.com/th?id=OHR.AtlantaLights_EN-US5495340965_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AtlantaLights_EN-US5495340965_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AtlantaLights_EN-US5495340965_1080x1920.jpg) |
-
-### 20221215
-
-> Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)
-
-<details>
-<summary>Description</summary>
-
-> This frosty scene shows Borovets, Bulgaria's oldest winter resort, established in 1896. It's a budget-friendly skiing alternative to the more expensive resorts in the Alps, especially for beginners and those looking for fun on the slopes without shelling out the big bucks.
-> 
-> The resort area was once used by Bulgarian royalty as hunting grounds. Borovets covers the foothills and ridge-spine of Musala Peak, the highest mountain in Bulgaria and the Balkans, in the eastern Rila Mountains, only a few dozen miles south of the national capital, Sofia.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlacierGoats_ZH-CN0764810245_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierGoats_ZH-CN0764810245_1080x1920.jpg) | national capital, Sofia.
 > 
 > 
 
