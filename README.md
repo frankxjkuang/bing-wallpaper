@@ -1,51 +1,89 @@
 ## bing wallpaper
 
-### 20221223
+### 20221225
 
-> Gentoo penguins in Antarctica (© Nature Picture Library/Alamy)
+> 黑梳山附近的惠斯勒小镇，加拿大不列颠哥伦比亚省 (© VisualCommunications/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> For the uninitiated, the origins of the made-up holiday Festivus can be traced back to an episode of the hit '90s show, 'Seinfeld.' Based on the real family tradition of one of the show's writers, Festivus has taken on a life of its own in the real world and provides fans with a fun, tongue-in-cheek way to celebrate the holiday season while ignoring its pressures and commercialism.
+> 惠斯勒小镇是加拿大不列颠哥伦比亚省的一个度假城市。它位于海岸山脉的南太平洋山脉，温哥华以北约 125 公里（78 英里），坐落着享誉国际盛名的两座滑雪场——惠斯勒山（Whistler）滑雪场和黑梳山（Blackcomb）滑雪场。这座小镇曾协办2010年温哥华冬季奥运会。于黑梳山山顶终年积雪，想要享受滑雪乐趣，不见得一定要等到冬季，夏季到山上冰河滑雪也是一大享受，是个四季皆宜的滑雪胜地。
 > 
-> And with today's photo, it appears these Gentoo penguins in Antarctica are well aware of Festivus, as they seem to be engaging in one of the holiday's main traditions—the 'Airing of Grievances.' As far as Gentoos go, it's not uncommon for them to have plenty of grievances to air. Whether excommunication for infidelity, or jealousy of their neighbor's nesting stones, Gentoos can be salty. Maybe that's to be expected, though, as their diets are so loaded with the stuff that they literally leak highly concentrated saline from their beaks.
+> 
 > 
 > 
 
 </details>
 
-| ![Gentoo penguins in Antarctica](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gentoo penguins in Antarctica](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![惠斯勒度假小镇](https://cn.bing.com/th?id=OHR.WhistlerVillage_ZH-CN3451305723_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![惠斯勒度假小镇](https://cn.bing.com/th?id=OHR.WhistlerVillage_ZH-CN3451305723_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhistlerVillage_ZH-CN3451305723_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhistlerVillage_ZH-CN3451305723_1080x1920.jpg) |
+
+### 20221224
+
+> 狍子，特伦蒂诺-上阿迪杰大区，意大利 (© Federica Cattaruzzi/eStock)
+
+<details>
+<summary>Description</summary>
+
+> 狍子(学名：Capreolus pygargus)是鹿科狍属动物的一种动物。它们是欧洲最小的鹿科动物，具有适应性强的跳跃动物的典型结构：后腿比前腿更长更强壮，因此可以轻松穿过茂密的林地和丰富的灌木丛栖息地。刚刚出生的狍子宝宝皮毛是深棕色的，带有白色斑点，以增加它们在恢复场所典型的阴暗灯光下的伪装。体重大约达到11公斤左右时，白色斑点消失，毛发变得与成年狍子相似。在夏天，它是红棕色，而在冬天变成灰棕色，与白色臀部斑块形成鲜明对比。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![意大利公园里的狍子](https://cn.bing.com/th?id=OHR.RoeTrentinoSnow_ZH-CN3122890500_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![意大利公园里的狍子](https://cn.bing.com/th?id=OHR.RoeTrentinoSnow_ZH-CN3122890500_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RoeTrentinoSnow_ZH-CN3122890500_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RoeTrentinoSnow_ZH-CN3122890500_1080x1920.jpg) |
+
+### 20221223
+
+> 南极洲的巴布亚企鹅 (© Nature Picture Library/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> “科普”一下，每年的12月23日是Festivus节（“不过圣诞节”节），这个节日源于上世纪90年代的热门美剧《宋飞正传》中的一集，是为不喜欢商业化的圣诞节的人们所设立的一个节日。这个节日在现实中也越来越受人们欢迎。
+> 
+> 今天照片里的这些巴布亚企鹅看来也在过Festivus节，因为它们正在进行这个节日的主要传统之一——“发泄不满”。倒也不奇怪，巴布亚企鹅肯定是会有情绪的，因为不忠而被驱逐啦，嫉妒邻居的筑巢石又多又好啦，巴布亚企鹅的内心可能都是咸涩的呢。有趣的是，由于饮食含盐量非常高，它们真的会从嘴喙上部的鼻孔将多余的盐分以粘液的形式排出。
+> 
+> 
+
+</details>
+
+| ![“不过圣诞节”节](https://cn.bing.com/th?id=OHR.GentooGrievances_ZH-CN2875292726_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![“不过圣诞节”节](https://cn.bing.com/th?id=OHR.GentooGrievances_ZH-CN2875292726_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_ZH-CN2875292726_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_ZH-CN2875292726_1080x1920.jpg) |
 
 ### 20221222
 
-> Christmas tree of the Galeries Lafayette in Paris, France (© Geoffroy Van der Hasselt/AFP via Getty Images)
+> 安纳西，法国上瓦萨省 (© Sabine Klein/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> Surely one of the grandest stores found in any city is the Galeries Lafayette in Paris. It's not just a place to shop but a destination as popular as any in the City of Light. At a time when department stores are fading and the entire retail industry is shifting, the Galeries Lafayette holds fast. It has survived financial crises, wars, and now the internet, remaining a celebrated part of life in Paris. Like Macy's or Rockefeller Center in New York, the Galeries Lafayette is synonymous with the holidays. A giant fir is decorated every holiday season under the store's signature stained glass dome—a ritual of Christmas cheer that Parisians have embraced for generations.
+> 从著名的安纳西城堡到流水潺潺的运河，安纳西老城处处是充满魅力的古迹。安纳西在中世纪日内瓦伯爵治下兴旺起来，后又因萨伏伊公爵而一度扩张。如今，安纳西仍然有着许多16世纪和17世纪的建筑，里面可能是餐厅、面包房，也可能是精品店。几条运河穿城而过，也给了安纳西“阿尔卑斯山的威尼斯”的美称。
 > 
-> 
+> 安纳西城里点缀着天鹅和游船，这里据说有着欧洲最干净的水。安纳西居民非常热爱户外活动，他们在湖里划船，在城里滑旱冰和骑行，冬天开车去附近的拉克吕萨滑雪。在这里吸两口山风，你说不定也会忍不住加入他们呢。
 > 
 > 
 
 </details>
 
-| ![Galeries Lafayette, Paris](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Galeries Lafayette, Paris](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![安纳西，法国](https://cn.bing.com/th?id=OHR.AnnecyXmas_ZH-CN2540694929_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![安纳西，法国](https://cn.bing.com/th?id=OHR.AnnecyXmas_ZH-CN2540694929_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AnnecyXmas_ZH-CN2540694929_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AnnecyXmas_ZH-CN2540694929_1080x1920.jpg) |
 
 ### 20221221
 
-> Sun halo over Lake Antermoia in the Dolomite Mountains of Italy (© Walter Donega/Getty Images)
+> 多洛米蒂山脉安特莫亚湖上的日晕，意大利 (© Walter Donega/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> The days only get longer from here! The Northern Hemisphere marks the beginning of winter today, but the winter solstice is also the shortest day of the year. The rainbow that encircles the sun in our image, a sun halo, is above Lake Antermoia, in the Dolomite Mountains of northern Italy. Sun halos form when sun or moon light shines through ice crystals suspended in the upper atmosphere. When the light of the sun hits the crystals they serve as a prism, separating the light into individual colors of the spectrum, the same way rainbows occur after a rain shower.
+> 今天照片里的日晕拍摄于意大利北部的多洛米蒂山脉安特莫亚湖之上。当日光穿过悬浮在大气层中的冰晶时，会形成日晕，而当这些冰晶的棱镜效应将日光分成不同的颜色频率，就产生了彩色的日晕，和彩虹的原理一样。
 > 
 > 
 > 
@@ -53,75 +91,47 @@
 
 </details>
 
-| ![Winter solstice](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winter solstice](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![日晕](https://cn.bing.com/th?id=OHR.SolarHalo_ZH-CN2320274967_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![日晕](https://cn.bing.com/th?id=OHR.SolarHalo_ZH-CN2320274967_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarHalo_ZH-CN2320274967_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarHalo_ZH-CN2320274967_1080x1920.jpg) |
 
 ### 20221220
 
-> Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)
+> 维也纳美景宫的圣诞市场，奥地利 (© Diyana Dimitrova/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> Christmas markets win the holiday trifecta: You can buy interesting, often handcrafted gifts, they are set in picturesque, romantic towns and villages in Europe, and they tempt you with mulled wine and local delicacies. What's not to like? Christmas markets, or 'Weihnachtsmärkt,' are one of Europe's oldest Advent events.
+> 圣诞集市有三个吸引游客的点：在欧洲风景如画的城镇村庄里举行，可以买到有趣的礼物（通常是手工制作的），还可以品尝到热红酒和当地美食。圣诞集市是欧洲最古老的降临节活动之一。
 > 
-> Our photo shows Austria's Belvedere Christmas market from across the Danube River, outside Upper Belvedere, one of two palaces on the property. If you visit a Christmas market, make the time to stroll, taking in all the sights and smells of the season. In Vienna, the architecturally impressive city goes all out for the holidays, with lights, decorations, and music, and the Belvedere Palace is a suitably dramatic backdrop.
+> 今天的照片展示了多瑙河对岸的上美景宫外的圣诞集市。如果你想去参观圣诞集市，那就花点时间逛逛，仔细感受这个季节所有的节日氛围。节日期间，维也纳处处都张灯结彩、飘扬着欢快的音乐。而此时的美景宫也是组成这欢快音乐的一个悦耳的音符。
 > 
 > 
 
 </details>
 
-| ![Christmas market at Belvedere Palace in Vienna](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas market at Belvedere Palace in Vienna](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![维也纳美景宫的圣诞集市](https://cn.bing.com/th?id=OHR.PalaceBelvedere_ZH-CN1818163173_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![维也纳美景宫的圣诞集市](https://cn.bing.com/th?id=OHR.PalaceBelvedere_ZH-CN1818163173_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_ZH-CN1818163173_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_ZH-CN1818163173_1080x1920.jpg) |
 
 ### 20221219
 
-> A northern cardinal perched in a common winterberry bush in Marion County, Illinois (© Richard and Susan Day/Danita Delimont)
+> 栖息在北美冬青上的北美红雀，美国伊利诺伊州 (© Richard and Susan Day/Danita Delimont)
 
 <details>
 <summary>Description</summary>
 
-> This scarlet winterberry shrub is the perfect hiding place for the northern cardinal. What better spot for singing in the winter holidays? Winterberry is a deciduous holly that's native to North America and can be a modest shrub or a tree reaching up to 15 feet. The yellow and green flower clusters that bloom in spring give way to bright red berries in winter.
+> 这种绯红的北美冬青灌木丛是北美红雀绝佳的藏身之处。在冬日假期里，还有比这儿更适合鸟儿唱歌的地方吗？北美冬青是一种原产于北美的落叶冬青，它可以长成不起眼的灌木，也可以长成高达15英尺的树。春天盛开的黄绿花簇，在冬天就被鲜红色的浆果所替代。
 > 
-> Cardinals winter in the Midwest and the Eastern US, brightening the dreary winter months with flashes of bold scarlet. It's only the male cardinal that sports the crimson plumage. Female cardinals are mostly light brown, with a bit of red. Some people believe sighting a cardinal is good luck or a message of support from a lost loved one.
+> 北美红雀在美国东部过冬，用醒目的绯红色点亮沉闷的冬季。只有雄性红雀才会披着深红色的羽毛；而雌性红雀大多是浅棕色，带有一点点红色。有些人相信看到北美红雀象征着好运，或者象征着已逝亲人的鼓励。
 > 
 > 
 
 </details>
 
-| ![Northern cardinal in winterberry bush](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Northern cardinal in winterberry bush](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![北美冬青灌木丛中的北美红雀](https://cn.bing.com/th?id=OHR.WinterberryBush_ZH-CN1414026440_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![北美冬青灌木丛中的北美红雀](https://cn.bing.com/th?id=OHR.WinterberryBush_ZH-CN1414026440_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |
-
-### 20221218
-
-> South Beach in Miami Beach, Florida (© Claudia Uripos/eStock Photo)
-
-<details>
-<summary>Description</summary>
-
-> The seaside resort of Miami Beach is perhaps best captured here by the surf at South Beach, its most famous neighborhood. Cosmopolitan Miami Beach is perpetually fixed inside the lens of the world as a playground for the wealthy, glamorous, and aesthetically advantaged set. You're likely to hear many languages spoken while strolling the sidewalks of Miami Beach. It's home to the music academy known as the New World Symphony, and host to the visual arts festival, Art Basel. Miami Beach also boasts the world's largest array of preserved Art Deco structures. It's a favorite haunt of celebrities—none of whom can outshine the real star, this beach of endless sand.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![South Beach in Miami Beach, Florida](https://cn.bing.com/th?id=OHR.SouthBeach_EN-US5638482869_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![South Beach in Miami Beach, Florida](https://cn.bing.com/th?id=OHR.SouthBeach_EN-US5638482869_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SouthBeach_EN-US5638482869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SouthBeach_EN-US5638482869_1080x1920.jpg) |
-
-### 20221217
-
-> Mountain goats at Glacier National Park in Montana (© Sumio Harada/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> You're maybe more likely to see a mountain goat in Montana's Glacier National Park than anywhere else in the lower 48 states. And you may not just see the goats from afar—they are accustomed to humans and will saunter right up to visitors. You're going to want to keep your distance, though: Mountain goats can deliver forceful headbutts.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_ZH-CN1414026440_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_ZH-CN1414026440_1080x1920.jpg) |ed to humans and will saunter right up to visitors. You're going to want to keep your distance, though: Mountain goats can deliver forceful headbutts.
 > 
 > These goats are excellent climbers and often can be found on high cliffs and seemingly defying gravity on the sides of mountains. That's thanks to a special split hoof that allows them to grip rocky slopes. Being plant eaters, mountain goats tend to spend most of their time grazing and looking for places to lick up much needed minerals.
 > 
