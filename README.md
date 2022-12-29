@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221227
+
+> Blue Lagoon, Grindavík, Iceland (© Westend61/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Let's be frank here, the origin of today's beautiful picture is a pool of wastewater from a nearby geothermal plant. While that may not sound enticing, Iceland's Blue Lagoon is one of the country's most-visited attractions. The trick is to not get stuck on the 'waste' part of wastewater. The water here is clean, always hovers around 100° F, and is enriched with tons of silica—which is what makes it blue—and sulfur, thanks to the plant's processes. Those minerals, along with a little algae, are believed to combine into a highly beneficial tonic for skin and overall well-being.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Blue Lagoon spa, Grindavík, Iceland](https://cn.bing.com/th?id=OHR.BlueLagoon_EN-US6577382520_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blue Lagoon spa, Grindavík, Iceland](https://cn.bing.com/th?id=OHR.BlueLagoon_EN-US6577382520_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueLagoon_EN-US6577382520_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueLagoon_EN-US6577382520_1080x1920.jpg) |
+
 ### 20221226
 
 > Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)
@@ -112,25 +131,7 @@
 
 | ![Winter solstice](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winter solstice](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_1080x1920.jpg) |
-
-### 20221220
-
-> Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Christmas markets win the holiday trifecta: You can buy interesting, often handcrafted gifts, they are set in picturesque, romantic towns and villages in Europe, and they tempt you with mulled wine and local delicacies. What's not to like? Christmas markets, or 'Weihnachtsmärkt,' are one of Europe's oldest Advent events.
-> 
-> Our photo shows Austria's Belvedere Christmas market from across the Danube River, outside Upper Belvedere, one of two palaces on the property. If you visit a Christmas market, make the time to stroll, taking in all the sights and smells of the season. In Vienna, the architecturally impressive city goes all out for the holidays, with lights, decorations, and music, and the Belvedere Palace is a suitably dramatic backdrop.
-> 
-> 
-
-</details>
-
-| ![Christmas market at Belvedere Palace in Vienna](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas market at Belvedere Palace in Vienna](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |HR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |564943350_1080x1920.jpg) |
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
