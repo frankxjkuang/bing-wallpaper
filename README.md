@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221228
+
+> Maloja, Switzerland (© Roberto Moiola/Getty)
+
+<details>
+<summary>Description</summary>
+
+> The word 'picturesque' is an understatement when taking in today's image of Maloja, Switzerland. This Alpine village in the canton of Grisons is surely the envy and inspiration of snow globes the world over! Located just a few miles from the Italian border, the impossibly perfect winter scenes found here have inspired painters and artists for centuries. Majola is near Lake Sils, which makes this area a recreational destination in both summer and winter. At the center of our image is the crown jewel of Maloja, the Chiesa Bianca, a church built in the 1880s by a Belgian count. Today, the once solemn space is used to stage exhibitions and concerts.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Maloja, Switzerland](https://cn.bing.com/th?id=OHR.ChiesaBianca_EN-US6649530996_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Maloja, Switzerland](https://cn.bing.com/th?id=OHR.ChiesaBianca_EN-US6649530996_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChiesaBianca_EN-US6649530996_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChiesaBianca_EN-US6649530996_1080x1920.jpg) |
+
 ### 20221227
 
 > Blue Lagoon, Grindavík, Iceland (© Westend61/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Galeries Lafayette, Paris](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Galeries Lafayette, Paris](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg) |
-
-### 20221221
-
-> Sun halo over Lake Antermoia in the Dolomite Mountains of Italy (© Walter Donega/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The days only get longer from here! The Northern Hemisphere marks the beginning of winter today, but the winter solstice is also the shortest day of the year. The rainbow that encircles the sun in our image, a sun halo, is above Lake Antermoia, in the Dolomite Mountains of northern Italy. Sun halos form when sun or moon light shines through ice crystals suspended in the upper atmosphere. When the light of the sun hits the crystals they serve as a prism, separating the light into individual colors of the spectrum, the same way rainbows occur after a rain shower.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Winter solstice](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winter solstice](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_1080x1920.jpg) |--:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |HR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |564943350_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg) |ng.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |HR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |564943350_1080x1920.jpg) |
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
 > 
