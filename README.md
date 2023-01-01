@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20221230
+
+> Rock formations in the White Desert, Egypt (© Anton Petrus/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Snow, in the desert? Not quite. Today we're in Egypt's White Desert, which gets its colorful name from an abundance of chalk, limestone, and quartz rock formations that give the sand its special hue. Tourists flock to this place to see these naturally occurring structures, honed over thousands of years into unique shapes through a process known as differential weathering. Located about five hours to the southwest of Cairo, White Desert National Park is a lot more than just deteriorating rocks—it's also a protected refuge for several endangered animal species.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![White Desert National Park, Egypt](https://cn.bing.com/th?id=OHR.ChalkRock_EN-US3353441410_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![White Desert National Park, Egypt](https://cn.bing.com/th?id=OHR.ChalkRock_EN-US3353441410_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChalkRock_EN-US3353441410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChalkRock_EN-US3353441410_1080x1920.jpg) |
+
 ### 20221229
 
 > A pair of silver-studded blue butterflies (© Misja Smits/Minden Pictures)
@@ -112,24 +131,7 @@
 
 | ![Christmas Eve](https://cn.bing.com/th?id=OHR.AmalgaTree_EN-US6271369167_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas Eve](https://cn.bing.com/th?id=OHR.AmalgaTree_EN-US6271369167_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmalgaTree_EN-US6271369167_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmalgaTree_EN-US6271369167_1080x1920.jpg) |
-
-### 20221223
-
-> Gentoo penguins in Antarctica (© Nature Picture Library/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> For the uninitiated, the origins of the made-up holiday Festivus can be traced back to an episode of the hit '90s show, 'Seinfeld.' Based on the real family tradition of one of the show's writers, Festivus has taken on a life of its own in the real world and provides fans with a fun, tongue-in-cheek way to celebrate the holiday season while ignoring its pressures and commercialism.
-> 
-> And with today's photo, it appears these Gentoo penguins in Antarctica are well aware of Festivus, as they seem to be engaging in one of the holiday's main traditions—the 'Airing of Grievances.' As far as Gentoos go, it's not uncommon for them to have plenty of grievances to air. Whether excommunication for infidelity, or jealousy of their neighbor's nesting stones, Gentoos can be salty. Maybe that's to be expected, though, as their diets are so loaded with the stuff that they literally leak highly concentrated saline from their beaks.
-> 
-> 
-
-</details>
-
-| ![Gentoo penguins in Antarctica](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gentoo penguins in Antarctica](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmalgaTree_EN-US6271369167_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmalgaTree_EN-US6271369167_1080x1920.jpg) | ![Gentoo penguins in Antarctica](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_1080x1920.jpg) ||:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg) |ng.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |HR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |564943350_1080x1920.jpg) |
