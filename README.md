@@ -1,13 +1,13 @@
 ## bing wallpaper
 
-### 20230103
+### 20230105
 
-> Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico (© Jay Goodrich/Tandem Stills + Motion)
+> 白鼬 (Mustela erminea), 上巴伐利亚，德国 (© Konrad Wothe/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> Hey, don't judge. Migrating takes it out of you! Yes, these sandhill cranes are sleeping on their feet in the waters of the Bosque del Apache National Wildlife Refuge in southern New Mexico. The birds start arriving around Halloween each year, and as many as 10,000 of them will stay to rest and feed in local fields until February. What's on the menu? Well, sandhill cranes aren't picky; they'll eat whatever's available, from plants and grains, to insects, snails, and even snakes. And they have plenty of avian company at this beautiful refuge each winter—whooping cranes, ducks, and snow geese from as far away as Alaska and Siberia also count Bosque del Apache as a favorite resting spot before heading north to their breeding grounds when the days get warmer. Thankfully, there's plenty of room to spread their wings at the 57,000-acre refuge.
+> 白鼬（Mustela erminea），又称欧亚白鼬、白令亚貂和貂，是一种原产于欧亚大陆和北美洲北部的鼬科动物。多栖息于沼泽、林地、农田，食肉动物，主食为鸟类和小型哺乳动物。白鼬是一种软萌可爱的动物，它的体长在170~330毫米，体重为25~116克，身材非常娇小。随着季节变化，白鼬的毛发颜色会发生变化。到了冬季，就像它的名字一样，会变为一身漂亮的纯白色皮毛，哦对了，尾巴尖还有一点点黑色，这是无冬历夏始终如一的。
 > 
 > 
 > 
@@ -15,18 +15,56 @@
 
 </details>
 
-| ![Sandhill cranes, Bosque del Apache National Wildlife Refuge](https://cn.bing.com/th?id=OHR.SandhillSleeping_EN-US4023790571_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sandhill cranes, Bosque del Apache National Wildlife Refuge](https://cn.bing.com/th?id=OHR.SandhillSleeping_EN-US4023790571_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![白鼬，德国上巴伐利亚](https://cn.bing.com/th?id=OHR.HermelinSchnee_ZH-CN8839783506_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![白鼬，德国上巴伐利亚](https://cn.bing.com/th?id=OHR.HermelinSchnee_ZH-CN8839783506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SandhillSleeping_EN-US4023790571_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SandhillSleeping_EN-US4023790571_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HermelinSchnee_ZH-CN8839783506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HermelinSchnee_ZH-CN8839783506_1080x1920.jpg) |
+
+### 20230104
+
+> 从国际空间站看到的地球 (© JSC/NASA)
+
+<details>
+<summary>Description</summary>
+
+> 今天是地球的近日点，由于地球绕太阳公转的轨道是椭圆形的，所以冬至后两周，地球距离太阳最近。你可能有疑问：地球离太阳最近的时候，为什么我们没觉得更热？其实，这是因为近日点的时候地球所接受到的太阳辐射只比平时强了大约7%，这种微小的差异对地球天气的影响并不大。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![地球的近日点](https://cn.bing.com/th?id=OHR.Perihelion_ZH-CN8681537155_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地球的近日点](https://cn.bing.com/th?id=OHR.Perihelion_ZH-CN8681537155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Perihelion_ZH-CN8681537155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Perihelion_ZH-CN8681537155_1080x1920.jpg) |
+
+### 20230103
+
+> 博斯克·德尔·阿帕奇国家野生动物保护区的沙丘鹤，美国新墨西哥州 (© Jay Goodrich/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> 嘿，打个盹儿怎么了，这些鸟儿现在可是精疲力尽呢！这张照片拍摄于新墨西哥州南部的博斯克·德尔·阿帕奇国家野生动物保护区，这些沙丘鹤正站在水里睡觉。每年万圣节前后，这些鸟儿会陆续抵达，上万只沙丘鹤会在这里待到次年二月。它们吃什么呢？沙丘鹤并不挑食，什么都吃，植物、谷物、昆虫、蜗牛，它们甚至还吃蛇。每年冬天，沙丘鹤都在这片美丽的庇护地，和其他各种鸟儿一起度过。从阿拉斯加和西伯利亚远道而来的鸣鹤、鸭子和雪雁也喜欢在这里中途休息，等到天气变暖后，它们再一路向北前往繁殖地。幸好，这儿地方够大，5.7万英亩的保护区有足够的空间让它们自由翱翔。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![博斯克·德尔·阿帕奇国家野生动物保护区的沙丘鹤，美国新墨西哥州](https://cn.bing.com/th?id=OHR.SandhillSleeping_ZH-CN8483997851_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![博斯克·德尔·阿帕奇国家野生动物保护区的沙丘鹤，美国新墨西哥州](https://cn.bing.com/th?id=OHR.SandhillSleeping_ZH-CN8483997851_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SandhillSleeping_ZH-CN8483997851_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SandhillSleeping_ZH-CN8483997851_1080x1920.jpg) |
 
 ### 20230102
 
-> Hohenzollern Castle, Germany (© Sahara Prince/Shutterstock)
+> 霍亨索伦城堡，德国 (© Sahara Prince/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> For the charming Hohenzollern Castle, the third time really was the charm. Constructed on the top of Hohenzollern Mountain in the 11th century, the castle was largely ruined by a 10-month siege in 1423, only to be rebuilt a few decades later. It then served as an important strategic stronghold before again falling into disrepair. In the 19th century, King Frederick William IV of Prussia, best remembered for his commitment to building great works across Germany, had a new castle built on the grounds, replacing almost all the 15th-century construction. Today, Hohenzollern Castle is an open-air museum that hosts more than 350,000 visitors per year, making it one of the most-visited castles in Germany.
+> 迷人的霍亨索伦城堡经过三次重建后，是真的魅力非凡。这座城堡位于霍亨索伦山顶，修建于11世纪，但大部分建筑在1423年长达10个月的围攻中被摧毁，直到几十年后才得以重建。之后它成为了一个重要的战略据点，然而后来它再次失修。19世纪，普鲁士国王腓特烈·威廉四世（他因在德国各地建造了许多伟大的建筑而闻名）在这里建造了一座新的城堡，几乎完全替换了这座城堡15世纪的建筑结构。如今，霍亨索伦城堡已成为一座露天博物馆，每年接待超过35万名游客，是德国参观人数最多的城堡之一。
 > 
 > 
 > 
@@ -34,18 +72,18 @@
 
 </details>
 
-| ![Hohenzollern Castle near Stuttgart, Germany](https://cn.bing.com/th?id=OHR.HohenzollernBurg_EN-US3949412118_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hohenzollern Castle near Stuttgart, Germany](https://cn.bing.com/th?id=OHR.HohenzollernBurg_EN-US3949412118_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![德国斯图加特附近的霍亨索伦城堡](https://cn.bing.com/th?id=OHR.HohenzollernBurg_ZH-CN8109082566_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![德国斯图加特附近的霍亨索伦城堡](https://cn.bing.com/th?id=OHR.HohenzollernBurg_ZH-CN8109082566_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HohenzollernBurg_EN-US3949412118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HohenzollernBurg_EN-US3949412118_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HohenzollernBurg_ZH-CN8109082566_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HohenzollernBurg_ZH-CN8109082566_1080x1920.jpg) |
 
 ### 20230101
 
-> Polar bear in Svalbard, Norway (© Dennis Stogsdill/Getty Images)
+> 北极熊斯瓦尔巴群岛，挪威 (© Dennis Stogsdill/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> If your first scheduled activity of the day has ever involved intentionally jumping into an icy lake or a frigid bay, then you understand the relevance of today's image from the Svalbard Islands of Norway. Polar bear plunges, as these swims have come to be known, take place all over the world, often on New Year's Day. Whether people take the plunge for charity, penance, or shock value, there's no better way to put an exclamation point on the first day of the year. Of course, for actual polar bears, ice cold plunges are an everyday occurrence and won't elicit much more than a yawn.
+> 如果你计划在新年第一天跳进冰冷刺骨的湖泊或海湾，那么你就会明白我们今天为什么要展示这张拍摄于挪威斯瓦尔巴群岛的照片。世界各地的人们常常在新年第一天像北极熊一样跳进水里。无论他们是为了慈善、忏悔，还是为了惊世骇俗，这都是迎接新年第一天的最好的方式。当然，对于北极熊来说，这可没什么特别的，不过是它们每天的日常而已。
 > 
 > 
 > 
@@ -53,37 +91,37 @@
 
 </details>
 
-| ![New Year's Day](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![New Year's Day](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![斯瓦尔巴群岛的北极熊，挪威](https://cn.bing.com/th?id=OHR.NorwayNYD_ZH-CN7856439066_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![斯瓦尔巴群岛的北极熊，挪威](https://cn.bing.com/th?id=OHR.NorwayNYD_ZH-CN7856439066_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayNYD_ZH-CN7856439066_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayNYD_ZH-CN7856439066_1080x1920.jpg) |
 
 ### 20221231
 
-> New Year's Eve fireworks, Sydney Harbour Bridge, Australia (© Wendell Teodoro/Getty Images)
+> 一起迎接2023年 (© GettyImages)
 
 <details>
 <summary>Description</summary>
 
-> With New Year's Eve landing in midsummer, many Aussies choose to usher in the new year with a boat trip around beautiful Sydney Harbour to take in the annual fireworks display. With the Sydney Harbour Bridge and world-famous Sydney Opera House as a dramatic backdrop, the first fireworks show will fire off this year at 9 PM local time, followed by a second show at midnight. Australia is one of the first nations to greet the new year, and more than 1.5 million people are typically in attendance for this spectacular celebration in Sydney.
+> 每年公历1月1日，标志着新一年的到来，人们习惯将这一天称为“元旦”，俗称“公历年”、“阳历年”或“新历年”。在很多国家，有自己的新年，或是因习俗传统，或者是宗教性的，例如：中国春节，伊斯兰新年，泰米尔新年和犹太新年。
 > 
-> 
+> 由于地球被划分为多个时区，所以每个时区迎来新年的时间不一，第一个迎来新年的时区，就在国际日期变更线以西，位于莱恩群岛，是基里巴斯国的一部分，时区比世界标准时间早14小时。无人居住的美国边远领土豪兰岛和贝克岛被指定位于UTC后12小时的时区内，这是地球上最后一个看到1月1日到来的地方。
 > 
 > 
 
 </details>
 
-| ![New Year's Eve in Sydney, Australia](https://cn.bing.com/th?id=OHR.SydneyNYE_EN-US3807524923_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![New Year's Eve in Sydney, Australia](https://cn.bing.com/th?id=OHR.SydneyNYE_EN-US3807524923_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![迎接2023年](https://cn.bing.com/th?id=OHR.TheNationaDay_ZH-CN7631842209_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![迎接2023年](https://cn.bing.com/th?id=OHR.TheNationaDay_ZH-CN7631842209_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SydneyNYE_EN-US3807524923_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SydneyNYE_EN-US3807524923_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TheNationaDay_ZH-CN7631842209_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TheNationaDay_ZH-CN7631842209_1080x1920.jpg) |
 
 ### 20221230
 
-> Rock formations in the White Desert, Egypt (© Anton Petrus/Getty Images)
+> 白沙漠中的岩石，埃及 (© Anton Petrus/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Snow, in the desert? Not quite. Today we're in Egypt's White Desert, which gets its colorful name from an abundance of chalk, limestone, and quartz rock formations that give the sand its special hue. Tourists flock to this place to see these naturally occurring structures, honed over thousands of years into unique shapes through a process known as differential weathering. Located about five hours to the southwest of Cairo, White Desert National Park is a lot more than just deteriorating rocks—it's also a protected refuge for several endangered animal species.
+> 这是沙漠中的雪吗？其实不是。这里是埃及的白沙漠，当地丰富的白垩岩、石灰岩、石英岩以及长年累月的风化作用造就了这些白色的沙子和形状奇特的岩石，白沙漠也因此得名。游客们蜂拥而至，来欣赏这些大自然的奇观。白沙国家公园距离开罗约5小时车程，这里不仅有白沙和怪石，还有多种濒危保护动物。
 > 
 > 
 > 
@@ -91,45 +129,9 @@
 
 </details>
 
-| ![White Desert National Park, Egypt](https://cn.bing.com/th?id=OHR.ChalkRock_EN-US3353441410_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![White Desert National Park, Egypt](https://cn.bing.com/th?id=OHR.ChalkRock_EN-US3353441410_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![白沙漠国家公园，埃及](https://cn.bing.com/th?id=OHR.ChalkRock_ZH-CN2893565655_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![白沙漠国家公园，埃及](https://cn.bing.com/th?id=OHR.ChalkRock_ZH-CN2893565655_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChalkRock_EN-US3353441410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChalkRock_EN-US3353441410_1080x1920.jpg) |
-
-### 20221229
-
-> A pair of silver-studded blue butterflies (© Misja Smits/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> The butterfly effect is a scientific concept coined 50 years ago today, and it has become a literary and metaphorical term to describe the idea that the smallest change may have massive, worldwide implications. It is often associated with chaos theory. American mathematician and meteorologist Edward Norton Lorenz theorized that the flapping of a butterfly's wings, like those of the silver-studded blue butterflies you see in today's image, could weeks later influence the formation of a tornado.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Silver-studded blue butterflies](https://cn.bing.com/th?id=OHR.ButterflyEffect_EN-US4238684091_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Silver-studded blue butterflies](https://cn.bing.com/th?id=OHR.ButterflyEffect_EN-US4238684091_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ButterflyEffect_EN-US4238684091_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ButterflyEffect_EN-US4238684091_1080x1920.jpg) |
-
-### 20221228
-
-> Maloja, Switzerland (© Roberto Moiola/Getty)
-
-<details>
-<summary>Description</summary>
-
-> The word 'picturesque' is an understatement when taking in today's image of Maloja, Switzerland. This Alpine village in the canton of Grisons is surely the envy and inspiration of snow globes the world over! Located just a few miles from the Italian border, the impossibly perfect winter scenes found here have inspired painters and artists for centuries. Majola is near Lake Sils, which makes this area a recreational destination in both summer and winter. At the center of our image is the crown jewel of Maloja, the Chiesa Bianca, a church built in the 1880s by a Belgian count. Today, the once solemn space is used to stage exhibitions and concerts.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Maloja, Switzerland](https://cn.bing.com/th?id=OHR.ChiesaBianca_EN-US6649530996_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Maloja, Switzerland](https://cn.bing.com/th?id=OHR.ChiesaBianca_EN-US6649530996_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChalkRock_ZH-CN2893565655_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChalkRock_ZH-CN2893565655_1080x1920.jpg) |) | ![Maloja, Switzerland](https://cn.bing.com/th?id=OHR.ChiesaBianca_EN-US6649530996_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChiesaBianca_EN-US6649530996_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChiesaBianca_EN-US6649530996_1080x1920.jpg) |/th?id=OHR.GentooGrievances_EN-US6133793039_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_1080x1920.jpg) ||:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg) |ng.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |HR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |564943350_1080x1920.jpg) |
