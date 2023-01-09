@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230107
+
+> Wool and mohair yarn (© Jurate Buiviene/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> We're showcasing gorgeous soft wool and mohair yarn because today is Distaff Day, a celebration that dates back to medieval times. Truth be told, we're not convinced that it's really cause for celebration, since it marked women's return to spinning work after Christmas, following 12 blissful, chore-free days.
+> 
+> The distaff is a tool that predates the invention of the spinning wheel. It holds wool neatly in place before it's spun on the spindle. Distaff Day symbolizes women's vital role in producing textiles for their communities and, just like the distaff, keeping everything in order and running smoothly.
+> 
+> 
+
+</details>
+
+| ![Yarn for Distaff Day](https://cn.bing.com/th?id=OHR.Mohair_EN-US4379797092_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yarn for Distaff Day](https://cn.bing.com/th?id=OHR.Mohair_EN-US4379797092_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Mohair_EN-US4379797092_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Mohair_EN-US4379797092_1080x1920.jpg) |
+
 ### 20230106
 
 > Black Fell, Lake District, England (© Daniel Kay/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![New Year's Day](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![New Year's Day](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_1080x1920.jpg) |
-
-### 20221231
-
-> New Year's Eve fireworks, Sydney Harbour Bridge, Australia (© Wendell Teodoro/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> With New Year's Eve landing in midsummer, many Aussies choose to usher in the new year with a boat trip around beautiful Sydney Harbour to take in the annual fireworks display. With the Sydney Harbour Bridge and world-famous Sydney Opera House as a dramatic backdrop, the first fireworks show will fire off this year at 9 PM local time, followed by a second show at midnight. Australia is one of the first nations to greet the new year, and more than 1.5 million people are typically in attendance for this spectacular celebration in Sydney.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![New Year's Eve in Sydney, Australia](https://cn.bing.com/th?id=OHR.SydneyNYE_EN-US3807524923_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![New Year's Eve in Sydney, Australia](https://cn.bing.com/th?id=OHR.SydneyNYE_EN-US3807524923_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SydneyNYE_EN-US3807524923_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SydneyNYE_EN-US3807524923_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_1080x1920.jpg) ||:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_1080x1920.jpg) |23_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_1080x1920.jpg) ||:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg) |ng.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |HR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |564943350_1080x1920.jpg) |
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
