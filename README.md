@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230108
+
+> Breckenridge, Colorado (© Sean Pavone/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Gold mining put this Rocky Mountain town on the map in the 1860s, but today the real gold is the powdery snow that falls liberally on the slopes that surround the town. Breckenridge is one of Colorado's premier ski and snowboard destinations. The resort has 35 lifts servicing five peaks and 2,900 acres of terrain. The visitors—who also arrive in the summer to fish, cycle, and paddle—easily outnumber the 5,000 residents of this quaint village. The gold mines have long shut down, apart from hosting visits from tourists. The enduring value of Breckenridge is its natural beauty.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Breckenridge, Colorado](https://cn.bing.com/th?id=OHR.Breckenridge_EN-US4460042968_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Breckenridge, Colorado](https://cn.bing.com/th?id=OHR.Breckenridge_EN-US4460042968_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Breckenridge_EN-US4460042968_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Breckenridge_EN-US4460042968_1080x1920.jpg) |
+
 ### 20230107
 
 > Wool and mohair yarn (© Jurate Buiviene/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Hohenzollern Castle near Stuttgart, Germany](https://cn.bing.com/th?id=OHR.HohenzollernBurg_EN-US3949412118_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hohenzollern Castle near Stuttgart, Germany](https://cn.bing.com/th?id=OHR.HohenzollernBurg_EN-US3949412118_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HohenzollernBurg_EN-US3949412118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HohenzollernBurg_EN-US3949412118_1080x1920.jpg) |
-
-### 20230101
-
-> Polar bear in Svalbard, Norway (© Dennis Stogsdill/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> If your first scheduled activity of the day has ever involved intentionally jumping into an icy lake or a frigid bay, then you understand the relevance of today's image from the Svalbard Islands of Norway. Polar bear plunges, as these swims have come to be known, take place all over the world, often on New Year's Day. Whether people take the plunge for charity, penance, or shock value, there's no better way to put an exclamation point on the first day of the year. Of course, for actual polar bears, ice cold plunges are an everyday occurrence and won't elicit much more than a yawn.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![New Year's Day](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![New Year's Day](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_1080x1920.jpg) |23_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_1080x1920.jpg) ||:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HohenzollernBurg_EN-US3949412118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HohenzollernBurg_EN-US3949412118_1080x1920.jpg) |jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_1080x1920.jpg) ||:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg) |ng.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |HR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |564943350_1080x1920.jpg) |
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
