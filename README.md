@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230111
+
+> 'Umschreibung,' a sculpture by artist Olafur Eliasson in Munich, Germany (© Manfred Bail/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Making a New Year's resolution to boost your fitness? Let us present National Take the Stairs Day. (You're welcome.) The annual event began informally in 2016 and was later adopted by the American Lung Association. It's an ingenious way to nudge people to exercise—most of us encounter stairs during our day, so there's really no excuse. Climbing stairs is a low-impact activity that raises your heart rate and burns calories.
+> 
+> Of course, you may not have access to a cool, curly staircase like this beauty, which is actually a sculpture rather than a conduit. 'Umschreibung' is tucked away in an office building complex in Munich's Schwanthalerhöhe district. Creator Olafur Eliasson says he intended the sculpture—known locally as 'The Stairway to Heaven'—to convey 'movement without destination, a space defined by motion rather than walls.' Mission accomplished.
+> 
+> 
+
+</details>
+
+| !['Umschreibung' by Olafur Eliasson in Munich](https://cn.bing.com/th?id=OHR.Umschreibung_EN-US4693850900_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | !['Umschreibung' by Olafur Eliasson in Munich](https://cn.bing.com/th?id=OHR.Umschreibung_EN-US4693850900_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Umschreibung_EN-US4693850900_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Umschreibung_EN-US4693850900_1080x1920.jpg) |
+
 ### 20230110
 
 > Hummock ice on Lake Peipus in Estonia (© Sven Zacek/Minden Pictures)
@@ -112,36 +131,7 @@
 
 | ![Harbin International Ice and Snow Sculpture Festival, China](https://cn.bing.com/th?id=OHR.HIISSF_EN-US4182845947_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbin International Ice and Snow Sculpture Festival, China](https://cn.bing.com/th?id=OHR.HIISSF_EN-US4182845947_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HIISSF_EN-US4182845947_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HIISSF_EN-US4182845947_1080x1920.jpg) |
-
-### 20230104
-
-> Earth as seen from the International Space Station (© JSC/NASA)
-
-<details>
-<summary>Description</summary>
-
-> We've reached perihelion! Two weeks after winter solstice the Earth's orbit is closer to the sun than at any other time of year—a result of the Earth's elliptical orbit. You may think, 'If we're so close to the sun, why can't I feel the heat?' Well, that's because we're only receiving about 7% more solar energy than normal, which doesn't really have much impact on the weather.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Earth at Perihelion](https://cn.bing.com/th?id=OHR.Perihelion_EN-US4106263162_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Earth at Perihelion](https://cn.bing.com/th?id=OHR.Perihelion_EN-US4106263162_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Perihelion_EN-US4106263162_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Perihelion_EN-US4106263162_1080x1920.jpg) |enty of room to spread their wings at the 57,000-acre refuge.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Sandhill cranes, Bosque del Apache National Wildlife Refuge](https://cn.bing.com/th?id=OHR.SandhillSleeping_EN-US4023790571_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sandhill cranes, Bosque del Apache National Wildlife Refuge](https://cn.bing.com/th?id=OHR.SandhillSleeping_EN-US4023790571_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SandhillSleeping_EN-US4023790571_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SandhillSleeping_EN-US4023790571_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_1080x1920.jpg) ||:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HIISSF_EN-US4182845947_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HIISSF_EN-US4182845947_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.SandhillSleeping_EN-US4023790571_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_1080x1920.jpg) ||:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg) |ng.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |HR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |564943350_1080x1920.jpg) |
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
