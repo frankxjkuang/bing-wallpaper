@@ -2,31 +2,31 @@
 
 ### 20230114
 
-> 吃樱桃树枝的毛驴 (© Juniors Bildarchiv GmbH/Alamy)
+> Domestic donkey feeding on cherry twigs (© Juniors Bildarchiv GmbH/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 照片里这头正在吃樱桃树叶的毛驴可能不知道：今天曾是它们的节日。不过，我们认为任何一天都是赞美驴子的好日子。驴子已经为人类背负重担超过7000年，所以让我们给它们一些关爱吧。如今，全世界有4000多万头驴仍在负重前行，仅仅中国就有1100万头。
+> This fuzzy donkey feeding on the leaves of a cherry tree probably doesn't know that today was once celebrated as the Feast of the Donkey. We think any day is a good day to celebrate donkeys. They've carried the load for humans for more than 7,000 years, so let's give them some love. More than 40 million donkeys do the heavy lifting around the world today, with 11 million in China alone.
 > 
-> 中世纪的基督徒把1月14日作为毛驴节，以此铭记毛驴在圣经故事当中的重要作用：约瑟夫带着圣母玛利亚及新生的小耶稣进入埃及时，玛利亚就是抱着小耶稣骑着驴。但这个节日到15世纪就不再流行了。
+> Medieval Christians celebrated January 14 as the Feast of the Donkey, or Feast of the Ass—acknowledging the importance of donkeys in the Bible. The passage of Mary, Joseph, and their newborn son into Egypt was usually depicted with Mary and her child riding on a donkey. The festival fell out of favor by the 15th century.
 > 
 > 
 
 </details>
 
-| ![毛驴节](https://cn.bing.com/th?id=OHR.DonkeyFeast_ZH-CN5880627132_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![毛驴节](https://cn.bing.com/th?id=OHR.DonkeyFeast_ZH-CN5880627132_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Feast of the Donkey](https://cn.bing.com/th?id=OHR.DonkeyFeast_EN-US1153850805_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Feast of the Donkey](https://cn.bing.com/th?id=OHR.DonkeyFeast_EN-US1153850805_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DonkeyFeast_ZH-CN5880627132_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DonkeyFeast_ZH-CN5880627132_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DonkeyFeast_EN-US1153850805_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DonkeyFeast_EN-US1153850805_1080x1920.jpg) |
 
 ### 20230113
 
-> 海峡群岛国家公园的巨藻，美国加利福尼亚州 (© Brandon Cole Images/Shutterstock)
+> Giant kelp in the Channel Islands National Marine Sanctuary, California (© Brandon Cole Images/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 北美太平洋沿岸，高达100英尺的巨型海藻群为大量的鱼类、无脊椎动物和海洋哺乳动物提供了栖息地，就像今天照片里位于加利福尼亚海峡群岛的这片海藻一样。巨型海藻，准确地说是一种褐藻，是所有海藻中最大、生长最快的之一。它每天能生长两英尺！你在这张图片中看到像豆荚一样的气囊有助于海藻漂浮。正如亚马孙雨林的树木一样，海洋中的海藻群对海洋生物和海洋健康至关重要。
+> All along the Pacific Coast of North America, giant stands of kelp up to 100 feet high, like this one in California's Channel Islands, provide habitat for a vast number of fish, invertebrates, and sea mammals. Giant kelp, technically a type of brown algae, is the largest of all seaweed and one of the fastest-growing of any organism—as much as 2 feet per day! The gas-filled pods you see in this image help the kelp float. Like the trees in the Amazon, the kelp forests of our oceans are key to the health of marine life.
 > 
 > 
 > 
@@ -34,18 +34,18 @@
 
 </details>
 
-| ![加利福尼亚的巨型海藻](https://cn.bing.com/th?id=OHR.Pneumatocysts_ZH-CN5721988566_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![加利福尼亚的巨型海藻](https://cn.bing.com/th?id=OHR.Pneumatocysts_ZH-CN5721988566_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Giant kelp in the Channel Islands National Marine Sanctuary](https://cn.bing.com/th?id=OHR.Pneumatocysts_EN-US1065729036_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Giant kelp in the Channel Islands National Marine Sanctuary](https://cn.bing.com/th?id=OHR.Pneumatocysts_EN-US1065729036_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Pneumatocysts_ZH-CN5721988566_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Pneumatocysts_ZH-CN5721988566_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Pneumatocysts_EN-US1065729036_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Pneumatocysts_EN-US1065729036_1080x1920.jpg) |
 
 ### 20230112
 
-> 博斯普鲁斯海峡的如梅利堡垒，土耳其伊斯坦布尔 (© Drone in Wonderland/Amazing Aerial Agency)
+> Rumelihisarı on the Bosporus Strait at Istanbul, Türkiye (© Drone in Wonderland/Amazing Aerial Agency)
 
 <details>
 <summary>Description</summary>
 
-> 土耳其是一个温暖的地中海国家，偶尔也会下雪。而今天照片里伊斯坦布尔的冬日雪景，则让如梅利堡垒的轮廓更加清晰可见。梅利堡垒是15世纪由奥斯曼帝国苏丹建造的，目的是为了掌握博斯普鲁斯海峡的海上交通。博斯普鲁斯海峡连接马尔马拉海和黑海，将伊斯坦布尔分为“欧洲一侧”和“亚洲一侧”。如今，这座堡垒不再用于向船只开火，而是用作博物馆和音乐会场地。几百年来，尽管这里已经变了很多，但这里美丽的风景依然如旧。
+> Though Türkiye usually lives up to expectations as a warm Mediterranean country, snow occasionally falls here. This winter dusting of Istanbul, Türkiye's largest city, brings into sharper focus the lines of Rumelihisarı in the center of our image. The structure, also known as Rumeli Fortress, was built in the 15th century by an Ottoman sultan as a way to choke naval traffic through the narrow Bosporus Strait. The Bosporus connects the Sea of Marmara to the Black Sea, separating Istanbul into what are often referred to as its 'European side' and 'Asian side.' Today, the fortress isn't used to fire upon ships but serves as a museum and concert venue. While the place has changed over the centuries, the killer view hasn't.
 > 
 > 
 > 
@@ -53,37 +53,37 @@
 
 </details>
 
-| ![如梅利堡垒，土耳其](https://cn.bing.com/th?id=OHR.RumeliHisari_ZH-CN0185820275_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![如梅利堡垒，土耳其](https://cn.bing.com/th?id=OHR.RumeliHisari_ZH-CN0185820275_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Rumelihisarı in Istanbul, Türkiye](https://cn.bing.com/th?id=OHR.RumeliHisari_EN-US4800002879_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rumelihisarı in Istanbul, Türkiye](https://cn.bing.com/th?id=OHR.RumeliHisari_EN-US4800002879_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RumeliHisari_ZH-CN0185820275_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RumeliHisari_ZH-CN0185820275_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RumeliHisari_EN-US4800002879_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RumeliHisari_EN-US4800002879_1080x1920.jpg) |
 
 ### 20230111
 
-> 戈德雷维灯塔，英国康沃尔郡 (© Paul Nash/Shutterstock)
+> 'Umschreibung,' a sculpture by artist Olafur Eliasson in Munich, Germany (© Manfred Bail/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 戈德雷维灯塔坐落在美丽的康沃尔郡圣艾夫斯湾的戈德雷维岛上，它是一座白色八角塔，建于19世纪50年代末，高86英尺（26 米），由铺有砂浆的碎石制成。它几乎位于岛的中心，最初为饲养员提供小屋，而后用来保护船只免受危险暗礁的侵袭。1995年，灯塔被进行了一次现代化的改造，改用太阳能供电。2012年，英国领港公会（Trinity House）停止使用塔内的灯，取而代之的是安装在靠近岩石的钢制平台上的LED灯。
+> Making a New Year's resolution to boost your fitness? Let us present National Take the Stairs Day. (You're welcome.) The annual event began informally in 2016 and was later adopted by the American Lung Association. It's an ingenious way to nudge people to exercise—most of us encounter stairs during our day, so there's really no excuse. Climbing stairs is a low-impact activity that raises your heart rate and burns calories.
 > 
-> 
+> Of course, you may not have access to a cool, curly staircase like this beauty, which is actually a sculpture rather than a conduit. 'Umschreibung' is tucked away in an office building complex in Munich's Schwanthalerhöhe district. Creator Olafur Eliasson says he intended the sculpture—known locally as 'The Stairway to Heaven'—to convey 'movement without destination, a space defined by motion rather than walls.' Mission accomplished.
 > 
 > 
 
 </details>
 
-| ![戈德雷维灯塔，康沃尔郡](https://cn.bing.com/th?id=OHR.GodrevyRocks_ZH-CN0051118926_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![戈德雷维灯塔，康沃尔郡](https://cn.bing.com/th?id=OHR.GodrevyRocks_ZH-CN0051118926_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| !['Umschreibung' by Olafur Eliasson in Munich](https://cn.bing.com/th?id=OHR.Umschreibung_EN-US4693850900_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | !['Umschreibung' by Olafur Eliasson in Munich](https://cn.bing.com/th?id=OHR.Umschreibung_EN-US4693850900_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GodrevyRocks_ZH-CN0051118926_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GodrevyRocks_ZH-CN0051118926_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Umschreibung_EN-US4693850900_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Umschreibung_EN-US4693850900_1080x1920.jpg) |
 
 ### 20230110
 
-> 爱沙尼亚佩普斯湖上的小冰丘 (© Sven Zacek/Minden Pictures)
+> Hummock ice on Lake Peipus in Estonia (© Sven Zacek/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 佩普斯湖是欧洲第五大湖泊，形成于数亿年前的古生代。这里的沙丘非常有名，当各方面条件恰好时，这些沙丘会在风吹时“唱歌”。在冬天，结冰的湖面上可能形成照片中的堆积冰。这些堆积冰是由浮冰受到缓慢不均匀的挤压而形成的。
+> Lake Peipus, the fifth-largest lake in Europe, dates back hundreds of millions of years to the Paleozoic Era and is known for its sand dunes, which can 'sing' when the wind blows just right. In the winter the frozen lake surface may feature ice hummocks, as seen in this image. The hummocks are caused by slow, uneven pressure in the ice pack.
 > 
 > 
 > 
@@ -91,18 +91,18 @@
 
 </details>
 
-| ![佩普斯湖](https://cn.bing.com/th?id=OHR.HummockIce_ZH-CN9917832145_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![佩普斯湖](https://cn.bing.com/th?id=OHR.HummockIce_ZH-CN9917832145_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Lake Peipus, Estonia](https://cn.bing.com/th?id=OHR.HummockIce_EN-US4606231645_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Peipus, Estonia](https://cn.bing.com/th?id=OHR.HummockIce_EN-US4606231645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HummockIce_ZH-CN9917832145_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HummockIce_ZH-CN9917832145_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HummockIce_EN-US4606231645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HummockIce_EN-US4606231645_1080x1920.jpg) |
 
 ### 20230109
 
-> 南达科他州风洞国家公园的水牛 (© Charlie Summers/Minden Pictures)
+> Bison in Wind Cave National Park, South Dakota (© Charlie Summers/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 风洞国家公园建立于100年前，位于著名的黄石国家公园和恶地国家公园之间，这里生活着北美仅有的四大纯种野牛之一。20世纪初，动保人士从屠刀下救了20头野牛。今天照片里的两头野牛就是这20头野牛的后代。那时，野牛仅存不到1000头，而野牛的数量曾一度达到5000万头。在地上，这里有美国最大的草原；在地下，这里有世界上最大的洞穴体系之一。随着天气的变化，空气在洞穴进出，风洞国家公园也因此得名。
+> Between the more famous national parks of Yellowstone and the Badlands lies Wind Cave National Park in South Dakota. Established 120 years ago, this national park is home to one of only four wild herds of genetically pure bison in North America. The two in our image are the descendants of 20 bison saved from slaughter by conservationists in the early 1900s. At the time, fewer than 1,000 wild bison were left alive out of a population that once numbered 50 million. Above ground, the park is the largest grass prairie in the country. Below ground lies one of the most extensive cave systems in the world. As the weather above changes, air flows into and out of the caves creating the wind for which the park was named.
 > 
 > 
 > 
@@ -110,18 +110,18 @@
 
 </details>
 
-| ![风洞国家公园，美国南达科他州](https://cn.bing.com/th?id=OHR.BisonWindCave_ZH-CN9778045938_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![风洞国家公园，美国南达科他州](https://cn.bing.com/th?id=OHR.BisonWindCave_ZH-CN9778045938_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Wind Cave National Park celebrates 120 years](https://cn.bing.com/th?id=OHR.BisonWindCave_EN-US4537340482_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wind Cave National Park celebrates 120 years](https://cn.bing.com/th?id=OHR.BisonWindCave_EN-US4537340482_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonWindCave_ZH-CN9778045938_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonWindCave_ZH-CN9778045938_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonWindCave_EN-US4537340482_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonWindCave_EN-US4537340482_1080x1920.jpg) |
 
 ### 20230108
 
-> 科罗拉多州布雷肯里奇 (© Sean Pavone/Shutterstock)
+> Breckenridge, Colorado (© Sean Pavone/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 19世纪60年代，金矿开采使这座落基山小镇闻名于世。但现在，真正的黄金是飘落在小镇周围山坡上的优质粉雪。布雷肯里奇是科罗拉多州最受欢迎的雪场之一，该度假村总共有35部缆车，连接5座山峰，覆盖2900英亩的区域。游客们也会在夏天来这里钓鱼、骑自行车和划船，游客人数轻松就能超过这里的居民人数（5000人）。如今，布雷肯里奇的金矿早已关闭，自然美景才是这座小镇永恒的价值。
+> Gold mining put this Rocky Mountain town on the map in the 1860s, but today the real gold is the powdery snow that falls liberally on the slopes that surround the town. Breckenridge is one of Colorado's premier ski and snowboard destinations. The resort has 35 lifts servicing five peaks and 2,900 acres of terrain. The visitors—who also arrive in the summer to fish, cycle, and paddle—easily outnumber the 5,000 residents of this quaint village. The gold mines have long shut down, apart from hosting visits from tourists. The enduring value of Breckenridge is its natural beauty.
 > 
 > 
 > 
@@ -129,19 +129,9 @@
 
 </details>
 
-| ![布雷肯里奇，美国科罗拉多州](https://cn.bing.com/th?id=OHR.Breckenridge_ZH-CN9598860382_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![布雷肯里奇，美国科罗拉多州](https://cn.bing.com/th?id=OHR.Breckenridge_ZH-CN9598860382_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Breckenridge, Colorado](https://cn.bing.com/th?id=OHR.Breckenridge_EN-US4460042968_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Breckenridge, Colorado](https://cn.bing.com/th?id=OHR.Breckenridge_EN-US4460042968_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Breckenridge_ZH-CN9598860382_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Breckenridge_ZH-CN9598860382_1080x1920.jpg) |ated and used for grazing. Black Fell, which is a little over 1,000 feet high, has some acclaim, having been mentioned in Alfred Wainwright's 'Pictorial Guide to the Lakeland Fells' as a prime viewing area. No matter which direction you gaze, you're sure to see something wonderful.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Black Fell in England's Lake District](https://cn.bing.com/th?id=OHR.BlackFell_EN-US4276698070_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black Fell in England's Lake District](https://cn.bing.com/th?id=OHR.BlackFell_EN-US4276698070_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlackFell_EN-US4276698070_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlackFell_EN-US4276698070_1080x1920.jpg) |_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.SandhillSleeping_EN-US4023790571_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_1080x1920.jpg) ||:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Breckenridge_EN-US4460042968_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Breckenridge_EN-US4460042968_1080x1920.jpg) |g) ||:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg) |ng.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |HR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |564943350_1080x1920.jpg) |
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
