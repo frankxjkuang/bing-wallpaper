@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230116
+
+> Inscription Wall at the Martin Luther King Jr. Memorial in Washington, DC (© Ken Howard/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> This striking memorial to Civil Rights icon Martin Luther King, Jr., displays 14 powerful quotes from his speeches and writings. The Inscription Wall, in Washington DC, lets the visitor browse the quotes without the structure of a timeline—the earliest quote dates to 1956 and the Montgomery Bus Boycott; the most recent is taken from Dr. King's sermon at the National Cathedral in Washington just four days before he was assassinated.
+> 
+> While the quotations float freely in time, there is a clear overarching theme. The National Park Service explains that the inscriptions 'stress four primary messages of Dr. King: justice, democracy, hope, and love.'
+> 
+> Perhaps surprisingly, there are no quotes from Dr. King's famous 'I Have a Dream' speech. That's not an oversight, though: The whole memorial has that legendary speech as its theme.
+
+</details>
+
+| ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.InscriptionWall_EN-US1392173431_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.InscriptionWall_EN-US1392173431_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InscriptionWall_EN-US1392173431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InscriptionWall_EN-US1392173431_1080x1920.jpg) |
+
 ### 20230115
 
 > Aura River in Turku, Finland (© Jarmo Piironen/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Lake Peipus, Estonia](https://cn.bing.com/th?id=OHR.HummockIce_EN-US4606231645_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Peipus, Estonia](https://cn.bing.com/th?id=OHR.HummockIce_EN-US4606231645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HummockIce_EN-US4606231645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HummockIce_EN-US4606231645_1080x1920.jpg) |
-
-### 20230109
-
-> Bison in Wind Cave National Park, South Dakota (© Charlie Summers/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Between the more famous national parks of Yellowstone and the Badlands lies Wind Cave National Park in South Dakota. Established 120 years ago, this national park is home to one of only four wild herds of genetically pure bison in North America. The two in our image are the descendants of 20 bison saved from slaughter by conservationists in the early 1900s. At the time, fewer than 1,000 wild bison were left alive out of a population that once numbered 50 million. Above ground, the park is the largest grass prairie in the country. Below ground lies one of the most extensive cave systems in the world. As the weather above changes, air flows into and out of the caves creating the wind for which the park was named.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Wind Cave National Park celebrates 120 years](https://cn.bing.com/th?id=OHR.BisonWindCave_EN-US4537340482_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wind Cave National Park celebrates 120 years](https://cn.bing.com/th?id=OHR.BisonWindCave_EN-US4537340482_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonWindCave_EN-US4537340482_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonWindCave_EN-US4537340482_1080x1920.jpg) |com/th?id=OHR.Breckenridge_EN-US4460042968_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Breckenridge_EN-US4460042968_1080x1920.jpg) |g) ||:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HummockIce_EN-US4606231645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HummockIce_EN-US4606231645_1080x1920.jpg) |th?id=OHR.Breckenridge_EN-US4460042968_1080x1920.jpg) |g) ||:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg) |ng.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |HR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |564943350_1080x1920.jpg) |
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
