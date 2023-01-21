@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230119
+
+> Park City, Utah (© Kruck20/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As beautiful as this vista is, most of today's visitors to Park City are there to spend the day inside. Sundance Film Festival, the nation's biggest celebration of independent cinema, opens today and runs through January 29. The careers of Hollywood directors such as Quentin Tarantino and Steven Soderbergh were launched here, and every year a new crop of greenhorns arrives in this mountain enclave with the dream that they'll leave with a distribution deal.
+> 
+> It's a common misconception that the festival was founded by Robert Redford. It was actually started as the Utah Film Festival in Salt Lake City in 1978 by Sterling Van Wagenen, who then brought on Redford as chairman. Redford has remained involved with the festival ever since, presiding over its move to Park City and transformation into the largest festival of its kind in the United States. In the past decade, Sundance London and Sundance Hong Kong have expanded the mission of the Sundance Institute.
+> 
+> 
+
+</details>
+
+| ![Sundance Film Festival opens in Park City](https://cn.bing.com/th?id=OHR.SFFParkCity_EN-US1872185938_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sundance Film Festival opens in Park City](https://cn.bing.com/th?id=OHR.SFFParkCity_EN-US1872185938_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SFFParkCity_EN-US1872185938_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SFFParkCity_EN-US1872185938_1080x1920.jpg) |
+
 ### 20230118
 
 > White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)
@@ -112,27 +131,7 @@
 
 | ![Giant kelp in the Channel Islands National Marine Sanctuary](https://cn.bing.com/th?id=OHR.Pneumatocysts_EN-US1065729036_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Giant kelp in the Channel Islands National Marine Sanctuary](https://cn.bing.com/th?id=OHR.Pneumatocysts_EN-US1065729036_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Pneumatocysts_EN-US1065729036_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Pneumatocysts_EN-US1065729036_1080x1920.jpg) |
-
-### 20230112
-
-> Rumelihisarı on the Bosporus Strait at Istanbul, Türkiye (© Drone in Wonderland/Amazing Aerial Agency)
-
-<details>
-<summary>Description</summary>
-
-> Though Türkiye usually lives up to expectations as a warm Mediterranean country, snow occasionally falls here. This winter dusting of Istanbul, Türkiye's largest city, brings into sharper focus the lines of Rumelihisarı in the center of our image. The structure, also known as Rumeli Fortress, was built in the 15th century by an Ottoman sultan as a way to choke naval traffic through the narrow Bosporus Strait. The Bosporus connects the Sea of Marmara to the Black Sea, separating Istanbul into what are often referred to as its 'European side' and 'Asian side.' Today, the fortress isn't used to fire upon ships but serves as a museum and concert venue. While the place has changed over the centuries, the killer view hasn't.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Rumelihisarı in Istanbul, Türkiye](https://cn.bing.com/th?id=OHR.RumeliHisari_EN-US4800002879_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rumelihisarı in Istanbul, Türkiye](https://cn.bing.com/th?id=OHR.RumeliHisari_EN-US4800002879_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RumeliHisari_EN-US4800002879_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RumeliHisari_EN-US4800002879_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.HummockIce_EN-US4606231645_1080x1920.jpg) |th?id=OHR.Breckenridge_EN-US4460042968_1080x1920.jpg) |g) ||:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg) |ng.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |HR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |564943350_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Pneumatocysts_EN-US1065729036_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Pneumatocysts_EN-US1065729036_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_1080x1920.jpg) |ng.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_1080x1920.jpg) |HR.WinterberryBush_EN-US5722169778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_1080x1920.jpg) |564943350_1080x1920.jpg) |
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
 > 
