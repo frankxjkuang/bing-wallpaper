@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230123
+
+> Moai statues on Easter Island, Chile (© Karine Aigner/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Today we're looking at something you may have heard about before—the famous Moai statues on Chile's remote Easter Island. These big-headed statues were carved out of solidified volcanic ash by the Rapa Nui people between 1250 and 1500, and there are nearly 1,000 of them on the island. Archaeologists believe they were meant to honor Rapa Nui ancestors and were revered as symbols of power and authority. All but seven of the statues face away from the surrounding Pacific Ocean, and instead look inward toward the villages, as if positioned to watch protectively over the Rapa Nui.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Moai statues on Easter Island, Chile](https://cn.bing.com/th?id=OHR.SunriseMoai_EN-US2278287529_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Moai statues on Easter Island, Chile](https://cn.bing.com/th?id=OHR.SunriseMoai_EN-US2278287529_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunriseMoai_EN-US2278287529_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunriseMoai_EN-US2278287529_1080x1920.jpg) |
+
 ### 20230122
 
 > Mountain hare in Derbyshire, England (© Ben Hall/Minden Pictures)
@@ -112,24 +131,7 @@
 
 | ![Muniellos Nature Reserve](https://cn.bing.com/th?id=OHR.SessileOaks_EN-US1487454928_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Muniellos Nature Reserve](https://cn.bing.com/th?id=OHR.SessileOaks_EN-US1487454928_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SessileOaks_EN-US1487454928_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SessileOaks_EN-US1487454928_1080x1920.jpg) |
-
-### 20230116
-
-> Inscription Wall at the Martin Luther King Jr. Memorial in Washington, DC (© Ken Howard/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> This striking memorial to Civil Rights icon Martin Luther King, Jr., displays 14 powerful quotes from his speeches and writings. The Inscription Wall, in Washington DC, lets the visitor browse the quotes without the structure of a timeline—the earliest quote dates to 1956 and the Montgomery Bus Boycott; the most recent is taken from Dr. King's sermon at the National Cathedral in Washington just four days before he was assassinated.
-> 
-> While the quotations float freely in time, there is a clear overarching theme. The National Park Service explains that the inscriptions 'stress four primary messages of Dr. King: justice, democracy, hope, and love.'
-> 
-> Perhaps surprisingly, there are no quotes from Dr. King's famous 'I Have a Dream' speech. That's not an oversight, though: The whole memorial has that legendary speech as its theme.
-
-</details>
-
-| ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.InscriptionWall_EN-US1392173431_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.InscriptionWall_EN-US1392173431_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SessileOaks_EN-US1487454928_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SessileOaks_EN-US1487454928_1080x1920.jpg) |.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.InscriptionWall_EN-US1392173431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InscriptionWall_EN-US1392173431_1080x1920.jpg) |cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
