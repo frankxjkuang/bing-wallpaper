@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230127
+
+> Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Today we're admiring red mangrove seedlings at Guanahacabibes National Park in Cuba. Mangrove forests not only protect coastlines but are a crucial component of tropical coastal ecosystems and are uniquely suited to thrive in brackish or salty water. These hardy trees can withstand the force of tremendous waves and ferocious winds, fending off the damaging effects of storms and erosion.
+> 
+> Below the surface, they work just as hard: Their complex root systems filter out salt and provide shelter and protection for marine life, encouraging biodiversity. Here in Guanahacabibes, that marine life includes several species of turtles as well as red swamp crayfish and a slew of reptiles and amphibians.
+> 
+> Another reason to tip our hats to the mighty mangroves? They capture up to 10 times more carbon dioxide from the atmosphere than tropical forests do. They're also incredible carbon sinks, storing much more carbon in their roots than their terrestrial counterparts.
+
+</details>
+
+| ![Guanahacabibes National Park, Cuba](https://cn.bing.com/th?id=OHR.RedMangrove_EN-US2559915803_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Guanahacabibes National Park, Cuba](https://cn.bing.com/th?id=OHR.RedMangrove_EN-US2559915803_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedMangrove_EN-US2559915803_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedMangrove_EN-US2559915803_1080x1920.jpg) |
+
 ### 20230126
 
 > Heaven's Gate Cave in Tianmen Mountain National Park, China (© Shane P. White/Minden Pictures)
@@ -112,28 +131,7 @@
 
 | ![Kangaroo family for National Hugging Day](https://cn.bing.com/th?id=OHR.HuggingKanga_EN-US2086666028_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kangaroo family for National Hugging Day](https://cn.bing.com/th?id=OHR.HuggingKanga_EN-US2086666028_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HuggingKanga_EN-US2086666028_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HuggingKanga_EN-US2086666028_1080x1920.jpg) |
-
-### 20230120
-
-> King penguins in the Falkland Islands (© Elmar Weiss/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> We're celebrating Penguin Awareness Day in the Falkland Islands, taking a stroll with some king penguins. Kings are the second-largest penguin species, only outranked in stature by their emperor penguin cousins. And while the kings' tuxedo coloring gives them a dash of the debonair, it also provides an important and more practical purpose: camouflage. When the birds dive deep into the ocean looking for food, their black feathers disguise the birds from predators above, while their white undersides do the reverse. Kings are legendary for their diving prowess—in their quest for tasty squid and lanternfish, they can dive to depths of 300 feet, and some have even been spotted nearly 1,000 feet beneath the surface. Underwater, these flightless birds are the epitome of grace. On land, however, they are not so graceful, and waddle or 'toboggan' on their bellies to get around.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Penguin Awareness Day](https://cn.bing.com/th?id=OHR.FalklandKings_EN-US1992849422_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Penguin Awareness Day](https://cn.bing.com/th?id=OHR.FalklandKings_EN-US1992849422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FalklandKings_EN-US1992849422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FalklandKings_EN-US1992849422_1080x1920.jpg) |EN-US1584863251_1080x1920.jpg) ||
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InscriptionWall_EN-US1392173431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InscriptionWall_EN-US1392173431_1080x1920.jpg) |cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HuggingKanga_EN-US2086666028_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HuggingKanga_EN-US2086666028_1080x1920.jpg) |-US1392173431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InscriptionWall_EN-US1392173431_1080x1920.jpg) |cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
 > 
 
