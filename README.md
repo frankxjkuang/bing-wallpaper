@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230131
+
+> Burchell's zebras, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> It's International Zebra Day, and we're giving a shout-out to the flashiest animal on the African savanna. It's a day to raise awareness of these distinctive creatures and encourage measures to protect them and their habitat. This group of Burchell's zebras is hanging out at Rietvlei Nature Reserve in South Africa.
+> 
+> The most attention-grabbing feature of a zebra is, of course, those unique stripes. In recent years, researchers have found that the high-contrast patterns of zebra stripes seem to confuse horseflies as they approach, causing them to veer away or bounce off. Horseflies in Africa carry diseases that can be lethal to zebras, so the stripes do a lot more than just make them look fancy.
+> 
+> 
+
+</details>
+
+| ![Burchell's zebras for International Zebra Day](https://cn.bing.com/th?id=OHR.ZebraTrio_EN-US4742257683_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Burchell's zebras for International Zebra Day](https://cn.bing.com/th?id=OHR.ZebraTrio_EN-US4742257683_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZebraTrio_EN-US4742257683_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraTrio_EN-US4742257683_1080x1920.jpg) |
+
 ### 20230130
 
 > Ice and Snow Sailing European Championships on Lake Balaton in Hungary (© mauritius images GmbH/Alamy Stock Photo)
@@ -112,26 +131,7 @@
 
 | ![Burns Night](https://cn.bing.com/th?id=OHR.BirksofAberfeldy_EN-US2525260479_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Burns Night](https://cn.bing.com/th?id=OHR.BirksofAberfeldy_EN-US2525260479_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BirksofAberfeldy_EN-US2525260479_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BirksofAberfeldy_EN-US2525260479_1080x1920.jpg) |
-
-### 20230124
-
-> Colle Santa Lucia in the Dolomites, Italy (© mauritius images GmbH/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> This tiny hamlet on the slopes of the Dolomite Mountains is so picturesque, we'd understand if you mistook it for a movie set. But Colle Santa Lucia is a real village in Italy with about 400 residents. Despite its location in Italy's northern reaches, the village is more culturally Austrian than Italian, and is only a stone's throw from the Austrian border state of Tyrol. And like its Austrian neighbors, Colle Santa Lucia is known for its peaks and ski resorts. It has more in common with wintry Innsbruck than sunny Venice, which is less than 100 miles away to the south.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Colle Santa Lucia, Dolomites, Italy](https://cn.bing.com/th?id=OHR.ColleSantaLucia_EN-US2362622808_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Colle Santa Lucia, Dolomites, Italy](https://cn.bing.com/th?id=OHR.ColleSantaLucia_EN-US2362622808_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColleSantaLucia_EN-US2362622808_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColleSantaLucia_EN-US2362622808_1080x1920.jpg) |6666028_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kangaroo family for National Hugging Day](https://cn.bing.com/th?id=OHR.HuggingKanga_EN-US2086666028_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BirksofAberfeldy_EN-US2525260479_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BirksofAberfeldy_EN-US2525260479_1080x1920.jpg) |086666028_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.HuggingKanga_EN-US2086666028_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HuggingKanga_EN-US2086666028_1080x1920.jpg) |-US1392173431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InscriptionWall_EN-US1392173431_1080x1920.jpg) |cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_1080x1920.jpg) |lerated at an alarming rate due to global warming. The mile-thick ice sheet that covers Antarctica accounts for 70% of the planet's supply of fresh water. To put that in perspective, if it all melted, sea levels would rise by 200 feet. Without this land of ice, the world would look a lot different.
 > 
