@@ -2,50 +2,50 @@
 
 ### 20230208
 
-> 艾琳多南堡，苏格兰高地 (© VisualCommunications/Getty Images)
+> Ureddplassen, a rest area on the Helgelandskysten scenic route, Norway (© Eyesite/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 艾琳多南堡坐落在苏格兰三个湖泊的交汇处，其宁静的表面下，是数个世纪的风云动荡。维京人、封建贵族和起义军来来去去，在这个苏格兰西部高地的湖滨城堡里留下了他们的足迹。
+> With sweeping views of fjords, mountains, and the sea, this is possibly one of the most beautiful places in the world to rest when you are on the road. Ureddplassen, also known as Uredd Rest Area, provides a place for respite to travelers on a section of the Helgelandskysten national scenic route in Norway. It also serves as a WWII memorial, sharing its name with a Norwegian submarine which was lost when it hit a German mine in February 1943.
 > 
-> 艾琳多南城堡始建于13世纪，用来防御维京人。后来，艾琳多南城堡经历了至少四次重建。中世纪时，这座城堡大部分时间都处于麦肯齐家族及其盟友马克雷家族的掌控下。1719年詹姆斯党人叛乱期间，艾琳多南城堡被英国皇家海军的炮弹摧毁，荒废了200年。
+> With its minimalist architecture and breath-taking scenery, Ureddplassen offers a visual experience like no other. It has marble benches and steps leading out to the open sea, and a wave-shaped public restroom with frosted glass that lights up beautifully in the dark.
 > 
-> 艾琳多南城堡位于杜伊奇湖、朗湖和阿尔什湖的交汇处。1911年，陆军中校约翰·麦克雷-吉尔斯特拉普买下它，用了20多年的时间重建城堡，并于1932年对外开放。重建时，城堡还新增了一座石桥，跨湖连接陆地，让城堡变得更加实用、美观和现代。现在，艾琳多南堡已成为苏格兰高地最受欢迎的景点之一，它的形象经常出现在包装和广告上。
+> Since its unveiling, the rest area has quickly become a popular tourist destination. Here, visitors and locals can witness the midnight sun in summer and feast their eyes on the northern lights in winter.
 
 </details>
 
-| ![艾琳多南堡，苏格兰](https://cn.bing.com/th?id=OHR.EileanDonanDawn_ZH-CN0383017858_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![艾琳多南堡，苏格兰](https://cn.bing.com/th?id=OHR.EileanDonanDawn_ZH-CN0383017858_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Uredd Rest Area, Norway](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Uredd Rest Area, Norway](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EileanDonanDawn_ZH-CN0383017858_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EileanDonanDawn_ZH-CN0383017858_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_1080x1920.jpg) |
 
 ### 20230207
 
-> 拉布罗小镇，列蒂省，意大利 (© Marco Ilari/Shutterstock)
+> Village of Labro, Rieti Province, Italy (© Marco Ilari/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 今天的照片展示的是罗马东北方向约43英里的意大利小村庄拉布罗。拉布罗始建于公元9世纪至10世纪，罗马帝国奥托大帝将其封给了一个王室贵族，村庄面积只有约4.4平方英里。诺比利-维泰莱斯基城堡坐落在树木繁茂的山坡上，修建初衷是为了保卫周边和控制山谷的通信路线。二战期间，拉布罗的人口急剧减少，整个村庄几近消失。二战后，拉布罗以旅游业为目标进行了重建，现在这里是个热门的旅游目的地。
+> Join us for a journey to a tiny Italian village about 40 miles northeast of Rome. Labro, which covers about 4.4 square miles, was founded sometime between the 9th and 10th centuries and was assigned to a powerful aristocratic family by Emperor Otto the Great. Perched atop a wooded hill, the Nobili-Vitelleschi castle originally served to secure the border and control communication routes in the valley below.
 > 
-> 
+> With its panoramic views and historic buildings, Labro is now a popular tourist destination, having been restored for the purpose shortly after World War II, when its existence was threatened by a mass exodus of the population.
 > 
 > 
 
 </details>
 
-| ![拉布罗，意大利](https://cn.bing.com/th?id=OHR.MedievalLabro_ZH-CN0015356188_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![拉布罗，意大利](https://cn.bing.com/th?id=OHR.MedievalLabro_ZH-CN0015356188_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Village of Labro, Italy](https://cn.bing.com/th?id=OHR.MedievalLabro_EN-US3411281136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Labro, Italy](https://cn.bing.com/th?id=OHR.MedievalLabro_EN-US3411281136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MedievalLabro_ZH-CN0015356188_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MedievalLabro_ZH-CN0015356188_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MedievalLabro_EN-US3411281136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MedievalLabro_EN-US3411281136_1080x1920.jpg) |
 
 ### 20230206
 
-> 峡湾国家公园，新西兰南岛 (© WitR/Adobe Stock)
+> Fiordland National Park in South Island, New Zealand (© WitR/Adobe Stock)
 
 <details>
 <summary>Description</summary>
 
-> 每年的2月6日是怀唐伊日，这一天在所有新西兰人心中有着特殊的地位，因为这一天是新西兰的国庆节。1840年2月6日，40位毛利部落酋长和英国王室在怀唐伊签署了《怀唐伊条约》，建国新西兰。怀唐伊当地的庆典活动一早便开始了，有独特的雕刻比赛和文艺表演，营造出浓郁的节日气氛。
+> For Waitangi Day, we're visiting the spectacular landscape of Fiordland National Park on New Zealand's South Island. Waitangi Day is New Zealand's national day, established to commemorate the signing of the Treaty of Waitangi on February 6, 1840. The document was signed by representatives of the British Crown and some 500 Māori chiefs to establish British law on the islands. The treaty also created the framework for political relations between New Zealand's government and the Indigenous Māori people. It's considered New Zealand's founding document and a cornerstone in the country's history.
 > 
 > 
 > 
@@ -53,56 +53,56 @@
 
 </details>
 
-| ![怀唐伊日](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![怀唐伊日](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Fiordland National Park, New Zealand](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_EN-US6375624505_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fiordland National Park, New Zealand](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_EN-US6375624505_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_EN-US6375624505_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_EN-US6375624505_1080x1920.jpg) |
 
 ### 20230205
 
-> 毛茸茸又可爱的山兔 (© Ben Hall/Minden Pictures)
+> Monarch butterflies at Pismo Beach, California (© Mimi Ditchie/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 正月是农历的元月，古人称“夜”为“宵”，正月十五是一年中第一个月圆之夜，所以称正月十五为“元宵节”。元宵节的形成有一个较长的过程，根源于民间开灯祈福古俗。说到元宵节开灯祈福，就会让人们联想到元宵灯的传统习俗闹花灯和猜灯谜。
+> Today we're in Pismo Beach, California, to celebrate one of the best-known species of butterflies—the monarch. Western Monarch Day marks their seasonal migration to California's Central Coast from cold northern locations west of the Rocky Mountains.
 > 
-> 闹花灯是元宵节传统节日习俗，始于西汉，兴盛于隋唐。猜灯谜又称打灯谜，是中国独有的富有民族风格的一种传统民俗文娱活动形式，每逢农历正月十五，传统民间都要挂起彩灯，燃放焰火，后来有人把谜语写在纸条上，贴在五光十色的彩灯上供人猜，这种既能启迪智慧又能迎合过节气氛的活动得到了很多人的喜欢。
+> A grove of eucalyptus trees at Pismo State Beach creates an optimal microclimate for the butterflies. Thousands arrive in the fall and roost through the winter until March, when they begin to fly north. After traveling a relatively short distance inland, the monarchs stop to mate and lay eggs on milkweed plants. The eggs will hatch after just a few days, eventually transforming into the next generation of adult butterflies to continue the trek. The annual cycle takes four or five generations of monarchs to complete, so the butterflies are following in the path most recently traveled by their great-grandparents (or so).
 > 
-> 今年是兔年，试着做一下像图片中这样可爱的小兔子一样的花灯吧！
+> In recent years, Western monarch butterfly populations have suffered significant declines, due to climate change and loss of overwintering habitats. We can help protect and restore monarch butterflies by planting native milkweed (their primary food source) and other pollinator-friendly plants in our gardens and yards.
 
 </details>
 
-| ![兔年元宵节](https://cn.bing.com/th?id=OHR.YearRabbit_ZH-CN2751166096_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![兔年元宵节](https://cn.bing.com/th?id=OHR.YearRabbit_ZH-CN2751166096_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Monarch butterflies, Pismo Beach, California](https://cn.bing.com/th?id=OHR.MonarchPismo_EN-US3162751009_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Monarch butterflies, Pismo Beach, California](https://cn.bing.com/th?id=OHR.MonarchPismo_EN-US3162751009_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YearRabbit_ZH-CN2751166096_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YearRabbit_ZH-CN2751166096_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonarchPismo_EN-US3162751009_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonarchPismo_EN-US3162751009_1080x1920.jpg) |
 
 ### 20230204
 
-> 永福樱花园，福建省龙岩市, 中国 (© SEN LI/Getty Images)
+> Rosa Parks sits in the front of a bus in Montgomery, Alabama, Dec 21, 1956 (© Bettmann Archive/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 立春，为二十四节气之首。立，是“开始”之意；春，代表着温暖、生长。立春标志着万物闭藏的冬季已过去，开始进入风和日暖、万物生长的春季。时至立春，在我国的北回归线（黄赤交角）及其以南一带，可明显感觉到早春的气息。虽然立春节气是从天文中划分的，但每年在立春节气后，人们开始有了一些踏春出游的活动。
+> On Dec 1, 1955, Alabama native Rosa Parks took a stand when she refused to stand. Parks rejected bus driver James F. Blake's order to vacate a seat on a Mongomery bus in favor of a white passenger and was arrested and fined for this act of civil disobedience. Parks then helped lead a boycott of Montgomery buses that lasted for over a year. The year-long protest finally ended when the US Supreme Court ruled that Alabama’s laws enforcing segregation on city buses and other modes of transportation were unconstitutional.
 > 
-> 
+> We're remembering Parks on the anniversary of her birth on Feb 4, 1913. Her act of defiance was a pivotal moment in the civil rights struggle. Though some tried to paint the seamstress as an accidental martyr, Parks was already involved in the movement at the time of her arrest. She later said of the incident, 'People always say that I didn't give up my seat because I was tired, but that isn't true. I was not tired physically, or no more tired than I usually was at the end of a working day. I was not old, although some people have an image of me as being old then. I was forty-two. No, the only tired I was, was tired of giving in.'
 > 
 > 
 
 </details>
 
-| ![永福樱花园，福建龙岩](https://cn.bing.com/th?id=OHR.Lichun2023_ZH-CN7842399047_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![永福樱花园，福建龙岩](https://cn.bing.com/th?id=OHR.Lichun2023_ZH-CN7842399047_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Rosa Parks Day](https://cn.bing.com/th?id=OHR.RosaParksBus_EN-US3109740887_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rosa Parks Day](https://cn.bing.com/th?id=OHR.RosaParksBus_EN-US3109740887_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Lichun2023_ZH-CN7842399047_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Lichun2023_ZH-CN7842399047_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RosaParksBus_EN-US3109740887_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RosaParksBus_EN-US3109740887_1080x1920.jpg) |
 
 ### 20230203
 
-> 费尔蒙芳堤娜城堡酒店，魁北克省，加拿大 (© Romiana Lee/Shutterstock)
+> Château Frontenac, Quebec City, Canada (© Romiana Lee/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 在2月大斋节之前，世界各地会举办庆祝活动，其中广为人知的活动大多位于气候温暖的城市，如里约热内卢和新奥尔良，在圣灰星期三（大斋节首日）之前，狂欢者们会穿着精美的服装狂欢。而魁北克冬季嘉年华则截然不同，正如我们今天的照片展示的那样，这里的庆祝活动充满冬日氛围，有冰雕、雪橇比赛等等冬天才有的特色活动。如今，魁北克的冬季嘉年华已经成为整个西半球规模最大的冬季节日。
+> Among all the pre-Lenten celebrations that take place around the world in February, the most famous are associated with warm-weather cities like Rio and New Orleans, where revelers party in elaborate costumes during the run-up to Ash Wednesday. It's a different affair in Quebec City, Canada, pictured here, where participants in the Quebec Winter Carnival enjoy all things winter, from snow sculptures to sleigh races. This former frontier outpost, and little sister to Montreal, is known for its spirited embrace of the coldest, darkest season. So, it's no surprise that its winter festival is the biggest in the Western Hemisphere. Our homepage image shows the grandiose Château Frontenac hotel, which opened in 1893, towering over the city's historic Old Quebec neighborhood, a UNESCO World Heritage Site.
 > 
 > 
 > 
@@ -110,18 +110,18 @@
 
 </details>
 
-| ![魁北克冬季嘉年华](https://cn.bing.com/th?id=OHR.QuebecFrontenac_ZH-CN9519096458_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![魁北克冬季嘉年华](https://cn.bing.com/th?id=OHR.QuebecFrontenac_ZH-CN9519096458_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Quebec City for Winter Carnival](https://cn.bing.com/th?id=OHR.QuebecFrontenac_EN-US3034032069_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Quebec City for Winter Carnival](https://cn.bing.com/th?id=OHR.QuebecFrontenac_EN-US3034032069_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QuebecFrontenac_ZH-CN9519096458_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuebecFrontenac_ZH-CN9519096458_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QuebecFrontenac_EN-US3034032069_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuebecFrontenac_EN-US3034032069_1080x1920.jpg) |
 
 ### 20230202
 
-> 高地陶恩国家公园内的高山土拨鼠，奥地利 (© Michaela Walch/Alamy)
+> Alpine marmots in Hohe Tauern National Park, Austria (© Michaela Walch/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 每年的2月2日是土拨鼠日，这是北美地区的传统节日，源自德国圣烛节。土拨鼠日在北美地区的流行，起源于1886年美国宾州的小镇旁苏托尼当地一家报纸上的一条幽默简讯。此后，“土拨鼠日”的传统才正式开始。当天会有成千上万的人聚集在旁苏托尼，见证冬眠的土拨鼠从洞穴中钻出来。根据美国民间传统：如果土拨鼠钻出洞时能看到自己的影子，那么冬天还会再持续六星期；如果它看不到自己的影子，那么春天即将来临。尽管现在这个传统仍然流行，但研究并未发现土拨鼠的影子和春天的关系。
+> Groundhog Day is a North American tradition with roots in the February 2 Candlemas observance practiced by German immigrants. The most well-known Groundhog Day celebration, in Punxsutawney, Pennsylvania, was first promoted by a local newspaper editor in 1886. Thousands of people gather in Punxsutawney each year to witness the groundhog emerge from its burrow, and more importantly, to see if the critter spots its shadow. If it does, winter will go on for six weeks, according to tradition. If it does not, spring-like conditions are said to be coming. Studies have yet to prove any link between the two events, but that hasn’t cast a shadow over this unusual tradition, which remains as popular as ever in the 21st century.
 > 
 > 
 > 
@@ -129,28 +129,9 @@
 
 </details>
 
-| ![高地陶恩国家公园内的高山土拨鼠，奥地利](https://cn.bing.com/th?id=OHR.GroundhogThree_ZH-CN6720558481_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![高地陶恩国家公园内的高山土拨鼠，奥地利](https://cn.bing.com/th?id=OHR.GroundhogThree_ZH-CN6720558481_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Groundhog Day](https://cn.bing.com/th?id=OHR.GroundhogThree_EN-US2975789647_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Groundhog Day](https://cn.bing.com/th?id=OHR.GroundhogThree_EN-US2975789647_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GroundhogThree_ZH-CN6720558481_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GroundhogThree_ZH-CN6720558481_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittleRockNine_EN-US4940477720_1080x1920.jpg) |
-
-### 20230131
-
-> Burchell's zebras, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> It's International Zebra Day, and we're giving a shout-out to the flashiest animal on the African savanna. It's a day to raise awareness of these distinctive creatures and encourage measures to protect them and their habitat. This group of Burchell's zebras is hanging out at Rietvlei Nature Reserve in South Africa.
-> 
-> The most attention-grabbing feature of a zebra is, of course, those unique stripes. In recent years, researchers have found that the high-contrast patterns of zebra stripes seem to confuse horseflies as they approach, causing them to veer away or bounce off. Horseflies in Africa carry diseases that can be lethal to zebras, so the stripes do a lot more than just make them look fancy.
-> 
-> 
-
-</details>
-
-| ![Burchell's zebras for International Zebra Day](https://cn.bing.com/th?id=OHR.ZebraTrio_EN-US4742257683_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Burchell's zebras for International Zebra Day](https://cn.bing.com/th?id=OHR.ZebraTrio_EN-US4742257683_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZebraTrio_EN-US4742257683_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraTrio_EN-US4742257683_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.IceSailingBalaton_EN-US2751943390_1080x1920.jpg) |id=OHR.AntarcticaDay_EN-US9921573438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AntarcticaDay_EN-US9921573438_1080x1920.jpg) |_1080x1920.jpg) |85216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HeronGiving_EN-US9774285216_1080x1920.jpg) |693219784_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red Planet Day](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GroundhogThree_EN-US2975789647_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GroundhogThree_EN-US2975789647_1080x1920.jpg) |ng.com/th?id=OHR.AntarcticaDay_EN-US9921573438_1080x1920.jpg) |_1080x1920.jpg) |85216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HeronGiving_EN-US9774285216_1080x1920.jpg) |693219784_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red Planet Day](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
