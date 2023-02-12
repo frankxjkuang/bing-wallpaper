@@ -1,70 +1,108 @@
 ## bing wallpaper
 
-### 20230209
+### 20230211
 
-> Lower Antelope Canyon near Page, Arizona (© AZCat/Getty Images)
+> 死亡谷扎布里斯基角上空的银河，美国加利福尼亚州 (© Matt Anderson Photography/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Today we're peering up from the depths of Lower Antelope Canyon, located in Lake Powell Navajo Tribal Park near Page, Arizona. This tall, narrow channel is an entry point into Antelope Canyon, a slot canyon that was created over millions of years by flash floods carving away at the soft Navajo sandstone.
+> 扎布里斯基角的标志性景观是摄影师和游客一年四季蜂拥而至的原因之一。大自然在这些荒地上侵蚀了亿万年，形成了这片令人惊叹的条纹岩层。这几座山峰上的深色部分是由古代火山爆发的熔岩形成的。扎布里斯基角位于加利福尼亚州的死亡谷国家公园，是无数电影（如《斯巴达克斯》和《星球大战》）的取景地。爱尔兰摇滚乐队U2的音乐专辑《约书亚树》的封面也在这里取景。难怪死亡谷暗夜节在美国如此受欢迎。
 > 
-> The Navajo name for Lower Antelope Canyon is Hazdistazí (spiral rock arches), but hikers have nicknamed it the Corkscrew for its twists and turns. Visitors shimmy through tight passages and climb up and down ladders to reach the bottom of the chamber. There they find themselves in an almost otherworldly environment, where sunbeams break through to the canyon floor, making the stone walls glow.
 > 
-> Tour guides, managed by the Navajo Nation, are mandatory for visitors to the canyon.
+> 
+> 
 
 </details>
 
-| ![Lower Antelope Canyon, Arizona](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_EN-US3547494170_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lower Antelope Canyon, Arizona](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_EN-US3547494170_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![扎布里斯基角上空的银河，加利福尼亚州](https://cn.bing.com/th?id=OHR.DarkSkiesDV_ZH-CN1076500221_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![扎布里斯基角上空的银河，加利福尼亚州](https://cn.bing.com/th?id=OHR.DarkSkiesDV_ZH-CN1076500221_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_EN-US3547494170_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_EN-US3547494170_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DarkSkiesDV_ZH-CN1076500221_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkiesDV_ZH-CN1076500221_1080x1920.jpg) |
+
+### 20230210
+
+> 埃庇道鲁斯剧场, 希腊阿尔戈利斯省 (© George Pachantouris/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 埃庇道鲁斯剧场隐藏在离雅典约100英里的埃庇道鲁斯山丘之中。它是一座保存完好的古希腊剧场，巨大的露天场地可以容纳超过14000名观众。这种希腊礼堂分三个部分，一是圆形主舞台，二是背景建筑，三是次第升高的观众席。埃庇道鲁斯剧场是一项工程壮举，它的建筑结构非常精妙，使剧场拥有完美的音响效果和良好的观赏效果。这座剧场原本是用于供奉古希腊医药之神阿斯克勒庇俄斯的。自1954年以来，该剧场上演了多位著名希腊演员和国际演员的戏剧和音乐表演。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![埃庇道鲁斯剧场，希腊](https://cn.bing.com/th?id=OHR.EpidaurusGreece_ZH-CN0640135476_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![埃庇道鲁斯剧场，希腊](https://cn.bing.com/th?id=OHR.EpidaurusGreece_ZH-CN0640135476_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EpidaurusGreece_ZH-CN0640135476_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EpidaurusGreece_ZH-CN0640135476_1080x1920.jpg) |
+
+### 20230209
+
+> 下羚羊峡谷，亚利桑那州，美国 (© AZCat/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 下羚羊峡谷是位于美国亚利桑纳州的一个美丽的自然景点。该峡谷也被原住民纳瓦霍人称为“螺旋石拱”。下羚羊峡谷不仅吸引了观景游客、徒步者，其鲜艳的色彩还吸引了许多摄影师。下羚羊峡谷呈“V”字形，这一独特的地貌是水流长年冲刷谷壁而形成的。羚羊峡谷的名字来源于纳瓦霍人的传说故事：过去，羚羊们会在冬天沿着峡谷漫步吃草。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![下羚羊峡谷，美国亚利桑那州](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_ZH-CN4758496750_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![下羚羊峡谷，美国亚利桑那州](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_ZH-CN4758496750_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_ZH-CN4758496750_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_ZH-CN4758496750_1080x1920.jpg) |
 
 ### 20230208
 
-> Ureddplassen, a rest area on the Helgelandskysten scenic route, Norway (© Eyesite/Alamy)
+> 艾琳多南堡，苏格兰高地 (© VisualCommunications/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> With sweeping views of fjords, mountains, and the sea, this is possibly one of the most beautiful places in the world to rest when you are on the road. Ureddplassen, also known as Uredd Rest Area, provides a place for respite to travelers on a section of the Helgelandskysten national scenic route in Norway. It also serves as a WWII memorial, sharing its name with a Norwegian submarine which was lost when it hit a German mine in February 1943.
+> 艾琳多南堡坐落在苏格兰三个湖泊的交汇处，其宁静的表面下，是数个世纪的风云动荡。维京人、封建贵族和起义军来来去去，在这个苏格兰西部高地的湖滨城堡里留下了他们的足迹。
 > 
-> With its minimalist architecture and breath-taking scenery, Ureddplassen offers a visual experience like no other. It has marble benches and steps leading out to the open sea, and a wave-shaped public restroom with frosted glass that lights up beautifully in the dark.
+> 艾琳多南城堡始建于13世纪，用来防御维京人。后来，艾琳多南城堡经历了至少四次重建。中世纪时，这座城堡大部分时间都处于麦肯齐家族及其盟友马克雷家族的掌控下。1719年詹姆斯党人叛乱期间，艾琳多南城堡被英国皇家海军的炮弹摧毁，荒废了200年。
 > 
-> Since its unveiling, the rest area has quickly become a popular tourist destination. Here, visitors and locals can witness the midnight sun in summer and feast their eyes on the northern lights in winter.
+> 艾琳多南城堡位于杜伊奇湖、朗湖和阿尔什湖的交汇处。1911年，陆军中校约翰·麦克雷-吉尔斯特拉普买下它，用了20多年的时间重建城堡，并于1932年对外开放。重建时，城堡还新增了一座石桥，跨湖连接陆地，让城堡变得更加实用、美观和现代。现在，艾琳多南堡已成为苏格兰高地最受欢迎的景点之一，它的形象经常出现在包装和广告上。
 
 </details>
 
-| ![Uredd Rest Area, Norway](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Uredd Rest Area, Norway](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![艾琳多南堡，苏格兰](https://cn.bing.com/th?id=OHR.EileanDonanDawn_ZH-CN0383017858_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![艾琳多南堡，苏格兰](https://cn.bing.com/th?id=OHR.EileanDonanDawn_ZH-CN0383017858_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EileanDonanDawn_ZH-CN0383017858_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EileanDonanDawn_ZH-CN0383017858_1080x1920.jpg) |
 
 ### 20230207
 
-> Village of Labro, Rieti Province, Italy (© Marco Ilari/Shutterstock)
+> 拉布罗小镇，列蒂省，意大利 (© Marco Ilari/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> Join us for a journey to a tiny Italian village about 40 miles northeast of Rome. Labro, which covers about 4.4 square miles, was founded sometime between the 9th and 10th centuries and was assigned to a powerful aristocratic family by Emperor Otto the Great. Perched atop a wooded hill, the Nobili-Vitelleschi castle originally served to secure the border and control communication routes in the valley below.
+> 今天的照片展示的是罗马东北方向约43英里的意大利小村庄拉布罗。拉布罗始建于公元9世纪至10世纪，罗马帝国奥托大帝将其封给了一个王室贵族，村庄面积只有约4.4平方英里。诺比利-维泰莱斯基城堡坐落在树木繁茂的山坡上，修建初衷是为了保卫周边和控制山谷的通信路线。二战期间，拉布罗的人口急剧减少，整个村庄几近消失。二战后，拉布罗以旅游业为目标进行了重建，现在这里是个热门的旅游目的地。
 > 
-> With its panoramic views and historic buildings, Labro is now a popular tourist destination, having been restored for the purpose shortly after World War II, when its existence was threatened by a mass exodus of the population.
+> 
 > 
 > 
 
 </details>
 
-| ![Village of Labro, Italy](https://cn.bing.com/th?id=OHR.MedievalLabro_EN-US3411281136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Labro, Italy](https://cn.bing.com/th?id=OHR.MedievalLabro_EN-US3411281136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![拉布罗，意大利](https://cn.bing.com/th?id=OHR.MedievalLabro_ZH-CN0015356188_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![拉布罗，意大利](https://cn.bing.com/th?id=OHR.MedievalLabro_ZH-CN0015356188_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MedievalLabro_EN-US3411281136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MedievalLabro_EN-US3411281136_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MedievalLabro_ZH-CN0015356188_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MedievalLabro_ZH-CN0015356188_1080x1920.jpg) |
 
 ### 20230206
 
-> Fiordland National Park in South Island, New Zealand (© WitR/Adobe Stock)
+> 峡湾国家公园，新西兰南岛 (© WitR/Adobe Stock)
 
 <details>
 <summary>Description</summary>
 
-> For Waitangi Day, we're visiting the spectacular landscape of Fiordland National Park on New Zealand's South Island. Waitangi Day is New Zealand's national day, established to commemorate the signing of the Treaty of Waitangi on February 6, 1840. The document was signed by representatives of the British Crown and some 500 Māori chiefs to establish British law on the islands. The treaty also created the framework for political relations between New Zealand's government and the Indigenous Māori people. It's considered New Zealand's founding document and a cornerstone in the country's history.
+> 每年的2月6日是怀唐伊日，这一天在所有新西兰人心中有着特殊的地位，因为这一天是新西兰的国庆节。1840年2月6日，40位毛利部落酋长和英国王室在怀唐伊签署了《怀唐伊条约》，建国新西兰。怀唐伊当地的庆典活动一早便开始了，有独特的雕刻比赛和文艺表演，营造出浓郁的节日气氛。
 > 
 > 
 > 
@@ -72,45 +110,28 @@
 
 </details>
 
-| ![Fiordland National Park, New Zealand](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_EN-US6375624505_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fiordland National Park, New Zealand](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_EN-US6375624505_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![怀唐伊日](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![怀唐伊日](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_EN-US6375624505_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_EN-US6375624505_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_1080x1920.jpg) |
 
 ### 20230205
 
-> Monarch butterflies at Pismo Beach, California (© Mimi Ditchie/Getty Images)
+> 毛茸茸又可爱的山兔 (© Ben Hall/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> Today we're in Pismo Beach, California, to celebrate one of the best-known species of butterflies—the monarch. Western Monarch Day marks their seasonal migration to California's Central Coast from cold northern locations west of the Rocky Mountains.
+> 正月是农历的元月，古人称“夜”为“宵”，正月十五是一年中第一个月圆之夜，所以称正月十五为“元宵节”。元宵节的形成有一个较长的过程，根源于民间开灯祈福古俗。说到元宵节开灯祈福，就会让人们联想到元宵灯的传统习俗闹花灯和猜灯谜。
 > 
-> A grove of eucalyptus trees at Pismo State Beach creates an optimal microclimate for the butterflies. Thousands arrive in the fall and roost through the winter until March, when they begin to fly north. After traveling a relatively short distance inland, the monarchs stop to mate and lay eggs on milkweed plants. The eggs will hatch after just a few days, eventually transforming into the next generation of adult butterflies to continue the trek. The annual cycle takes four or five generations of monarchs to complete, so the butterflies are following in the path most recently traveled by their great-grandparents (or so).
+> 闹花灯是元宵节传统节日习俗，始于西汉，兴盛于隋唐。猜灯谜又称打灯谜，是中国独有的富有民族风格的一种传统民俗文娱活动形式，每逢农历正月十五，传统民间都要挂起彩灯，燃放焰火，后来有人把谜语写在纸条上，贴在五光十色的彩灯上供人猜，这种既能启迪智慧又能迎合过节气氛的活动得到了很多人的喜欢。
 > 
-> In recent years, Western monarch butterfly populations have suffered significant declines, due to climate change and loss of overwintering habitats. We can help protect and restore monarch butterflies by planting native milkweed (their primary food source) and other pollinator-friendly plants in our gardens and yards.
+> 今年是兔年，试着做一下像图片中这样可爱的小兔子一样的花灯吧！
 
 </details>
 
-| ![Monarch butterflies, Pismo Beach, California](https://cn.bing.com/th?id=OHR.MonarchPismo_EN-US3162751009_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Monarch butterflies, Pismo Beach, California](https://cn.bing.com/th?id=OHR.MonarchPismo_EN-US3162751009_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![兔年元宵节](https://cn.bing.com/th?id=OHR.YearRabbit_ZH-CN2751166096_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![兔年元宵节](https://cn.bing.com/th?id=OHR.YearRabbit_ZH-CN2751166096_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonarchPismo_EN-US3162751009_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonarchPismo_EN-US3162751009_1080x1920.jpg) |
-
-### 20230204
-
-> Rosa Parks sits in the front of a bus in Montgomery, Alabama, Dec 21, 1956 (© Bettmann Archive/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On Dec 1, 1955, Alabama native Rosa Parks took a stand when she refused to stand. Parks rejected bus driver James F. Blake's order to vacate a seat on a Mongomery bus in favor of a white passenger and was arrested and fined for this act of civil disobedience. Parks then helped lead a boycott of Montgomery buses that lasted for over a year. The year-long protest finally ended when the US Supreme Court ruled that Alabama’s laws enforcing segregation on city buses and other modes of transportation were unconstitutional.
-> 
-> We're remembering Parks on the anniversary of her birth on Feb 4, 1913. Her act of defiance was a pivotal moment in the civil rights struggle. Though some tried to paint the seamstress as an accidental martyr, Parks was already involved in the movement at the time of her arrest. She later said of the incident, 'People always say that I didn't give up my seat because I was tired, but that isn't true. I was not tired physically, or no more tired than I usually was at the end of a working day. I was not old, although some people have an image of me as being old then. I was forty-two. No, the only tired I was, was tired of giving in.'
-> 
-> 
-
-</details>
-
-| ![Rosa Parks Day](https://cn.bing.com/th?id=OHR.RosaParksBus_EN-US3109740887_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rosa Parks Day](https://cn.bing.com/th?id=OHR.RosaParksBus_EN-US3109740887_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YearRabbit_ZH-CN2751166096_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YearRabbit_ZH-CN2751166096_1080x1920.jpg) |=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RosaParksBus_EN-US3109740887_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RosaParksBus_EN-US3109740887_1080x1920.jpg) |
 
