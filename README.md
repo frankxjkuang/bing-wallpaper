@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230216
+
+> 'Firefall' on Horsetail Fall, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Illuminated by the setting sun on Yosemite's famous El Capitan is a rare natural phenomenon known as the 'Firefall,' which appears for just a few weeks a year. From mid to late February, the sun is at just the right angle to set Horsetail Fall aglow, but only if sufficient water is flowing and the sky is clear. Even then, the Firefall only lasts for about 10 minutes in the evening, so vantage points can be very crowded.
+> 
+> Horsetail Fall is a small, seasonal waterfall fed by rain and snowmelt on the eastern edge of El Capitan, the majestic granite monolith that towers more than 3,000 feet above the valley floor. We hope this year's visitors are lucky enough to see the Firefall, but, if you miss it, there are plenty of other natural wonders to enjoy here in Yosemite National Park.
+> 
+> 
+
+</details>
+
+| ![Horsetail Fall, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.FireFallYosemite_EN-US1696286356_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Horsetail Fall, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.FireFallYosemite_EN-US1696286356_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FireFallYosemite_EN-US1696286356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FireFallYosemite_EN-US1696286356_1080x1920.jpg) |
+
 ### 20230215
 
 > Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Ancient theater of Epidaurus, Greece](https://cn.bing.com/th?id=OHR.EpidaurusGreece_EN-US0957261511_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ancient theater of Epidaurus, Greece](https://cn.bing.com/th?id=OHR.EpidaurusGreece_EN-US0957261511_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EpidaurusGreece_EN-US0957261511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EpidaurusGreece_EN-US0957261511_1080x1920.jpg) |
-
-### 20230209
-
-> Lower Antelope Canyon near Page, Arizona (© AZCat/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today we're peering up from the depths of Lower Antelope Canyon, located in Lake Powell Navajo Tribal Park near Page, Arizona. This tall, narrow channel is an entry point into Antelope Canyon, a slot canyon that was created over millions of years by flash floods carving away at the soft Navajo sandstone.
-> 
-> The Navajo name for Lower Antelope Canyon is Hazdistazí (spiral rock arches), but hikers have nicknamed it the Corkscrew for its twists and turns. Visitors shimmy through tight passages and climb up and down ladders to reach the bottom of the chamber. There they find themselves in an almost otherworldly environment, where sunbeams break through to the canyon floor, making the stone walls glow.
-> 
-> Tour guides, managed by the Navajo Nation, are mandatory for visitors to the canyon.
-
-</details>
-
-| ![Lower Antelope Canyon, Arizona](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_EN-US3547494170_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lower Antelope Canyon, Arizona](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_EN-US3547494170_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_EN-US3547494170_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_EN-US3547494170_1080x1920.jpg) |ing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EpidaurusGreece_EN-US0957261511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EpidaurusGreece_EN-US0957261511_1080x1920.jpg) |s=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_1080x1920.jpg) |d=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
