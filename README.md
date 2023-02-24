@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230222
+
+> Freedom Sunday rally, Soldier Field, Chicago, Illinois, July 10, 1966 (© Bettmann/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As Black History Month winds down, we're remembering the Freedom Sunday rally at Chicago's Soldier Field, which took place on July 10, 1966. More than 30,000 people listened to Dr. Martin Luther King Jr. speak powerfully about racial injustices in the housing industry. The Chicago Freedom Movement had begun a year earlier when local civil rights groups invited Dr. King to lead demonstrations against segregation in education and housing as well as employment discrimination. The movement lasted from mid-1965 to early 1967 and is credited with inspiring the Fair Housing Act, passed by Congress in 1968.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Black History Month](https://cn.bing.com/th?id=OHR.FreedomRallyChi_EN-US2565810173_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.FreedomRallyChi_EN-US2565810173_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FreedomRallyChi_EN-US2565810173_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FreedomRallyChi_EN-US2565810173_1080x1920.jpg) |
+
 ### 20230221
 
 > French Quarter, New Orleans, Louisiana (© f11photo/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Horsetail Fall, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.FireFallYosemite_EN-US1696286356_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Horsetail Fall, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.FireFallYosemite_EN-US1696286356_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FireFallYosemite_EN-US1696286356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FireFallYosemite_EN-US1696286356_1080x1920.jpg) |
-
-### 20230215
-
-> Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It's World Hippo Day, time to celebrate one of Earth's heaviest land animals! These African herbivores are scattered across the continent south of the Sahara Desert but, despite their wide range, hippos are listed as a vulnerable species due to habitat loss. While they spend their lives in and around water, hippos aren't good swimmers and can't float. They move about in deep water by bouncing off the bottom. Hippos can live up to 40 years in the wild and possess the largest mouth of any land animal in the world, so smiling for the camera comes naturally.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Hippo family in Chobe National Park, Botswana](https://cn.bing.com/th?id=OHR.HippoDayChobe_EN-US1475666654_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hippo family in Chobe National Park, Botswana](https://cn.bing.com/th?id=OHR.HippoDayChobe_EN-US1475666654_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HippoDayChobe_EN-US1475666654_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HippoDayChobe_EN-US1475666654_1080x1920.jpg) |.OtaruIgloo_EN-US1380797135_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OtaruIgloo_EN-US1380797135_1080x1920.jpg) |ng.com/th?id=OHR.DarkSkiesDV_EN-US5129041284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkiesDV_EN-US5129041284_1080x1920.jpg) |957261511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EpidaurusGreece_EN-US0957261511_1080x1920.jpg) |s=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FireFallYosemite_EN-US1696286356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FireFallYosemite_EN-US1696286356_1080x1920.jpg) |oo_EN-US1380797135_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OtaruIgloo_EN-US1380797135_1080x1920.jpg) |ng.com/th?id=OHR.DarkSkiesDV_EN-US5129041284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkiesDV_EN-US5129041284_1080x1920.jpg) |957261511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EpidaurusGreece_EN-US0957261511_1080x1920.jpg) |s=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_1080x1920.jpg) |d=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
