@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230226
+
+> Suspension bridge in Tambopata National Reserve, Amazon Basin, Peru (© Pere Rubi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Those brave enough to step out over this suspension bridge will be treated to a macaw's-eye view of the Amazon rainforest, on which the survival of life on Earth depends. The vast Amazon biome, which spans 2.6 million square miles—an area twice the size of India—stores enormous amounts of carbon and supports approximately 10% of all known animal and plant species on Earth.
+> 
+> The Amazon River discharges more water than any other river on Earth, and almost 20% of all water that flows into the ocean first travels through the Amazon River basin. While almost two-thirds of the Amazon River basin lies in Brazil, it stretches across seven other countries, from the Andes Mountains to the Atlantic Ocean. This section of canopy is in Peru's Tambopata National Reserve, home to giant harpy eagles, macaws, jaguars, capybaras, sloths, and giant otters.
+> 
+> 
+
+</details>
+
+| ![Tambopata National Reserve, Peru](https://cn.bing.com/th?id=OHR.CanopyPeru_EN-US9715922202_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tambopata National Reserve, Peru](https://cn.bing.com/th?id=OHR.CanopyPeru_EN-US9715922202_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CanopyPeru_EN-US9715922202_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanopyPeru_EN-US9715922202_1080x1920.jpg) |
+
 ### 20230225
 
 > Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Presidents Day](https://cn.bing.com/th?id=OHR.PresDayDC_EN-US2054662773_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Presidents Day](https://cn.bing.com/th?id=OHR.PresDayDC_EN-US2054662773_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresDayDC_EN-US2054662773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresDayDC_EN-US2054662773_1080x1920.jpg) |
-
-### 20230219
-
-> Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> If you ever want to feel insignificant, just think about the sheer size of a humpback whale. With adults growing up to 56 feet long, humpback whales are one of the biggest mammals on Earth. In February, Hawaii celebrates the return of these migrating giants with its Maui Whale Festival. This month-long event encourages people to get involved in conservation efforts and includes whale-watching tours, allowing closer views of these beautiful creatures.
-> 
-> A species of baleen whale, humpback whales are known for their haunting, elaborate songs, which travel vast distances through the ocean. It is only the males that sing and each whale population has its own song. Although the exact purpose is still a mystery, it is thought the songs might allow them to communicate with other whales over vast distances and help navigate new areas. These great leviathans of the deep also share a common ancestor with one of the world's biggest land mammals—they are distant relatives of the hippopotamus.
-> 
-> 
-
-</details>
-
-| ![Humpback whales in Maui, Hawaii](https://cn.bing.com/th?id=OHR.MauiWhale_EN-US1928366389_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Humpback whales in Maui, Hawaii](https://cn.bing.com/th?id=OHR.MauiWhale_EN-US1928366389_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MauiWhale_EN-US1928366389_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MauiWhale_EN-US1928366389_1080x1920.jpg) |N-US1839710567_1080x1920.jpg) |rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresDayDC_EN-US2054662773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresDayDC_EN-US2054662773_1080x1920.jpg) |HD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MauiWhale_EN-US1928366389_1080x1920.jpg) |N-US1839710567_1080x1920.jpg) |rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BirdcountAllen_EN-US1766542066_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BirdcountAllen_EN-US1766542066_1080x1920.jpg) |N-US1380797135_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OtaruIgloo_EN-US1380797135_1080x1920.jpg) |ng.com/th?id=OHR.DarkSkiesDV_EN-US5129041284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkiesDV_EN-US5129041284_1080x1920.jpg) |957261511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EpidaurusGreece_EN-US0957261511_1080x1920.jpg) |s=1&c=4) |
 |:---------:|:---------:|
