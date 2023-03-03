@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230301
+
+> Portrait Monument of women's suffrage pioneers, Capitol Rotunda, Washington, DC (© Andrew Harrer/Bloomberg/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> For the first day of Women's History Month, we've come to the Capitol Rotunda in Washington, DC, to view the Portrait Monument, which depicts three founding mothers of the 19th-century women's rights movement. Elizabeth Cady Stanton, Lucretia Mott, and Susan B. Anthony are particularly known for their efforts to gain American women the right to vote.
+> 
+> Artist Adelaide Johnson sculpted the Portrait Monument in 1920, the same year that US women finally got the vote, and it was unveiled on Feb 15, 1921 in the Rotunda. The next day, it was moved into storage in the Capitol Crypt. Although the move was supposed to be temporary while a permanent home was selected, it would take 76 years and an act of congress before the Portrait Monument was returned to the Rotunda.
+> 
+> 
+
+</details>
+
+| ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffrageMonumentDC_EN-US0188045009_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffrageMonumentDC_EN-US0188045009_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffrageMonumentDC_EN-US0188045009_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffrageMonumentDC_EN-US0188045009_1080x1920.jpg) |
+
 ### 20230228
 
 > Atrani, Amalfi Coast, Italy (© Amazing Aerial/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![The lights of Paris](https://cn.bing.com/th?id=OHR.BlueWinterParis_EN-US2358774284_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The lights of Paris](https://cn.bing.com/th?id=OHR.BlueWinterParis_EN-US2358774284_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueWinterParis_EN-US2358774284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueWinterParis_EN-US2358774284_1080x1920.jpg) |
-
-### 20230222
-
-> Freedom Sunday rally, Soldier Field, Chicago, Illinois, July 10, 1966 (© Bettmann/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As Black History Month winds down, we're remembering the Freedom Sunday rally at Chicago's Soldier Field, which took place on July 10, 1966. More than 30,000 people listened to Dr. Martin Luther King Jr. speak powerfully about racial injustices in the housing industry. The Chicago Freedom Movement had begun a year earlier when local civil rights groups invited Dr. King to lead demonstrations against segregation in education and housing as well as employment discrimination. The movement lasted from mid-1965 to early 1967 and is credited with inspiring the Fair Housing Act, passed by Congress in 1968.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Black History Month](https://cn.bing.com/th?id=OHR.FreedomRallyChi_EN-US2565810173_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.FreedomRallyChi_EN-US2565810173_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FreedomRallyChi_EN-US2565810173_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FreedomRallyChi_EN-US2565810173_1080x1920.jpg) |cn.bing.com/th?id=OHR.MardiGrasNOLA_EN-US1003373004_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.PresDayDC_EN-US2054662773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresDayDC_EN-US2054662773_1080x1920.jpg) |HD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MauiWhale_EN-US1928366389_1080x1920.jpg) |N-US1839710567_1080x1920.jpg) |rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueWinterParis_EN-US2358774284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueWinterParis_EN-US2358774284_1080x1920.jpg) |054662773_1080x1920.jpg) |HD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MauiWhale_EN-US1928366389_1080x1920.jpg) |N-US1839710567_1080x1920.jpg) |rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BirdcountAllen_EN-US1766542066_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BirdcountAllen_EN-US1766542066_1080x1920.jpg) |N-US1380797135_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OtaruIgloo_EN-US1380797135_1080x1920.jpg) |ng.com/th?id=OHR.DarkSkiesDV_EN-US5129041284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkiesDV_EN-US5129041284_1080x1920.jpg) |957261511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EpidaurusGreece_EN-US0957261511_1080x1920.jpg) |s=1&c=4) |
 |:---------:|:---------:|
