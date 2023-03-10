@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230308
+
+> Cibeles Fountain and Madrid City Hall lit for International Women's Day, Madrid, Spain (© dpa picture alliance/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> On International Women's Day, we're at Madrid's iconic Cibeles Fountain and City Hall, which have been lit up in purple—one of the day's official colors, representing justice and dignity. Each year, marchers pass by the Great Mother of the Gods on her chariot drawn by lions, as they turn out in their thousands to campaign for gender equality in Spain's capital city.
+> 
+> International Women's Day has its roots in the US labor movement in the early 20th century. In 1908, 15,000 women marched in New York City for better working conditions and the right to vote and a national women's day was declared in 1909. The following year, German activist Clara Zetkin put forward the idea of holding an international women's day at a conference in Copenhagen. She got unanimous backing and the first one was celebrated on March 19, 1911, in Austria, Denmark, Switzerland, and Germany. It wasn't until 1975 that it was officially recognised by the United Nations.
+> 
+> These days, International Women's Day is observed on March 8 in many countries around the world, a date to celebrate women's achievements and to continue to campaign for full gender equality.
+
+</details>
+
+| ![International Women's Day](https://cn.bing.com/th?id=OHR.IntlWomensDayChange_EN-US1089722389_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Women's Day](https://cn.bing.com/th?id=OHR.IntlWomensDayChange_EN-US1089722389_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IntlWomensDayChange_EN-US1089722389_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IntlWomensDayChange_EN-US1089722389_1080x1920.jpg) |
+
 ### 20230307
 
 > Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Negratín Reservoir, Granada, Spain](https://cn.bing.com/th?id=OHR.NegratinSpain_EN-US0285047102_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Negratín Reservoir, Granada, Spain](https://cn.bing.com/th?id=OHR.NegratinSpain_EN-US0285047102_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NegratinSpain_EN-US0285047102_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NegratinSpain_EN-US0285047102_1080x1920.jpg) |
-
-### 20230301
-
-> Portrait Monument of women's suffrage pioneers, Capitol Rotunda, Washington, DC (© Andrew Harrer/Bloomberg/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> For the first day of Women's History Month, we've come to the Capitol Rotunda in Washington, DC, to view the Portrait Monument, which depicts three founding mothers of the 19th-century women's rights movement. Elizabeth Cady Stanton, Lucretia Mott, and Susan B. Anthony are particularly known for their efforts to gain American women the right to vote.
-> 
-> Artist Adelaide Johnson sculpted the Portrait Monument in 1920, the same year that US women finally got the vote, and it was unveiled on Feb 15, 1921 in the Rotunda. The next day, it was moved into storage in the Capitol Crypt. Although the move was supposed to be temporary while a permanent home was selected, it would take 76 years and an act of congress before the Portrait Monument was returned to the Rotunda.
-> 
-> 
-
-</details>
-
-| ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffrageMonumentDC_EN-US0188045009_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffrageMonumentDC_EN-US0188045009_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffrageMonumentDC_EN-US0188045009_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffrageMonumentDC_EN-US0188045009_1080x1920.jpg) |------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BirdcountAllen_EN-US1766542066_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BirdcountAllen_EN-US1766542066_1080x1920.jpg) |N-US1380797135_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OtaruIgloo_EN-US1380797135_1080x1920.jpg) |ng.com/th?id=OHR.DarkSkiesDV_EN-US5129041284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkiesDV_EN-US5129041284_1080x1920.jpg) |957261511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EpidaurusGreece_EN-US0957261511_1080x1920.jpg) |s=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NegratinSpain_EN-US0285047102_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NegratinSpain_EN-US0285047102_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.DarkSkiesDV_EN-US5129041284_1080x1920.jpg) |957261511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EpidaurusGreece_EN-US0957261511_1080x1920.jpg) |s=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayRestArea_EN-US3474268008_1080x1920.jpg) |d=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
