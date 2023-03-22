@@ -1,13 +1,13 @@
 ## bing wallpaper
 
-### 20230319
+### 20230321
 
-> Barn owl, England (© Ondrej Prosicky/Getty Images)
+> 彩色粉笔 (© Stephen Shepherd/Plainpicture)
 
 <details>
 <summary>Description</summary>
 
-> Barn owls, distinguished by their white heart-shaped faces, are one of the world's most widespread birds, found on every continent except Antarctica. They live in woodlands, farms, and on cliffs, but barn owls also enjoy roosting in places like bell towers and barns—hence the name. They are nighttime predators that fly over open lands to hunt rats and mice. During heavy rain, they are unable to hunt because their feathers aren't waterproof, leaving them vulnerable to starvation during long periods of wet weather. Although some see them as a symbol of wisdom and fortune, their haunting cries and ghostly appearance mean they have often been seen as bad omens in rural areas.
+> 有光的地方，就有色彩，五彩缤纷的世界更具活力和个性。颜色如同音符，不同的颜色传达给人的感觉各不相同。蓝色让人感觉冷静镇定，紫色给人奢华之感，红色则代表激情或危险。国际色彩日这天，世界各地的色彩权威机构齐聚一堂，讨论颜色在工业、艺术、科学、设计等领域的研究应用。世界如此丰富多彩，你可以放慢脚步，细细欣赏品味周围的色彩，这些颜色可能会让你的生活充满惊喜。
 > 
 > 
 > 
@@ -15,75 +15,113 @@
 
 </details>
 
-| ![Barn owl, England](https://cn.bing.com/th?id=OHR.BarnOwlWinter_EN-US7295086574_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Barn owl, England](https://cn.bing.com/th?id=OHR.BarnOwlWinter_EN-US7295086574_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![国际色彩日](https://cn.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际色彩日](https://cn.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BarnOwlWinter_EN-US7295086574_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BarnOwlWinter_EN-US7295086574_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_1080x1920.jpg) |
+
+### 20230320
+
+> 紫番红花 (© Raimund Linke/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 每年3月20日或3月21日，太阳直射赤道，昼夜等长。在北半球，这一天被称为春分，意味着冬天结束，温暖明媚的春天已经来临，你可能会不经意间在路边发现一朵悄悄盛开的番红花。如同今天的照片，鲜艳美丽的紫番红花正在尽情绽放，它们是每年春天最早绽放的花卉之一。春分是一个北半球的节日。在中国，春分是传统节气之一。在伊朗，春分被称为诺鲁孜节，代表着新的一年开始。不过，在南半球，这一天则意味着秋天开始了，所以给你在阿根廷朋友们寄些毛衣吧。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![紫番红花](https://cn.bing.com/th?id=OHR.PurpleCrocus_ZH-CN0891528297_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![紫番红花](https://cn.bing.com/th?id=OHR.PurpleCrocus_ZH-CN0891528297_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PurpleCrocus_ZH-CN0891528297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PurpleCrocus_ZH-CN0891528297_1080x1920.jpg) |
+
+### 20230319
+
+> 仓鸮，英格兰 (© Ondrej Prosicky/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 仓鸮长着桃心形脸蛋，是世界上分布最广的鸟类之一。除了寒冷的南极洲，世界各地都有它们的身影。它们栖息于树林、峭壁、农场、城镇钟楼和谷仓附近。仓鸮是夜行动物，善于捕食老鼠。不过，由于它们的羽毛不防水，所以遇到下雨天就无法狩猎，这就意味着仓鸮很容易在长时间的恶劣天气中挨饿。仓鸮狩猎时会发出阴森可怕的声音，加之其神出鬼没，因此在英国被视为死亡的预兆，不过有些文化也视仓鸮为吉兆。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![仓鸮，英格兰](https://cn.bing.com/th?id=OHR.BarnOwlWinter_ZH-CN5484796826_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![仓鸮，英格兰](https://cn.bing.com/th?id=OHR.BarnOwlWinter_ZH-CN5484796826_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BarnOwlWinter_ZH-CN5484796826_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BarnOwlWinter_ZH-CN5484796826_1080x1920.jpg) |
 
 ### 20230318
 
-> Gamboa Crater, Mars (© NASA/JPL-Caltech/University of Arizona)
+> 甘博阿陨击坑，火星 (© NASA/JPL-Caltech/University of Arizona)
 
 <details>
 <summary>Description</summary>
 
-> It would be pretty tough to live on Mars. It's cold, dry, and the conditions are harsh. The planet's average temperature is about –81 degrees Fahrenheit, but it can get as low as –243 at the poles. But with many canyons, extinct volcanoes, and ice caps, it's beautiful to look at from afar. Most photos of the red planet highlight its rusty color, caused by high levels of iron oxide.
+> 在火星上生存相当艰难，天气极寒、干燥，而且条件恶劣。火星上的平均温度约为零下62摄氏度，两极的温度甚至可能低至零下152摄氏度。但这颗行星上有许多峡谷、死火山和冰盖，远观还是很美的。火星勘测轨道飞行器发回的大多数照片都显示火星是一颗红色星球，这是因为火星表面有大量红色的赤铁矿，所以呈现橘红色。
 > 
-> This photo from the Mars Reconnaissance Orbiter is an enhanced-color view of sand dunes and ripples in the Gamboa Crater. 'False color' technology was used to reveal subtle variations of the Martian surface that our eyes wouldn't be able to see on their own. These added details show the effects of wind inside the crater, providing a glimpse of the spectacularly complex features of this planet.
+> 这张照片展示的是甘博阿陨击坑，但这并非甘博阿陨击坑的真实颜色。科学家们对这张照片进行了校色，视觉效果更直观，更便于科学分析。
 > 
 > 
 
 </details>
 
-| ![Gamboa Crater, Mars](https://cn.bing.com/th?id=OHR.MarsTars_EN-US7511744420_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gamboa Crater, Mars](https://cn.bing.com/th?id=OHR.MarsTars_EN-US7511744420_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![甘博阿陨击坑，火星](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![甘博阿陨击坑，火星](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarsTars_EN-US7511744420_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarsTars_EN-US7511744420_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_1080x1920.jpg) |
 
 ### 20230317
 
-> Ballyvooney Cove, Copper Coast Geopark, County Waterford, Ireland (© Andrea Pistolesi/Getty Images)
+> ballyvooney海岸，科佩海岸地质公园，爱尔兰 (© Andrea Pistolesi/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> For St. Patrick's Day, we're enjoying this stunning rainbow over Ireland's southeast coast. Shamrocks, parades, and all things green will be the order of the day as we celebrate the patron saint of the Emerald Isle. While many countries recognize the holiday today, the first celebration was held in Ireland more than 1,000 years ago, remembering the 5th-century missionary and bishop credited with bringing Christianity to the country.
+> 准备好迎接三叶苜蓿、游行和所有绿色的东西吧，因为今天是圣帕特里克节。这个节日起源于1000多年前的爱尔兰，但如今该节日已渐渐成为许多国家共同的节日。圣帕特里克节，也被称为“绿帽子节”，是为了纪念爱尔兰守护神圣帕特里克。
 > 
-> Our homepage image shows a jewel of Ireland's spectacular southeast coastline, Copper Coast Geopark, a UNESCO site in County Waterford. This magnificent stretch of undulating cliffs and sandy coves is named after the 19th-century copper mines that once operated there. It is dotted with historical sites, including ruined medieval churches, Iron Age forts, and ancient inscribed stones. And, with a little Irish luck, you might just find a pot of gold at the end of that rainbow.
+> 今天这张照片拍摄于科佩海岸地质公园，这是联合国教科文组织评选出的世界地质公园之一，位于爱尔兰东南海岸。该地区拥有众多文化和历史遗迹，包括铁器时代的堡垒、刻有文字的石头以及中世纪的教堂废墟。19世纪，这里曾开采过铜矿（copper），科佩（copper）海岸也因此得名。
 > 
 > 
 
 </details>
 
-| ![St. Patrick's Day in County Waterford, Ireland](https://cn.bing.com/th?id=OHR.BallyvooneyCove_EN-US7329921498_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. Patrick's Day in County Waterford, Ireland](https://cn.bing.com/th?id=OHR.BallyvooneyCove_EN-US7329921498_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![圣帕特里克节](https://cn.bing.com/th?id=OHR.BallyvooneyCove_ZH-CN0284564457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![圣帕特里克节](https://cn.bing.com/th?id=OHR.BallyvooneyCove_ZH-CN0284564457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BallyvooneyCove_EN-US7329921498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BallyvooneyCove_EN-US7329921498_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BallyvooneyCove_ZH-CN0284564457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BallyvooneyCove_ZH-CN0284564457_1080x1920.jpg) |
 
 ### 20230316
 
-> Giant panda at Chengdu Panda Base, China (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)
+> 成都大熊猫繁育研究基地，中国 (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)
 
 <details>
 <summary>Description</summary>
 
-> Giant pandas are loved the world over but nowhere more than in China, where they are considered national treasures. On March 16, we celebrate these distinctive bears, which live mainly in forests in the mountains of western China and subsist almost entirely on a diet of bamboo. These black-and-white giants start off small—a newborn panda is about the size of a stick of butter—but after eating their way through between 26 and 84 pounds of bamboo a day, male adults can weigh in at up to 300 pounds.
+> 你会沉迷于在网上看可爱的熊猫视频吗？答案母庸质疑，这些毛茸茸的生物以它们独有的黏人方式赢得人们的喜爱。喜爱熊猫的人遍布世界各地，美国还将3月16日设立为国家熊猫日。在中国，大熊猫是国宝。成都大熊猫繁育研究基地悉心饲养了许多大熊猫。以建立初期从野外抢救的6只大熊猫为基础，成都大熊猫繁育研究基地已成功繁育了约150只大熊猫，如今这里已成为游客如织的著名大熊猫保护区。
 > 
-> China's Chengdu Panda Base, pictured on our homepage, houses one of the world's largest populations of giant pandas bred in captivity. Their journey started with six rescued giant pandas in the 1980s, and the base is now home to about 150 of these beautiful animals. In the wild, panda numbers are rebounding after years of decline thanks to conservation efforts. The species has been upgraded from 'endangered' to 'vulnerable' but they still require our help—and events like Panda Day—to raise awareness of the need to protect these loveable giants.
+> 
 > 
 > 
 
 </details>
 
-| ![Panda Day](https://cn.bing.com/th?id=OHR.ChengduPanda_EN-US7206176908_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Panda Day](https://cn.bing.com/th?id=OHR.ChengduPanda_EN-US7206176908_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![大熊猫，成都，中国](https://cn.bing.com/th?id=OHR.ChengduPanda_ZH-CN0043208941_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大熊猫，成都，中国](https://cn.bing.com/th?id=OHR.ChengduPanda_ZH-CN0043208941_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChengduPanda_EN-US7206176908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChengduPanda_EN-US7206176908_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChengduPanda_ZH-CN0043208941_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChengduPanda_ZH-CN0043208941_1080x1920.jpg) |
 
 ### 20230315
 
-> Agüero, Spain (© Andrea Comi/Getty Images)
+> 阿圭罗村庄，西班牙 (© Andrea Comi/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Huddled beneath these pink-gray stone monoliths is the pretty village of Agüero, in Huesca province, northern Spain. The textured cliffs known as the Mallos de Agüero act as a 660-foot-high backdrop to this picturesque village, drawing both climbers and photographers keen on capturing the perfect shot. This hidden gem in the foothills of the Pyrenees has about 130 residents and is popular with tourists, thanks to the 12th-century Church of Santiago. A national monument with intricate stone carvings of beasts and religious scenes, the church was never finished but is considered one of this region's most beautiful Romanesque temples. If you consider yourself a history buff, a rock climber, or both, put Agüero on your travel list.
+> 美丽的阿圭罗村庄位于西班牙韦斯卡省，它坐落在独特的粉灰色群山之中。村庄背后是被称为里格洛斯岩的悬崖，非常适合拍照。这个拥有130位居民的小村庄还有一座建于12世纪的教堂。如果你是历史爱好者、攀岩爱好者，或二者兼修，那就请把阿圭罗列入旅行目的地清单吧。
 > 
 > 
 > 
@@ -91,26 +129,9 @@
 
 </details>
 
-| ![Agüero, Huesca province, Spain](https://cn.bing.com/th?id=OHR.AgueroSpain_EN-US7079433596_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Agüero, Huesca province, Spain](https://cn.bing.com/th?id=OHR.AgueroSpain_EN-US7079433596_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![阿圭罗村庄，韦斯卡省，西班牙](https://cn.bing.com/th?id=OHR.AgueroSpain_ZH-CN9622864502_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![阿圭罗村庄，韦斯卡省，西班牙](https://cn.bing.com/th?id=OHR.AgueroSpain_ZH-CN9622864502_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AgueroSpain_EN-US7079433596_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AgueroSpain_EN-US7079433596_1080x1920.jpg) |
-
-### 20230314
-
-> Hedge maze in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today we're observing Pi Day with a bird's-eye view of the hedge maze at Cyherbia Botanical Park near Ayia Napa in Cyprus. It's the day we celebrate the mathematical constant π. Today's date, March 14, was chosen because when expressed numerically, it matches the first three digits of pi: 3.14. You remember pi from geometry class—it's the ratio of the distance around a circle to the distance across it. Pi is used to compute a circle's area and circumference. The circular labyrinth at the Cyherbia Botanical Park brings the ratio to life and is a must-visit for people who love to solve puzzles. If you're ready for a challenge, give it a go.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Pi Day](https://cn.bing.com/th?id=OHR.CyprusMaze_EN-US7012705307_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pi Day](https://cn.bing.com/th?id=OHR.CyprusMaze_EN-US7012705307_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AgueroSpain_ZH-CN9622864502_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AgueroSpain_ZH-CN9622864502_1080x1920.jpg) |d=OHR.CyprusMaze_EN-US7012705307_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CyprusMaze_EN-US7012705307_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CyprusMaze_EN-US7012705307_1080x1920.jpg) |
 
