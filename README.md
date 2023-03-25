@@ -2,50 +2,50 @@
 
 ### 20230323
 
-> 杜费里峡谷，上萨瓦省，法国 (© Jean-Philippe Delobelle/Biosphoto/Alamy)
+> Lenticular clouds, Patagonia (© Sasha Juliard/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 杜费里峡谷是法国上萨瓦省的一处惊人的自然奇观：它是一个极为狭窄且深邃的峡谷，经由一条悬挂于山崖边的栈道便可抵达。
+> They might look like spaceships from a retro sci-fi movie, but these strange shapes hovering above the mountains in Patagonia are of earthly origin. These are lenticular clouds, named after their lens-like shape. They form near hills and mountains where moist air is pushed up and over the peaks, cooling as it rises and condensing into water droplets. As wind blows over the mountains it can create a series of waves in the air, and these unusual clouds form in the crest of those waves.
 > 
-> 走过激流之上的栈道，你可以深入峡谷，欣赏各种奇形怪状的高耸巨石。光影的变换让巨石呈现出各种出人意料的形态。在栈道半程的岩壁上有一道水位标，在洪水期可用于判断水位。
+> Today is World Meteorological Day, which marks the establishment of the World Meteorological Organization in 1950. The group shares information between countries so the world can benefit from better understanding and predicting our weather. Thanks to meteorology, we can explain atmospheric phenomena like lenticular clouds. Although, with their unusual shape, they still get mistaken for flying saucers from time to time.
 > 
-> 除了美景、潮湿的空气、变换的光影、布满青苔的岩石和激流的声音以外，这一路上还有壶穴和水流造就的各种奇观，游客可以充分领略大自然的鬼斧神工。
+> 
 
 </details>
 
-| ![杜费里峡谷，上萨瓦省，法国](https://cn.bing.com/th?id=OHR.ChavarocheWinter_ZH-CN1842519491_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![杜费里峡谷，上萨瓦省，法国](https://cn.bing.com/th?id=OHR.ChavarocheWinter_ZH-CN1842519491_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Meteorological Day](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Meteorological Day](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChavarocheWinter_ZH-CN1842519491_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChavarocheWinter_ZH-CN1842519491_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_1080x1920.jpg) |
 
 ### 20230322
 
-> 鲍威尔湖，美国 (© Peter Schaefer/Alamy)
+> Lake Powell on the Colorado River (© Peter Schaefer/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 鲍威尔湖是科罗拉多河上的一座人工水库，跨越犹他州和内华达州边境。19世纪60年代美国修建格伦峡谷大坝后形成了这个水库。大坝利用水力发电，但同时也因为湖面加大了水体的表面积，从而更多的水被蒸发，造成了水资源流失。2000年干旱来临时，鲍威尔湖的水位开始直线下降，到2005年时，鲍威尔湖的储水量几乎仅为1999年时的一半。人类对水资源是极度依赖的，因此联合国在1993年设立了世界水日，旨在通过教育和公益活动在政府和普通人群层面上建立起更好的用水措施。全球人口正在增长，我们每个人都必须为保护水资源和清洁水资源出一份力。
+> Lake Powell, which meanders across the Utah-Arizona border, was created when the Glen Canyon Dam was built on the Colorado River in the 1960s. It is one of the two largest reservoirs in the US, alongside its downstream neighbor Lake Mead. Together, they provide water to about 40 million people in seven states, while their respective dams generate crucial hydroelectric power.
 > 
+> But the Colorado River basin has been experiencing its driest period for more than 12 centuries, intensified by climate change. That white line at the base of the canyon walls shows the old high-water mark. Last year, Lake Powell dropped to just over 24% of its full capacity, raising concerns about both water and power supplies.
 > 
-> 
-> 
+> Globally, about 2 billion people lack access to safe drinking water. The United Nations created World Water Day in 1993 to highlight the issue and encourage more sustainable water management. As our population increases, it's vital that we all do our part to save precious fresh water.
 
 </details>
 
-| ![世界水日](https://cn.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界水日](https://cn.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Water Day](https://cn.bing.com/th?id=OHR.LakePowellAerial_EN-US5762979140_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Water Day](https://cn.bing.com/th?id=OHR.LakePowellAerial_EN-US5762979140_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakePowellAerial_EN-US5762979140_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakePowellAerial_EN-US5762979140_1080x1920.jpg) |
 
 ### 20230321
 
-> 彩色粉笔 (© Stephen Shepherd/Plainpicture)
+> Colorful pastel chalk (© Stephen Shepherd/plainpicture)
 
 <details>
 <summary>Description</summary>
 
-> 有光的地方，就有色彩，五彩缤纷的世界更具活力和个性。颜色如同音符，不同的颜色传达给人的感觉各不相同。蓝色让人感觉冷静镇定，紫色给人奢华之感，红色则代表激情或危险。国际色彩日这天，世界各地的色彩权威机构齐聚一堂，讨论颜色在工业、艺术、科学、设计等领域的研究应用。世界如此丰富多彩，你可以放慢脚步，细细欣赏品味周围的色彩，这些颜色可能会让你的生活充满惊喜。
+> Wherever there is light, there is color. It lends liveliness and character to the world around us, but we can also use it strategically to convey particular tones and messages. Blue creates a sense of tranquility, purple gives a sense of luxury, and red can express passion or danger. On International Color Day, organizations around the world meet to discuss research and share knowledge about color theory and its use in the fields of industry, arts, science, and design. As you go about your day, stop and take in the colors around you and think about why they were chosen and how they make you feel. It might just make you consider how you use color in your own life.
 > 
 > 
 > 
@@ -53,37 +53,37 @@
 
 </details>
 
-| ![国际色彩日](https://cn.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际色彩日](https://cn.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Day of Color](https://cn.bing.com/th?id=OHR.ColourDay_EN-US7730392026_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Color](https://cn.bing.com/th?id=OHR.ColourDay_EN-US7730392026_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColourDay_EN-US7730392026_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColourDay_EN-US7730392026_1080x1920.jpg) |
 
 ### 20230320
 
-> 紫番红花 (© Raimund Linke/Getty Images)
+> Crocus flowers (© Raimund Linke/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 每年3月20日或3月21日，太阳直射赤道，昼夜等长。在北半球，这一天被称为春分，意味着冬天结束，温暖明媚的春天已经来临，你可能会不经意间在路边发现一朵悄悄盛开的番红花。如同今天的照片，鲜艳美丽的紫番红花正在尽情绽放，它们是每年春天最早绽放的花卉之一。春分是一个北半球的节日。在中国，春分是传统节气之一。在伊朗，春分被称为诺鲁孜节，代表着新的一年开始。不过，在南半球，这一天则意味着秋天开始了，所以给你在阿根廷朋友们寄些毛衣吧。
+> Every year around March 20, the sun aligns with the Earth's equator, and day and night are about equal in length. In the Northern Hemisphere, this is called the spring or vernal equinox, and it marks the astronomical exit of winter into the brighter, warmer springtime. From now on, we can enjoy days that are longer than nights. And a sharp eye might spot a flowering crocus, like the ones in today's image, among the first flowers to bloom every year.
 > 
-> 
+> The tilting of Earth on its axis makes the equinox a global event. In Japan, spring equinox is a national holiday called Shunbun no Hi, while in Iranian culture, it is the start of the new year, called Nowruz. However, in the Southern Hemisphere, autumn is just beginning—so send some sweaters to your Argentinian friends.
 > 
 > 
 
 </details>
 
-| ![紫番红花](https://cn.bing.com/th?id=OHR.PurpleCrocus_ZH-CN0891528297_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![紫番红花](https://cn.bing.com/th?id=OHR.PurpleCrocus_ZH-CN0891528297_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Spring equinox](https://cn.bing.com/th?id=OHR.PurpleCrocus_EN-US4432411089_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spring equinox](https://cn.bing.com/th?id=OHR.PurpleCrocus_EN-US4432411089_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PurpleCrocus_ZH-CN0891528297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PurpleCrocus_ZH-CN0891528297_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PurpleCrocus_EN-US4432411089_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PurpleCrocus_EN-US4432411089_1080x1920.jpg) |
 
 ### 20230319
 
-> 仓鸮，英格兰 (© Ondrej Prosicky/Getty Images)
+> Barn owl, England (© Ondrej Prosicky/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 仓鸮长着桃心形脸蛋，是世界上分布最广的鸟类之一。除了寒冷的南极洲，世界各地都有它们的身影。它们栖息于树林、峭壁、农场、城镇钟楼和谷仓附近。仓鸮是夜行动物，善于捕食老鼠。不过，由于它们的羽毛不防水，所以遇到下雨天就无法狩猎，这就意味着仓鸮很容易在长时间的恶劣天气中挨饿。仓鸮狩猎时会发出阴森可怕的声音，加之其神出鬼没，因此在英国被视为死亡的预兆，不过有些文化也视仓鸮为吉兆。
+> Barn owls, distinguished by their white heart-shaped faces, are one of the world's most widespread birds, found on every continent except Antarctica. They live in woodlands, farms, and on cliffs, but barn owls also enjoy roosting in places like bell towers and barns—hence the name. They are nighttime predators that fly over open lands to hunt rats and mice. During heavy rain, they are unable to hunt because their feathers aren't waterproof, leaving them vulnerable to starvation during long periods of wet weather. Although some see them as a symbol of wisdom and fortune, their haunting cries and ghostly appearance mean they have often been seen as bad omens in rural areas.
 > 
 > 
 > 
@@ -91,61 +91,47 @@
 
 </details>
 
-| ![仓鸮，英格兰](https://cn.bing.com/th?id=OHR.BarnOwlWinter_ZH-CN5484796826_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![仓鸮，英格兰](https://cn.bing.com/th?id=OHR.BarnOwlWinter_ZH-CN5484796826_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Barn owl, England](https://cn.bing.com/th?id=OHR.BarnOwlWinter_EN-US7295086574_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Barn owl, England](https://cn.bing.com/th?id=OHR.BarnOwlWinter_EN-US7295086574_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BarnOwlWinter_ZH-CN5484796826_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BarnOwlWinter_ZH-CN5484796826_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BarnOwlWinter_EN-US7295086574_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BarnOwlWinter_EN-US7295086574_1080x1920.jpg) |
 
 ### 20230318
 
-> 甘博阿陨击坑，火星 (© NASA/JPL-Caltech/University of Arizona)
+> Gamboa Crater, Mars (© NASA/JPL-Caltech/University of Arizona)
 
 <details>
 <summary>Description</summary>
 
-> 在火星上生存相当艰难，天气极寒、干燥，而且条件恶劣。火星上的平均温度约为零下62摄氏度，两极的温度甚至可能低至零下152摄氏度。但这颗行星上有许多峡谷、死火山和冰盖，远观还是很美的。火星勘测轨道飞行器发回的大多数照片都显示火星是一颗红色星球，这是因为火星表面有大量红色的赤铁矿，所以呈现橘红色。
+> It would be pretty tough to live on Mars. It's cold, dry, and the conditions are harsh. The planet's average temperature is about –81 degrees Fahrenheit, but it can get as low as –243 at the poles. But with many canyons, extinct volcanoes, and ice caps, it's beautiful to look at from afar. Most photos of the red planet highlight its rusty color, caused by high levels of iron oxide.
 > 
-> 这张照片展示的是甘博阿陨击坑，但这并非甘博阿陨击坑的真实颜色。科学家们对这张照片进行了校色，视觉效果更直观，更便于科学分析。
+> This photo from the Mars Reconnaissance Orbiter is an enhanced-color view of sand dunes and ripples in the Gamboa Crater. 'False color' technology was used to reveal subtle variations of the Martian surface that our eyes wouldn't be able to see on their own. These added details show the effects of wind inside the crater, providing a glimpse of the spectacularly complex features of this planet.
 > 
 > 
 
 </details>
 
-| ![甘博阿陨击坑，火星](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![甘博阿陨击坑，火星](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Gamboa Crater, Mars](https://cn.bing.com/th?id=OHR.MarsTars_EN-US7511744420_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gamboa Crater, Mars](https://cn.bing.com/th?id=OHR.MarsTars_EN-US7511744420_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarsTars_EN-US7511744420_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarsTars_EN-US7511744420_1080x1920.jpg) |
 
 ### 20230317
 
-> ballyvooney海岸，科佩海岸地质公园，爱尔兰 (© Andrea Pistolesi/Getty Images)
+> Ballyvooney Cove, Copper Coast Geopark, County Waterford, Ireland (© Andrea Pistolesi/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 准备好迎接三叶苜蓿、游行和所有绿色的东西吧，因为今天是圣帕特里克节。这个节日起源于1000多年前的爱尔兰，但如今该节日已渐渐成为许多国家共同的节日。圣帕特里克节，也被称为“绿帽子节”，是为了纪念爱尔兰守护神圣帕特里克。
+> For St. Patrick's Day, we're enjoying this stunning rainbow over Ireland's southeast coast. Shamrocks, parades, and all things green will be the order of the day as we celebrate the patron saint of the Emerald Isle. While many countries recognize the holiday today, the first celebration was held in Ireland more than 1,000 years ago, remembering the 5th-century missionary and bishop credited with bringing Christianity to the country.
 > 
-> 今天这张照片拍摄于科佩海岸地质公园，这是联合国教科文组织评选出的世界地质公园之一，位于爱尔兰东南海岸。该地区拥有众多文化和历史遗迹，包括铁器时代的堡垒、刻有文字的石头以及中世纪的教堂废墟。19世纪，这里曾开采过铜矿（copper），科佩（copper）海岸也因此得名。
-> 
-> 
-
-</details>
-
-| ![圣帕特里克节](https://cn.bing.com/th?id=OHR.BallyvooneyCove_ZH-CN0284564457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![圣帕特里克节](https://cn.bing.com/th?id=OHR.BallyvooneyCove_ZH-CN0284564457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BallyvooneyCove_ZH-CN0284564457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BallyvooneyCove_ZH-CN0284564457_1080x1920.jpg) |
-
-> It's tiring losing that hour of sleep as the clocks 'spring forward,' so let's relax for a while with these champion nappers, in Tanzania's Serengeti National Park. One of the most spectacular wildlife ecosystems on the planet, the park is home to rhinos, leopards, elephants, giraffes—and a huge lion population. The grassland here is dotted with rock formations that stick out like islands, the largest of which, the simba kopjes, are popular hangouts for lions and are said to have inspired Pride Rock in 'The Lion King.' In the heat of the Serengeti, lush trees provide the perfect shelter for lions to take a nap and reenergize. We hope you are as cozy as you curl up and recuperate on National Napping Day.
-> 
-> 
+> Our homepage image shows a jewel of Ireland's spectacular southeast coastline, Copper Coast Geopark, a UNESCO site in County Waterford. This magnificent stretch of undulating cliffs and sandy coves is named after the 19th-century copper mines that once operated there. It is dotted with historical sites, including ruined medieval churches, Iron Age forts, and ancient inscribed stones. And, with a little Irish luck, you might just find a pot of gold at the end of that rainbow.
 > 
 > 
 
 </details>
 
-| ![National Napping Day](https://cn.bing.com/th?id=OHR.LionessesNap_EN-US6947230556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Napping Day](https://cn.bing.com/th?id=OHR.LionessesNap_EN-US6947230556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![St. Patrick's Day in County Waterford, Ireland](https://cn.bing.com/th?id=OHR.BallyvooneyCove_EN-US7329921498_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. Patrick's Day in County Waterford, Ireland](https://cn.bing.com/th?id=OHR.BallyvooneyCove_EN-US7329921498_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LionessesNap_EN-US6947230556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LionessesNap_EN-US6947230556_1080x1920.jpg) |HR.IntlWomensDayChange_EN-US1089722389_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IntlWomensDayChange_EN-US1089722389_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IntlWomensDayChange_EN-US1089722389_1080x1920.jpg) |dscape 4K](https://cn.bing.com/th?id=OHR.YuanyangChina_EN-US0997293657_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YuanyangChina_EN-US0997293657_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BallyvooneyCove_EN-US7329921498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BallyvooneyCove_EN-US7329921498_1080x1920.jpg) |mensDayChange_EN-US1089722389_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IntlWomensDayChange_EN-US1089722389_1080x1920.jpg) |dscape 4K](https://cn.bing.com/th?id=OHR.YuanyangChina_EN-US0997293657_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YuanyangChina_EN-US0997293657_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcelandHorses_EN-US0725710929_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcelandHorses_EN-US0725710929_1080x1920.jpg) |.bing.com/th?id=OHR.TokyoMoat_EN-US9901957262_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoMoat_EN-US9901957262_1080x1920.jpg) |g) |693219784_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red Planet Day](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
