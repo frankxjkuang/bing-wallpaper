@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230329
+
+> Manatees, Crystal River, Florida (© Gregory Sweeney/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today is Manatee Appreciation Day and, given their sweet and friendly nature, it's hard not to love them. These gentle giants slowly graze through rivers and coastal waters for up to seven hours a day, eating seagrasses and other aquatic plants. They do have teeth, but fear not, they are flat molars used for grinding up vegetation.
+> 
+> Manatees are interested in humans, but their curiosity puts them at risk of collisions with boats. Their numbers dwindled to a few hundred in the 1970s but, thanks to conservation efforts, there are now more than 6,000 manatees in the US. Protecting our vulnerable wildlife is crucial if we want to be able to appreciate them for years to come.
+> 
+> 
+
+</details>
+
+| ![Manatee Appreciation Day](https://cn.bing.com/th?id=OHR.NuzzleManatee_EN-US6719438929_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Manatee Appreciation Day](https://cn.bing.com/th?id=OHR.NuzzleManatee_EN-US6719438929_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NuzzleManatee_EN-US6719438929_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NuzzleManatee_EN-US6719438929_1080x1920.jpg) |
+
 ### 20230328
 
 > Milky Way above the Tre Cime di Lavaredo, South Tyrol, Italy (© Juan Romero/Cavan Images)
@@ -112,24 +131,7 @@
 
 | ![World Meteorological Day](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Meteorological Day](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_1080x1920.jpg) |
-
-### 20230322
-
-> Lake Powell on the Colorado River (© Peter Schaefer/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Lake Powell, which meanders across the Utah-Arizona border, was created when the Glen Canyon Dam was built on the Colorado River in the 1960s. It is one of the two largest reservoirs in the US, alongside its downstream neighbor Lake Mead. Together, they provide water to about 40 million people in seven states, while their respective dams generate crucial hydroelectric power.
-> 
-> But the Colorado River basin has been experiencing its driest period for more than 12 centuries, intensified by climate change. That white line at the base of the canyon walls shows the old high-water mark. Last year, Lake Powell dropped to just over 24% of its full capacity, raising concerns about both water and power supplies.
-> 
-> Globally, about 2 billion people lack access to safe drinking water. The United Nations created World Water Day in 1993 to highlight the issue and encourage more sustainable water management. As our population increases, it's vital that we all do our part to save precious fresh water.
-
-</details>
-
-| ![World Water Day](https://cn.bing.com/th?id=OHR.LakePowellAerial_EN-US5762979140_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Water Day](https://cn.bing.com/th?id=OHR.LakePowellAerial_EN-US5762979140_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_1080x1920.jpg) |PowellAerial_EN-US5762979140_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakePowellAerial_EN-US5762979140_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakePowellAerial_EN-US5762979140_1080x1920.jpg) |com/th?id=OHR.ColourDay_EN-US7730392026_1080x1920.jpg) |20.jpg) |.YuanyangChina_EN-US0997293657_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YuanyangChina_EN-US0997293657_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
