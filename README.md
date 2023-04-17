@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230415
+
+> 'Together' sculpture by Lorenzo Quinn, Great Pyramids of Giza, Cairo, Egypt (© Sima Diab/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 'Life imitates art far more than art imitates life.' There is perhaps no better day to ponder these iconic words by Oscar Wilde than World Art Day. Celebrated each April 15, it marks the birthday of Renaissance luminary Leonardo da Vinci. The celebration, which started in 2012, continues to be a beautiful reminder of the power of art and its ability to heal, strengthen, and inspire society. The sculpture in today's image, Italian artist Lorenzo Quinn's 'Together,' displayed near the Great Pyramids of Giza, serves as a fitting commentary on this inimitable power of art and also a symbol of the unbreakable human connection.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![World Art Day](https://cn.bing.com/th?id=OHR.LorenzoQuinn_EN-US6997686421_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Art Day](https://cn.bing.com/th?id=OHR.LorenzoQuinn_EN-US6997686421_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LorenzoQuinn_EN-US6997686421_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LorenzoQuinn_EN-US6997686421_1080x1920.jpg) |
+
 ### 20230414
 
 > Mediterranean red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)
@@ -112,24 +131,7 @@
 
 | ![Happy Easter!](https://cn.bing.com/th?id=OHR.LithuanianEggs_EN-US5086451033_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Easter!](https://cn.bing.com/th?id=OHR.LithuanianEggs_EN-US5086451033_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LithuanianEggs_EN-US5086451033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LithuanianEggs_EN-US5086451033_1080x1920.jpg) |
-
-### 20230408
-
-> The Giant's Causeway, County Antrim, Northern Ireland (© Dieter Meyrl/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Throughout history, humans have crafted legends to explain natural phenomena that defy our understanding. A prime example is the Giant's Causeway in Northern Ireland where some 40,000 basalt columns spring from the ground at the shore. Scientists tell us these columns developed 50 to 60 million years ago, when lava erupted from volcanic fissures, then cooled and contracted, cracking into hexagonal structures.
-> 
-> But Gaelic legend tells a different tale. It says the giant Fionn mac Cumhaill, anglicized as Finn McCool, built a bridge across the sea to fight his Scottish giant counterpart, Benandonner. The remains of his bridge are said to be found in the Giant's Causeway on one side, and Fingal's Cave on the Scottish island of Staffa, also formed by basalt columns. Though we understand the geology of the Giant's Causeway now, some may prefer to picture giants striding across the sea.
-> 
-> 
-
-</details>
-
-| ![The Giant's Causeway, Northern Ireland](https://cn.bing.com/th?id=OHR.NIrelandGiants_EN-US3269727738_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Giant's Causeway, Northern Ireland](https://cn.bing.com/th?id=OHR.NIrelandGiants_EN-US3269727738_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LithuanianEggs_EN-US5086451033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LithuanianEggs_EN-US5086451033_1080x1920.jpg) |NIrelandGiants_EN-US3269727738_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NIrelandGiants_EN-US3269727738_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NIrelandGiants_EN-US3269727738_1080x1920.jpg) |920.jpg) |-US5941531826_1080x1920.jpg) |_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_1080x1920.jpg) |PowellAerial_EN-US5762979140_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
