@@ -2,50 +2,50 @@
 
 ### 20230421
 
-> 普罗奇达岛，意大利 (© Sean Pavone/Shutterstock)
+> Procida, Italy (© Sean Pavone/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 普罗奇达岛是意大利一个迷人的岛屿，位于那不勒斯湾，以其色彩缤纷的建筑、风景如画的街道和令人惊叹的海景而闻名。这座岛历史悠久，几个世纪以来，希腊人、罗马人等社会文明都曾在此定居。历史中心是该岛的主要景点之一，以蜿蜒穿过山丘的狭窄街道小巷为特色。
+> Procida is a charming Italian island in the Gulf of Naples, boasting colorful buildings, picturesque streets, and stunning sea views. The island has a rich history, having been settled by the Greeks, Romans, and other civilizations over the centuries, but is less well-known than its larger neighbours, Capri and Ischia. Its oldest fishing village, Marina Corricella, features pastel-colored buildings and narrow streets and is a great place to enjoy fresh seafood and soak up the atmosphere. From there, you can climb up to the fortified medieval village of Terra Murata, built on the island's highest point, which offers panoramic views over the entire Gulf of Naples.
 > 
-> 普罗奇达岛拥有好几个美丽的海滩和海湾，为游客提供了放松和沐浴地中海阳光的机会。岛上最受欢迎的几个海滩包括焦埃拉海滩、德尔波斯蒂诺海滩和奇拉乔海滩。普罗奇达岛的视觉效果令人惊叹，已成为了30多部电影的拍摄地，包括《秘密特工》《天才瑞普利》和《邮差》。
+> Procida is home to several beautiful beaches and coves, including Chiaiolella, Spiaggia del Postino, and Ciraccio. And it's popular with film makers too, starring in more than 30 movies including 'The Man From U.N.C.L.E.,' 'The Talented Mr. Ripley,' and 'Il Postino.' In 2022, it was named Italy's Capital of Culture, the first island to be awarded the honor.
 > 
 > 
 
 </details>
 
-| ![意大利普罗奇达岛](https://cn.bing.com/th?id=OHR.ProcidaItaly_ZH-CN7712975930_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![意大利普罗奇达岛](https://cn.bing.com/th?id=OHR.ProcidaItaly_ZH-CN7712975930_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Procida, Italy](https://cn.bing.com/th?id=OHR.ProcidaItaly_EN-US6282924427_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Procida, Italy](https://cn.bing.com/th?id=OHR.ProcidaItaly_EN-US6282924427_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ProcidaItaly_ZH-CN7712975930_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ProcidaItaly_ZH-CN7712975930_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ProcidaItaly_EN-US6282924427_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ProcidaItaly_EN-US6282924427_1080x1920.jpg) |
 
 ### 20230420
 
-> 克雷斯特德比特山上方的月食，科罗拉多州，美国 (© Mengzhonghua Photography/Getty Images)
+> Juniper Springs in Ocala National Forest, Florida (© Michael Warren/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 这张照片拍摄地位于克雷斯特德比特山，记录了纯净夜空中的月食现象。克雷斯特德比特山是北美落基山脉麋鹿山脉的一座著名山峰。这座12,168英尺（3,709 米）的山峰位于美国科罗拉多州甘尼森县 Crested Butte镇附近的甘尼森国家森林。甘尼森国家森林是一座美国国家森林，占地2612.71平方英里，它与白河和圣伊莎贝尔国家森林共享Maroon Bells-Snowmass荒野，与圣伊莎贝尔国家森林共享 Collegiate Peaks荒野地区。
+> Yes, the water here is as inviting as it looks: clear as glass, the shade of a precious gem, and a perfect 73 degrees every day of the year. Set within a subtropical forest, Juniper Springs is one of Florida's oldest and best-known recreation areas, established in the 1930s as a place to camp, hike, and swim. Long before Disney arrived, natural springs like this one were the big draw in the Sunshine State.
 > 
+> Florida is home to the largest concentration of freshwater springs in the world, with more than 1,000 popping up where the massive Floridan aquifer breaks through the surface. This underground reservoir hides beneath the entire state, providing Florida with almost all of its drinking water.
 > 
-> 
-> 
+> Overextraction and pollution from fertilizers and septic systems have put some springs in peril but in Juniper Springs, these jewel-toned waters are protected by the Ocala National Forest, so it's likely to look like this for a long time.
 
 </details>
 
-| ![克雷斯特德比特山，科罗拉多州，美国](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![克雷斯特德比特山，科罗拉多州，美国](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Juniper Springs, Florida](https://cn.bing.com/th?id=OHR.OcalaNF_EN-US5881034085_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Juniper Springs, Florida](https://cn.bing.com/th?id=OHR.OcalaNF_EN-US5881034085_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OcalaNF_EN-US5881034085_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OcalaNF_EN-US5881034085_1080x1920.jpg) |
 
 ### 20230419
 
-> 褐头凤鹛 (© Staffan Widstrand/Minden Pictures)
+> Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 褐头凤鹛是一种爱唱歌的小鸟，有着棕褐色的头冠。它们只生活在中国台湾的山地森林中。因为它们聚在一起进食时经常叫个不停，所以它们有时候也被叫做八卦精。有趣的是，它们有时候会像蝙蝠一样倒挂在樱花树上。观鸟爱好者可以在阿里山国家风景区中窥见这些小鸟，这里也有如画一般的森林和日出景观。
+> The Taiwan yuhina is a chirpy little bird with an eye-catching crest. Found only on the island of Taiwan, they constantly chatter while feeding and sometimes hang upside-down on cherry trees like bats. Birdwatchers can glimpse the small songbirds at Taiwan’s Alishan National Scenic Area, which features postcard-worthy forest trails and picturesque sunrises.
 > 
 > 
 > 
@@ -53,18 +53,18 @@
 
 </details>
 
-| ![褐头凤鹛](https://cn.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![褐头凤鹛](https://cn.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Taiwan yuhinas in Alishan National Scenic Area](https://cn.bing.com/th?id=OHR.TaiwanYuhina_EN-US1768443431_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Taiwan yuhinas in Alishan National Scenic Area](https://cn.bing.com/th?id=OHR.TaiwanYuhina_EN-US1768443431_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TaiwanYuhina_EN-US1768443431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TaiwanYuhina_EN-US1768443431_1080x1920.jpg) |
 
 ### 20230418
 
-> 马丘比丘，秘鲁 (© Dora Dalton/Getty Images)
+> Machu Picchu, Peru (© Dora Dalton/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 高悬于安第斯山脉之上，秘鲁的马丘比丘被认为曾属于古印加皇帝帕查库蒂。今天是联合国教科文组织国际古迹遗址日，推荐这座“印加的失落之城”实在是恰逢其时，它是代表一整个民族记忆的文化符号。国际古迹遗址日由国际古迹遗址理事会首次提出，并于1983年正式设立。它给了我们一个回望过去的机会，让我们得以一睹前人的文化，同时为后人保留这些久远的记忆。
+> Located high in the Andes Mountains, Peru's Machu Picchu is believed to have been an estate for the Inca emperor Pachacuti, who ruled in the mid-15th century. This 'Lost City of the Incas' is one of the world's most famous archaeological sites, an engineering marvel, built without mortar, metal tools, or the wheel. As an icon of Inca civilization, it is a perfect fit for UNESCO's International Day for Monuments and Sites, which has been celebrating important cultural heritage sites for 40 years. Landmarks such as the Pueblo Indian dwellings of Mesa Verde, the Taj Mahal, the Great Pyramid of Giza, and the Parthenon give us the opportunity to look back at the cultures that came before us and preserve their memory for future generations.
 > 
 > 
 > 
@@ -72,37 +72,37 @@
 
 </details>
 
-| ![国际古迹遗址日](https://cn.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际古迹遗址日](https://cn.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Day for Monuments and Sites](https://cn.bing.com/th?id=OHR.MPPUnesco_EN-US8204922969_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Monuments and Sites](https://cn.bing.com/th?id=OHR.MPPUnesco_EN-US8204922969_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MPPUnesco_EN-US8204922969_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MPPUnesco_EN-US8204922969_1080x1920.jpg) |
 
 ### 20230417
 
-> 布列塔尼的小米努灯塔，法国 (© RooM the Agency/Alamy)
+> 'One Thousand Springs' haiku art installation by Chiharu Shiota, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)
 
 <details>
 <summary>Description</summary>
 
-> 今天照片里的是法国西北海岸上的小米努灯塔。小米努灯塔坐落于法国布列塔尼的海岸边，是一座圆柱形的花岗岩灯塔，顶着一盏红灯。小米努灯塔和波尔奇克灯塔坐落在一条线上，标志着布雷斯特港的入口。它自1948年修建以来一直发挥着重要的作用，不光为往来的水手提供向导，还守护着布雷斯特海峡的入口。
+> Get out your pen and paper—it's International Haiku Poetry Day! Haikus originated in Japan as the opening segment of a larger poem called a renga. Eventually they became individual poems of their own. A traditional haiku consists of 17 phonetic units—similar to a syllable—in a 5, 7, 5 formation. Though simple, a great haiku creates a sense of beauty and a connection to nature. That connection was captured in the artwork seen here, 'One Thousand Springs,' an installation of 5,000 haikus suspended within a web of red threads by artist Chiharu Shiota. It was part of the 2021 Japan Festival at Kew Royal Botanic Gardens in London. Here's some inspiration for you to write a haiku yourself:
 > 
-> 虽然小米努（Petit Minou）在法语中会让人联想起小猫，但是这个名字的由来似乎是布列塔尼语中“min”（意思是“嘴”或是“点”），"min"的复数形式是"minou"，于是就变成了这个可爱的名字。这座灯塔建在小米努海角上，对应的，附近还有一处大米努海角。
+> poetry blooms bright / scattered by the vernal winds / may it take strong root
 > 
 > 
 
 </details>
 
-| ![布列塔尼的小米努灯塔](https://cn.bing.com/th?id=OHR.MinouLighthouse_ZH-CN7940024247_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![布列塔尼的小米努灯塔](https://cn.bing.com/th?id=OHR.MinouLighthouse_ZH-CN7940024247_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Haiku Poetry Day](https://cn.bing.com/th?id=OHR.OneThousandSprings_EN-US8092648404_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Haiku Poetry Day](https://cn.bing.com/th?id=OHR.OneThousandSprings_EN-US8092648404_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinouLighthouse_ZH-CN7940024247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinouLighthouse_ZH-CN7940024247_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OneThousandSprings_EN-US8092648404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OneThousandSprings_EN-US8092648404_1080x1920.jpg) |
 
 ### 20230416
 
-> 阿德莱德国际风筝节，澳大利亚 (© Andrey Moisseyev/Alamy)
+> Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 在风和日丽的日子里放风筝，还有比这更简单的快乐吗？风筝这项神奇的发明具体源于何时尚未可知，但关于放风筝的第一份书面记录来自公元前200年的中国。中国最初使用风筝来测量距离，但是随着时间的推移，它们逐渐被用于钓鱼、运动、科学、庆祝及各项娱乐活动。风筝有很多形状，也有各种材料。其实你自己就可以制作简单的风筝，找个风和日丽的日子，放风筝去吧！
+> Is there a simpler joy than flying a kite on a windy day? The date of this magical invention is unknown, but the first written documentation of kite flying comes from China in 200 BCE. There they were initially used to measure distance, but over the years they have been tapped for fishing, sport, science, celebration, communication, and recreation. Kites can take many shapes and be made of various materials, but all of them have a wing surface, a tether, and a bridle that keeps the surface at an angle to the wind. In fact, you can easily make your own, and there's no better time than today: Go Fly a Kite Day.
 > 
 > 
 > 
@@ -110,39 +110,28 @@
 
 </details>
 
-| ![去放风筝吧！](https://cn.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![去放风筝吧！](https://cn.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Go Fly a Kite Day](https://cn.bing.com/th?id=OHR.KiteDay_EN-US7254188187_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Go Fly a Kite Day](https://cn.bing.com/th?id=OHR.KiteDay_EN-US7254188187_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KiteDay_EN-US7254188187_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KiteDay_EN-US7254188187_1080x1920.jpg) |
 
 ### 20230415
 
-> 从纳哈加尔城堡鸟瞰斋浦尔，印度 (© Sean3810/iStock/Getty Images Plus)
+> 'Together' sculpture by Lorenzo Quinn, Great Pyramids of Giza, Cairo, Egypt (© Sima Diab/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 纳哈加尔堡矗立于阿拉瓦利山脉的一座山脊上，为斋浦尔增添了一道雄伟而壮丽的背景。它始建于1734年，又于1868年经历了扩建。纳哈加尔，意为老虎的住所，如同强大的壁垒，保卫斋浦尔抵御敌人的攻击。
-> 
-> 城堡内有印度王室成员的夏季度假宫殿，包含12间为王后准备的会客室，还有给国王准备的套房，这些房间通过走廊相连，走廊上装饰着精美壁画。如今，这里是非常受当地人欢迎的野餐目的地。夜间，这座堡垒在泛光灯的照耀下光彩夺目，与斋浦尔这座粉红之城交相辉映。
+> 'Life imitates art far more than art imitates life.' There is perhaps no better day to ponder these iconic words by Oscar Wilde than World Art Day. Celebrated each April 15, it marks the birthday of Renaissance luminary Leonardo da Vinci. The celebration, which started in 2012, continues to be a beautiful reminder of the power of art and its ability to heal, strengthen, and inspire society. The sculpture in today's image, Italian artist Lorenzo Quinn's 'Together,' displayed near the Great Pyramids of Giza, serves as a fitting commentary on this inimitable power of art and also a symbol of the unbreakable human connection.
 > 
 > 
-
-</details>
-
-| ![纳哈加尔城堡，拉贾斯坦邦，印度](https://cn.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![纳哈加尔城堡，拉贾斯坦邦，印度](https://cn.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_1080x1920.jpg) |iew.
 > 
 > 
 
 </details>
 
-| ![Hitsujiyama Park, Saitama Prefecture, Japan](https://cn.bing.com/th?id=OHR.PhloxSubulata_EN-US0635247129_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hitsujiyama Park, Saitama Prefecture, Japan](https://cn.bing.com/th?id=OHR.PhloxSubulata_EN-US0635247129_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Art Day](https://cn.bing.com/th?id=OHR.LorenzoQuinn_EN-US6997686421_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Art Day](https://cn.bing.com/th?id=OHR.LorenzoQuinn_EN-US6997686421_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PhloxSubulata_EN-US0635247129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PhloxSubulata_EN-US0635247129_1080x1920.jpg) |---:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EuropeFromISS_EN-US3248706956_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EuropeFromISS_EN-US3248706956_1080x1920.jpg) |-US5828454161_1080x1920.jpg) |EN-US5086451033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LithuanianEggs_EN-US5086451033_1080x1920.jpg) |NIrelandGiants_EN-US3269727738_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NIrelandGiants_EN-US3269727738_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NIrelandGiants_EN-US3269727738_1080x1920.jpg) |920.jpg) |-US5941531826_1080x1920.jpg) |_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_1080x1920.jpg) |PowellAerial_EN-US5762979140_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LorenzoQuinn_EN-US6997686421_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LorenzoQuinn_EN-US6997686421_1080x1920.jpg) |?id=OHR.NIrelandGiants_EN-US3269727738_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NIrelandGiants_EN-US3269727738_1080x1920.jpg) |920.jpg) |-US5941531826_1080x1920.jpg) |_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_1080x1920.jpg) |PowellAerial_EN-US5762979140_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakePowellAerial_EN-US5762979140_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakePowellAerial_EN-US5762979140_1080x1920.jpg) |com/th?id=OHR.ColourDay_EN-US7730392026_1080x1920.jpg) |20.jpg) |.YuanyangChina_EN-US0997293657_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YuanyangChina_EN-US0997293657_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
