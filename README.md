@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230423
+
+> Stuttgart Public Library, Germany (© Axel Brunst/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> 'There is no friend as loyal as a book,' Ernest Hemingway once wrote. On World Book Day, we are honoring these loyal friends in the German city of Stuttgart, where a huge monolithic cube is both a modern landmark and home to the city library. Opened in 2011, this striking building was designed by architect Eun Young Yi to be a calming, meditative space in a bustling city. Its interior is white, with splashes of color provided by the books that line its walls.
+> 
+> World Book Day was set up by UNESCO in 1995 to celebrate recreational reading. It also marks the start of National Library Week here in the US, so there's no better time to head to your local library to find your next great 'friend' to take you on new adventures.
+> 
+> 
+
+</details>
+
+| ![World Book Day](https://cn.bing.com/th?id=OHR.StuttgartPublicLibrary_EN-US3925069856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Book Day](https://cn.bing.com/th?id=OHR.StuttgartPublicLibrary_EN-US3925069856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StuttgartPublicLibrary_EN-US3925069856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StuttgartPublicLibrary_EN-US3925069856_1080x1920.jpg) |
+
 ### 20230422
 
 > Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![International Haiku Poetry Day](https://cn.bing.com/th?id=OHR.OneThousandSprings_EN-US8092648404_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Haiku Poetry Day](https://cn.bing.com/th?id=OHR.OneThousandSprings_EN-US8092648404_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OneThousandSprings_EN-US8092648404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OneThousandSprings_EN-US8092648404_1080x1920.jpg) |
-
-### 20230416
-
-> Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Is there a simpler joy than flying a kite on a windy day? The date of this magical invention is unknown, but the first written documentation of kite flying comes from China in 200 BCE. There they were initially used to measure distance, but over the years they have been tapped for fishing, sport, science, celebration, communication, and recreation. Kites can take many shapes and be made of various materials, but all of them have a wing surface, a tether, and a bridle that keeps the surface at an angle to the wind. In fact, you can easily make your own, and there's no better time than today: Go Fly a Kite Day.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Go Fly a Kite Day](https://cn.bing.com/th?id=OHR.KiteDay_EN-US7254188187_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Go Fly a Kite Day](https://cn.bing.com/th?id=OHR.KiteDay_EN-US7254188187_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KiteDay_EN-US7254188187_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KiteDay_EN-US7254188187_1080x1920.jpg) |ts_EN-US3269727738_1080x1920.jpg) |920.jpg) |-US5941531826_1080x1920.jpg) |_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CloudsPatagonia_EN-US4941579050_1080x1920.jpg) |PowellAerial_EN-US5762979140_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OneThousandSprings_EN-US8092648404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OneThousandSprings_EN-US8092648404_1080x1920.jpg) |4941579050_1080x1920.jpg) |PowellAerial_EN-US5762979140_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakePowellAerial_EN-US5762979140_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakePowellAerial_EN-US5762979140_1080x1920.jpg) |com/th?id=OHR.ColourDay_EN-US7730392026_1080x1920.jpg) |20.jpg) |.YuanyangChina_EN-US0997293657_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YuanyangChina_EN-US0997293657_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
