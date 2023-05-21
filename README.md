@@ -2,88 +2,88 @@
 
 ### 20230519
 
-> 苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚 (© Cyril Ruoso/Minden Pictures)
+> Sumatran rhinoceros female eating leaves, Way Kambas National Park, Sumatra, Indonesia (© Cyril Ruoso/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 随着自然栖息地的减少和消失，成千上万的物种面临着灭绝的危险，图中的苏门答腊犀牛亦是如此。伐木业和狩猎业使得它们生存受到威胁，被列为国际自然保护联盟濒危物种红色名录的极危物种。苏门答腊犀牛曾经遍布东南亚，现今其野生数量仅不到100只。
+> Sumatran rhinos like this one were once plentiful across the forests and swamps of Southeast Asia. But there are thought to be fewer than 80 alive today, surviving only on the Indonesian islands of Sumatra and Borneo. Logging and hunting have led to their inclusion on the ‘red list’ of more than 42,100 critically endangered species. This one is pictured in Way Kambas National Park, Sumatra, where a rhino sanctuary is home to a tiny population and is the center of a breeding and research program.
 > 
-> 虽然濒危物种日主要着眼于濒危动物，但这一天也是庆祝保护工作取得成功的日子。政府法规和组织举措的帮助让曾经濒临灭绝的物种得以繁衍。座头鲸、灰狼、老虎和秃鹰的种群数量都有显著增加。虽然已经取得了值得鼓励的进步，但我们仍须通过建立法规、增加保护、宣传引导和自我监督来继续努力。
+> Endangered Species Day highlights the thousands of animals and plants under threat of extinction, as well as conservation success stories. Humpback whales, gray wolves, tigers, and bald eagles have all seen population increases, thanks to conservation efforts. It’s now 50 years since the US passed the Endangered Species Act, a powerful wildlife conservation law. But while it is said to have saved 99 percent of species it protects, the challenges remain — habitat loss, invasive species, and climate change are among ongoing threats. The work continues to bring more animals and plants back from the brink.
 > 
 > 
 
 </details>
 
-| ![苏门答腊犀牛，印度尼西亚](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![苏门答腊犀牛，印度尼西亚](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Endangered Species Day](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Day](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg) |
 
 ### 20230518
 
-> 拉曼加，穆尔西亚，西班牙 (© SOMATUSCANI/Getty Images)
+> Museo Soumaya, Plaza Carso, Mexico City, Mexico (© Juan Romero/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 拉曼加是一个西班牙小镇，位于伊比利亚半岛的东南部。镇上不仅风景优美，还有公园、竞技场、海滩等等。
+> For International Museum Day, we’re featuring the towering aluminum-clad Plaza Carso building, part of the Museo Soumaya in Mexico City. It was built to house Mexican billionaire Carlos Slim’s vast art collection, which includes the largest collection of sculptures by Auguste Rodin outside France. The building, designed by Fernando Romero, is a sculpture in itself. Covered in 16,000 hexagonal aluminum plates, the windowless facade looks stunning and helps protect the artwork inside from intense sunlight. It is one of many eye-catching museum buildings worldwide which attract interest both for their collections and for their creative design.
 > 
-> 当地还有一种特殊的庆祝活动，人们和花车一同游行，向孩子们抛洒礼物，最后“火葬”一条用纸浆做成的巨大的沙丁鱼，然后以一场盛大的烟花秀圆满结束。
+> International Museum Day was first held in 1977 to celebrate all museums, big and small. Today, many will host creative events linked to this year’s theme of sustainability and wellbeing.
 > 
 > 
 
 </details>
 
-| ![拉曼加，穆尔西亚，西班牙](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![拉曼加，穆尔西亚，西班牙](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Museum Day](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Museum Day](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg) |
 
 ### 20230517
 
-> 加利福尼亚州圣克鲁斯的天然桥州立公园 (© Jim Patterson/Tandem Stills + Motion)
+> Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 天然桥州立公园位于美国加利福尼亚州的圣克鲁斯市。初期，这里有三座海水侵蚀而成的拱桥，其中一座于1905年倒塌，后来又有一座于1980年倒塌，剩下我们如今看到的这座拱桥。然而，海浪的侵蚀是无情的，因此仅剩的这座拱桥最终也会倒塌。除了拱桥，这个公园还有君主斑蝶，因此也吸引了不少游客。
+> California brown pelicans, cormorants, and gulls enjoy jostling for position on top of this stunning rock formation in Natural Bridges State Beach in Santa Cruz. It is the sole surviving natural 'bridge' in this state park. Once three bridges stood side-by-side here, carved by waves into cliffs that jutted out into the Pacific. This one stood in the middle, but the outermost bridge collapsed in 1905 and the innermost one disappeared in 1980.
 > 
-> 
+> The erosion of the waves is relentless, so eventually the final arch will collapse, and the birds will have to find another favorite perch. But there are plenty of other views on offer. The park is also a seasonal home to migratory monarch butterflies, which flutter through the air or cluster together in its eucalyptus grove. And if you're lucky, you might spot a migrating whale or see seals and otters playing offshore.
 > 
 > 
 
 </details>
 
-| ![天然桥州立公园，加利福尼亚州，美国](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![天然桥州立公园，加利福尼亚州，美国](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Natural Bridges State Beach in Santa Cruz, California](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Natural Bridges State Beach in Santa Cruz, California](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |
 
 ### 20230516
 
-> 在奥克弗诺基国家野生动物保护区划独木舟 (© Brad Beck/Tandem Stills + Motion)
+> Canoeing in Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 五月是美国湿地月，旨在关注湿地在当地和全球生态系统的重要性。湿地值得我们去关注，这些多样性生态系统有固碳功能，改善水质，并为至少三分之一的濒危物种提供栖息地。然而如今，湿地自身也面临威胁。美国本土48个州的2.21亿英亩湿地，超半数已遭到破坏。
+> It's American Wetlands Month, a time to celebrate swamps, marshes, bogs, and other types of these important ecosystems. Wetlands play a vital role in storing carbon, improving water quality, and serving as habitat for many endangered plants and animals, including American crocodiles and whooping cranes. And yet, wetlands are threatened. Over the centuries, they have been drained to provide land for farming, industry, and housing. Pollution and invasive plants pose further threats. Since the late 1700s, more than half of the 221 million acres of wetlands that once existed in the 48 contiguous states have disappeared.
 > 
-> 奥克弗诺基沼泽是一个繁茂的湿地，也是北美现存最大的黑水生态系统。这里有几十种鸟类，还有许多两栖动物、爬行动物及其他小型生物。奥克弗诺基这个名字来自于原住民的语言，意思是“震颤的大地”。
+> Georgia's Okefenokee Swamp, seen here, is a thriving wetland that is home to dozens of bird species, American alligators. and other critters. It is also the largest blackwater swamp in North America—the water appears almost black due to tannins from decaying vegetation. All looks calm in our homepage image, but the swamp gets its name from a Native American word that is often translated as 'trembling earth' or 'bubbling water.'
 > 
 > 
 
 </details>
 
-| ![美国湿地月](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![美国湿地月](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![American Wetlands Month](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![American Wetlands Month](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |
 
 ### 20230515
 
-> 莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛 (© Gavin Hellier/Getty Images)
+> Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 数千年的时光里，加那利群岛一直是各种文化的交汇地。早在公元前40年，这片火山群岛就引起了罗马人的兴趣；999年，阿拉伯商人又来到了这里。几百年间，热那亚、马略卡、葡萄牙和法国的殖民者也纷至沓来。这里的农业种植历史悠久，香蕉、番茄及土豆是主要农作物。如今，加纳利群岛是西班牙的一部分。最初的航海者来这里寻找贸易机会，而如今的游客来这里探索国家公园、躺在沙滩上放松、以及欣赏壮丽的落日。
+> Welcome to Fuerteventura, one of Spain's Canary Islands, found nearly 70 miles off the northwestern coast of Africa. For thousands of years, the volcanic islands have served as an international crossroads, attracting the interest of the Romans, Arab traders, and European navigators. Agriculture has long been important here, with bananas, tomatoes, and potatoes among the main crops. But while the first voyagers came in search of trade, today's visitors come to explore the many beautiful national parks and relax on beaches like the Playa del Matorral on Fuerteventura, seen here during a spectacular sunset.
 > 
 > 
 > 
@@ -91,18 +91,18 @@
 
 </details>
 
-| ![加那利群岛](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![加那利群岛](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![The Canary Islands, Spain](https://cn.bing.com/th?id=OHR.MorroJable_EN-US1772722431_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Canary Islands, Spain](https://cn.bing.com/th?id=OHR.MorroJable_EN-US1772722431_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MorroJable_EN-US1772722431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MorroJable_EN-US1772722431_1080x1920.jpg) |
 
 ### 20230514
 
-> 白尾鹿母鹿和刚出生的小鹿，美国蒙大拿州 (© Donald M. Jones/Minden Pictures)
+> White-tailed deer doe and newborn fawn, Montana (© Donald M. Jones/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 在母亲节这一天，我们赞美母亲和母爱在我们生命中的意义。1908年，美国首次庆祝母亲节；1914年，母亲节得到了美国联邦政府的认可。如今，全世界都会在这天对母亲表达感谢。尽管各个文化的表达方式都略有不同，但无论是购买礼物、亲手制作礼物，又或者用言语来表达感恩，这些都表达了对给了我们关爱、耐心和无私的爱的母亲的感恩。
+> Is this newborn white-tailed deer wishing its mom a Happy Mother's Day? We hope so—it won't be long before it loses those spots and strikes out on its own. But for the first year or so of its life, it will rely on mom to feed it and keep it safe from predators. We honor mothers and maternal figures everywhere on the second Sunday in May. It was first celebrated in the US in 1908 and was made a national holiday six years later in 1914, thanks to campaign efforts by social activist Anna Jarvis. While Jarvis became known as the founder of Mother's Day in the US, she later complained that it had become too commercial and began to vocally oppose it. You don't need to spend a fortune to let mom know you love her. Like our homepage fawn, you can simply spend some quality time with her today, to show how much you appreciate your nearest and 'deer'-est.
 > 
 > 
 > 
@@ -110,28 +110,18 @@
 
 </details>
 
-| ![母亲节](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![母亲节](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Happy Mother's Day!](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_EN-US1668598337_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Mother's Day!](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_EN-US1668598337_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_EN-US1668598337_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_EN-US1668598337_1080x1920.jpg) |
 
 ### 20230513
 
-> 曼海姆水塔，德国 (© tichr/Getty Images)
+> Pelicans at Sonny Bono Salton Sea National Wildlife Refuge, California (© David McNew/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 曼海姆水塔是德国曼海姆的一座有名的地标建筑。这座水塔位于腓特烈广场，建于1886年至1889年之间，高60米，直径19米，是曼海姆的第一座城市水塔。
-> 
-> 曼海姆水塔伫立在腓特烈广场上，周围是曼海姆玫瑰园、曼海姆美术馆以及一些拱廊建筑。围绕着水塔还有一个半圆形的公园，这个公园是夏天约会见面的热门地点，每年冬天这里还会举办圣诞集市。
-> 
-> 
-
-</details>
-
-| ![曼海姆水塔，德国](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![曼海姆水塔，德国](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_1080x1920.jpg) |e now an endangered species. Conservation efforts have focused on replanting areas of wild blue lupines to boost butterfly numbers.
+> The migration of birds, such as the pelicans seen here over California's Salton Sea, is part of the pulse of our planet's ecosystem. Around 40% of bird species migrate, typically in the fall and spring, some traveling incredible distances. Tiny hummingbirds can migrate 500 miles across the Gulf of Mexico overnight. Arctic terns fly between the Arctic and Antarctic each year, potentially racking up more than 1.5 million miles over a lifetime. The bar-tailed godwit can travel 7,000 miles in eight days, without stopping. On World Migratory Bird Day, we can help our feathered friends by protecting their habitats and taking simple steps like leaving less lights on at night, leaving out birdseed, and making windows more visible to avoid collisions.
 > 
 > 
 > 
@@ -139,30 +129,9 @@
 
 </details>
 
-| ![Wild lupines](https://cn.bing.com/th?id=OHR.WildLupine_EN-US1382733552_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wild lupines](https://cn.bing.com/th?id=OHR.WildLupine_EN-US1382733552_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.SonnyBonoPelicans_EN-US1524460012_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.SonnyBonoPelicans_EN-US1524460012_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildLupine_EN-US1382733552_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildLupine_EN-US1382733552_1080x1920.jpg) |
-
-### 20230511
-
-> Henningsvær Stadion, Norway (© Morten Falch Sortland/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> If you want to take in a soccer game and the grandiose beauty of the Norwegian Sea at the same time, this place is pitch perfect. Squeezed into a small Norwegian fishing village, it's fair to say that Henningsvær Stadion's grounds will probably never host a UEFA Champions League. But, while it lacks stands for spectators, there's still plenty of atmosphere to soak up in this striking location. Those who play here do so surrounded by the sound of waves, seabirds, and the smells of salt air and cod, drying on the racks surrounding the pitch.
-> 
-> Cod fishing is central to the economy here in Henningsvær, in the Lofoten Islands–but partly due to drone photography, this scenic pitch has become an important tourist attraction. Resting on a rugged island, surrounded by bare rocks and deep blue waters, watching a game here can make for a surreal and unforgettable experience.
-> 
-> 
-
-</details>
-
-| ![Henningsvær Stadion, Norway](https://cn.bing.com/th?id=OHR.FootballField_EN-US1266832046_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Henningsvær Stadion, Norway](https://cn.bing.com/th?id=OHR.FootballField_EN-US1266832046_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FootballField_EN-US1266832046_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FootballField_EN-US1266832046_1080x1920.jpg) |R.Popocatepetl_EN-US0582960818_1080x1920.jpg) |55&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcelandHorses_EN-US0725710929_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcelandHorses_EN-US0725710929_1080x1920.jpg) |.bing.com/th?id=OHR.TokyoMoat_EN-US9901957262_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoMoat_EN-US9901957262_1080x1920.jpg) |g) |693219784_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red Planet Day](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SonnyBonoPelicans_EN-US1524460012_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SonnyBonoPelicans_EN-US1524460012_1080x1920.jpg) |g) |g) |693219784_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red Planet Day](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
