@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230528
+
+> Tegallalang terrace farms in Ubud, Bali, Indonesia (© Cavan Images/Adobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> Sweeping downhill in our homepage image are the famous rice terraces of Tegallalang, one of Bali's most popular tourist attractions. They are carved into the side of a valley near the town of Ubud and use the traditional Subak irrigation system, which dates back to the 9th century. Bali's rivers and streams provide year-round water for its crops but here people work hand-in-hand with nature, and a network of irrigation channels distribute water to each paddy field. They carefully tend rice plants during the growing season, as generations have done before them, before harvesting and distributing the rice between the community. The Subak system is so important in Balinese culture, it has been recognised by UNESCO. These terraces offer visitors panoramic views over the surrounding rice fields and lush landscape, as well as a picturesque example of people living in harmony with nature.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Tegallalang terrace farms in Ubud, Bali, Indonesia](https://cn.bing.com/th?id=OHR.TegallalangTerrace_EN-US4296943902_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tegallalang terrace farms in Ubud, Bali, Indonesia](https://cn.bing.com/th?id=OHR.TegallalangTerrace_EN-US4296943902_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TegallalangTerrace_EN-US4296943902_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TegallalangTerrace_EN-US4296943902_1080x1920.jpg) |
+
 ### 20230527
 
 > Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)
@@ -112,28 +131,7 @@
 
 | ![International Day for Biodiversity](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biodiversity](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_1080x1920.jpg) |
-
-### 20230521
-
-> Pont d’Arcole on the Seine river, Paris, France (© StockByM/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to Paris, France’s ancient capital city, through which flows one of the country’s longest rivers, the Seine. Human habitation here dates back to at least the 3rd century BCE, when a Gallic tribe called the Parisii settled on an island in the middle of the river. Today, that island is known as the Île de la Cité, seen on the left of our photo, and is home to Notre-Dame cathedral, as well as other striking buildings such as the medieval Conciergerie, pictured here.
-> 
-> It is linked to the Place de l'Hôtel-de-Ville by the Pont d’Arcole, one of 37 bridges connecting the city’s left and right banks. The Pont d’Arcole was built in the 1850s and holds a special place in Parisiennes’ hearts. In 1944, it supported General Jacques-Philippe Leclerc's tanks on their way to liberate Paris.
-> 
-> 
-
-</details>
-
-| ![Pont d'Arcole over the Seine river, Paris, France](https://cn.bing.com/th?id=OHR.PontdArcole_EN-US2477179777_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pont d'Arcole over the Seine river, Paris, France](https://cn.bing.com/th?id=OHR.PontdArcole_EN-US2477179777_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PontdArcole_EN-US2477179777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PontdArcole_EN-US2477179777_1080x1920.jpg) |bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg) |d=OHR.CormorantBridge_EN-US1902862286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg) |d=OHR.CormorantBridge_EN-US1902862286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
