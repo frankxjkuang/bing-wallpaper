@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230602
+
+> Gemsbok (Oryx gazella) in sand dunes, Namibia (© Sergey Gorshkov/Minden)
+
+<details>
+<summary>Description</summary>
+
+> To quote Jurassic Park's Dr. Malcolm: 'Life, uh, finds a way.' Animals and plants are found in some of Earth's most inhospitable places, from penguins and polar bears in the freezing Arctic to camels in scalding deserts. This lonely gemsbok, seen here in sand dunes in Namibia, is used to living in an inhospitable environment. Also known as the oryx, it is native to the arid regions of Southern Africa, especially around the Namib and Kalahari deserts. The gemsbok does not need to drink much water, instead finding hydration in the vegetation it grazes upon—including wild tsamma melons and cucumbers. When vegetation is sparse, they can dig deep to find roots and tubers to supplement their diet.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Gemsbok in Namibian sand dunes](https://cn.bing.com/th?id=OHR.GemsbokNamibia_EN-US7844189674_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gemsbok in Namibian sand dunes](https://cn.bing.com/th?id=OHR.GemsbokNamibia_EN-US7844189674_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GemsbokNamibia_EN-US7844189674_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GemsbokNamibia_EN-US7844189674_1080x1920.jpg) |
+
 ### 20230601
 
 > Aerial image of the Great Barrier Reef, Australia (© AirPano LLC/Amazing Aerial Agency)
@@ -112,26 +131,7 @@
 
 | ![Quiver trees in Namibia](https://cn.bing.com/th?id=OHR.AloeDichotomum_EN-US4149828212_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Quiver trees in Namibia](https://cn.bing.com/th?id=OHR.AloeDichotomum_EN-US4149828212_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AloeDichotomum_EN-US4149828212_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AloeDichotomum_EN-US4149828212_1080x1920.jpg) |
-
-### 20230526
-
-> Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to Sukhothai Historical Park, one of Thailand's most spectacular UNESCO World Heritage sites. The park is dotted with ancient temples, the remains of a palace, and towering Buddha statues—within its boundaries is the historic town of Sukhothai, an important metropolitan hub in the 13th and 14th centuries. The name translates as 'the dawn of happiness' and you can spend many happy hours here, strolling among the beautiful lawns, trees, and lakes. The temple on our homepage is Wat Si Sawai, one of the oldest on the site, founded in the late 12th or early 13th century. Sukhothai was the capital of the first Kingdom of Siam more than 700 years ago and this historic site continues to offer a window onto what is sometimes seen as a golden age of Thai civilization.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Wat Sri Sawai in Sukhothai Historical Park, Thailand](https://cn.bing.com/th?id=OHR.WatSriSawai_EN-US3779091241_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wat Sri Sawai in Sukhothai Historical Park, Thailand](https://cn.bing.com/th?id=OHR.WatSriSawai_EN-US3779091241_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WatSriSawai_EN-US3779091241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatSriSawai_EN-US3779091241_1080x1920.jpg) |US3384967997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaksunFaroe_EN-US3384967997_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_EN-US2880487603_1080x1920.jpg) |?id=OHR.BiodiverseCostaRica_EN-US2611109244_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biodiversity](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AloeDichotomum_EN-US4149828212_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AloeDichotomum_EN-US4149828212_1080x1920.jpg) |N-US3779091241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatSriSawai_EN-US3779091241_1080x1920.jpg) |US3384967997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaksunFaroe_EN-US3384967997_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_EN-US2880487603_1080x1920.jpg) |?id=OHR.BiodiverseCostaRica_EN-US2611109244_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biodiversity](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg) |d=OHR.CormorantBridge_EN-US1902862286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
