@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230604
+
+> Black sand beach at Wai'ānapanapa State Park, Maui, Hawaii (© Matt Anderson Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Brooding black sand beaches are popular with photographers looking for something a little different, and Hawaii has plenty of them on offer. This famous beach at Wai'ānapanapa State Park on Maui was created when basalt, a dark volcanic rock, was eroded by waves into fine grains, creating a stunning shoreline. You'll find it on Maui's east side, toward the end of the legendary Road to Hana, a scenic 64-mile highway. You can also find black sand shores around the world, from Alaska to Greece, Costa Rica, Italy, Iceland, Indonesia, and New Zealand.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Wai'ānapanapa State Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.MauiBeach_EN-US7999098369_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wai'ānapanapa State Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.MauiBeach_EN-US7999098369_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MauiBeach_EN-US7999098369_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MauiBeach_EN-US7999098369_1080x1920.jpg) |
+
 ### 20230603
 
 > South Kaibab Trail in Grand Canyon National Park, Arizona (© Roman Khomlyak/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Memorial Day](https://cn.bing.com/th?id=OHR.LanternFloating_EN-US4433076187_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Memorial Day](https://cn.bing.com/th?id=OHR.LanternFloating_EN-US4433076187_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LanternFloating_EN-US4433076187_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LanternFloating_EN-US4433076187_1080x1920.jpg) |
-
-### 20230528
-
-> Tegallalang terrace farms in Ubud, Bali, Indonesia (© Cavan Images/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> Sweeping downhill in our homepage image are the famous rice terraces of Tegallalang, one of Bali's most popular tourist attractions. They are carved into the side of a valley near the town of Ubud and use the traditional Subak irrigation system, which dates back to the 9th century. Bali's rivers and streams provide year-round water for its crops but here people work hand-in-hand with nature, and a network of irrigation channels distribute water to each paddy field. They carefully tend rice plants during the growing season, as generations have done before them, before harvesting and distributing the rice between the community. The Subak system is so important in Balinese culture, it has been recognised by UNESCO. These terraces offer visitors panoramic views over the surrounding rice fields and lush landscape, as well as a picturesque example of people living in harmony with nature.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Tegallalang terrace farms in Ubud, Bali, Indonesia](https://cn.bing.com/th?id=OHR.TegallalangTerrace_EN-US4296943902_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tegallalang terrace farms in Ubud, Bali, Indonesia](https://cn.bing.com/th?id=OHR.TegallalangTerrace_EN-US4296943902_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LanternFloating_EN-US4433076187_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LanternFloating_EN-US4433076187_1080x1920.jpg) |ce farms in Ubud, Bali, Indonesia](https://cn.bing.com/th?id=OHR.TegallalangTerrace_EN-US4296943902_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TegallalangTerrace_EN-US4296943902_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TegallalangTerrace_EN-US4296943902_1080x1920.jpg) |0.jpg) |N-US3779091241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatSriSawai_EN-US3779091241_1080x1920.jpg) |US3384967997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaksunFaroe_EN-US3384967997_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_EN-US2880487603_1080x1920.jpg) |?id=OHR.BiodiverseCostaRica_EN-US2611109244_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biodiversity](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
