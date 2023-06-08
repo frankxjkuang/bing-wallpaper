@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230606
+
+> The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On June 6, 1944, after months of planning, Allied forces descended on the beaches of Normandy, France, for the start of one of the most ambitious military attacks in history. Codenamed Operation Overlord, the Battle of Normandy was an operation to free Western Europe from Nazi occupation during World War II. This military action would play a pivotal role in the Allies' win against the Axis powers.
+> 
+> Today's Normandy is a far cry from the battlefields of war. This beautiful region draws travelers from around the world, who feast their eyes on landscapes that inspired the great Impressionist painters, while sampling the famous local cheese, Camembert. However, blunt physical reminders of the past remain scattered about the region, a lasting reminder of the thousands of lives lost during the D-Day operation.
+> 
+> 
+
+</details>
+
+| ![D-Day remembered](https://cn.bing.com/th?id=OHR.CliffsEtretat_EN-US8125687089_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![D-Day remembered](https://cn.bing.com/th?id=OHR.CliffsEtretat_EN-US8125687089_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CliffsEtretat_EN-US8125687089_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CliffsEtretat_EN-US8125687089_1080x1920.jpg) |
+
 ### 20230605
 
 > 'Priscilla the Parrotfish' art installation at Como Park Zoo & Conservatory, St. Paul, Minnesota (© Michael Siluk/UCG/Universal Images Group via Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Otter Day](https://cn.bing.com/th?id=OHR.WorldOtterDay_EN-US4690332709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Otter Day](https://cn.bing.com/th?id=OHR.WorldOtterDay_EN-US4690332709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldOtterDay_EN-US4690332709_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldOtterDay_EN-US4690332709_1080x1920.jpg) |
-
-### 20230530
-
-> Playa del Amor in the Marietas Islands, off the coast of Puerto Vallarta, Mexico (© ferrantraite/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This gorgeous shot was taken at Playa del Amor—aka Hidden Beach—a remote destination off the coast of Puerto Vallarta, Mexico, known for its pristine beauty. To get to it, visitors need to take a boat toward the mouth of Banderas Bay at the base of the Marietas Islands. Once there, they swim through a tunnel at low tide to reach the beach. The walls hide a sandy cove, where the turquoise waters contrast with flora-laden cliffs that perfectly frame the blue sky overhead. Playa del Amor (Lovers' Beach) is popular among tourists, but the number of visitors is limited to preserve its natural beauty and ecosystem.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Playa del Amor, Marietas Islands, Mexico](https://cn.bing.com/th?id=OHR.HiddenBeach_EN-US8990991711_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Playa del Amor, Marietas Islands, Mexico](https://cn.bing.com/th?id=OHR.HiddenBeach_EN-US8990991711_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HiddenBeach_EN-US8990991711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HiddenBeach_EN-US8990991711_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.WatSriSawai_EN-US3779091241_1080x1920.jpg) |US3384967997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaksunFaroe_EN-US3384967997_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_EN-US2880487603_1080x1920.jpg) |?id=OHR.BiodiverseCostaRica_EN-US2611109244_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biodiversity](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldOtterDay_EN-US4690332709_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldOtterDay_EN-US4690332709_1080x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.SaksunFaroe_EN-US3384967997_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_EN-US2880487603_1080x1920.jpg) |?id=OHR.BiodiverseCostaRica_EN-US2611109244_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biodiversity](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg) |d=OHR.CormorantBridge_EN-US1902862286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
