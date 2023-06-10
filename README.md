@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230608
+
+> Humpback whale (© Philip Thurston/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Oceans cover more than 70% of the Earth's surface, so it's no surprise they play a crucial role in our planet's climate and ecosystem, supporting a huge amount of marine life. Humpback whales, like the one in our homepage image, can be found in all oceans and have among the world’s longest migrations, traveling thousands of miles from tropical breeding grounds to colder waters in search of food. They are also known for their haunting 'songs.' There are many theories about why they sing, but some research suggests it might be a sign of loneliness. The good news is, that a global ban on commercial whaling has seen their numbers increase, so there is less need for whales to feel lonely.
+> 
+> However, whales' aquatic environment is still at risk from climate change and human action. World Oceans Day is held on June 8 to remind us that the oceans are crucial for the survival of all life on Earth, producing at least half of all the planet's oxygen and home to most of its biodiversity, upon which we all depend.
+> 
+> 
+
+</details>
+
+| ![World Oceans Day](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Oceans Day](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_1080x1920.jpg) |
+
 ### 20230607
 
 > Pueblo Bonito, Chaco Culture National Historical Park, New Mexico (© Ian Shive/Tandem Stills + Motion)
@@ -112,28 +131,7 @@
 
 | ![Gemsbok in Namibian sand dunes](https://cn.bing.com/th?id=OHR.GemsbokNamibia_EN-US7844189674_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gemsbok in Namibian sand dunes](https://cn.bing.com/th?id=OHR.GemsbokNamibia_EN-US7844189674_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GemsbokNamibia_EN-US7844189674_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GemsbokNamibia_EN-US7844189674_1080x1920.jpg) |
-
-### 20230601
-
-> Aerial image of the Great Barrier Reef, Australia (© AirPano LLC/Amazing Aerial Agency)
-
-<details>
-<summary>Description</summary>
-
-> The Great Barrier Reef runs for 1,430 miles along Australia's northeastern coast, providing a home for thousands of species, including more than 1,500 types of fish. Here, you'll find whales, dolphins, turtles, sharks, dugongs, and algae, all living together in a delicate ecosystem that relies on the coral reef. Sadly, climate change and pollution threaten this iconic site, the largest reef in the world. On June 1, we observe World Reef Awareness Day to remind people of the importance of safeguarding coral reefs, which provide food and shelter for about 25% of all marine life, to maintain the balance of nature.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![World Reef Awareness Day](https://cn.bing.com/th?id=OHR.ReefAwareness_EN-US4807167780_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Reef Awareness Day](https://cn.bing.com/th?id=OHR.ReefAwareness_EN-US4807167780_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReefAwareness_EN-US4807167780_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReefAwareness_EN-US4807167780_1080x1920.jpg) |r Biodiversity](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_EN-US2611109244_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg) |d=OHR.CormorantBridge_EN-US1902862286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GemsbokNamibia_EN-US7844189674_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GemsbokNamibia_EN-US7844189674_1080x1920.jpg) |x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg) |d=OHR.CormorantBridge_EN-US1902862286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
