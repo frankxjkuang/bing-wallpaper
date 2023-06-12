@@ -1,13 +1,13 @@
 ## bing wallpaper
 
-### 20230609
+### 20230611
 
-> Hot air balloons in Cappadocia, Türkiye (© Anton Petrus/Getty Images)
+> 巨鹭，克鲁格国家公园，南非 (© Johan Swanepoel/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> Welcome to Cappadocia, a historical region in Türkiye known for its fantastical landscape. A magical moment to enjoy here is watching dozens of hot air balloons rising into the dawn sky. Every sunrise and sunset gives life to the 'fairy chimneys' of this striking region, mysterious towering rock formations reaching up to 130 feet high. The unusual landscape was formed over millions of years by volcanic eruptions. Another attraction here that you won't see from the air is Derinkuyu, a city dating from 1400 BCE that is completely underground. This subterranean city sheltered citizens from invaders who swept through over the centuries. When you experience the ancient wonders of Cappadocia, it's easier to understand how old the world is.
+> 今天照片中的是世界上最大的鹭科鸟类——巨鹭，它正在南非克鲁格国家公园等待猎物游过。这种涉水鸟由于体型巨大（身高可达5英尺，翼展可达7英尺）而被称为巨鹭。它们以其异常缓慢的狩猎动作和对湖泊沼泽等水生栖息地的偏好而闻名。巨鹭在深水中觅食，以鲻鱼和罗非鱼等大型鱼类为食。它们也吃小动物，包括青蛙、蛇和蜥蜴。巨鹭不会因季节而迁徙，常见于撒哈拉以南的非洲地区，在亚洲的西部和南部地区也有少量巨鹭。
 > 
 > 
 > 
@@ -15,108 +15,123 @@
 
 </details>
 
-| ![Cappadocia, Türkiye](https://cn.bing.com/th?id=OHR.BalloonsTurkey_EN-US8385517143_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cappadocia, Türkiye](https://cn.bing.com/th?id=OHR.BalloonsTurkey_EN-US8385517143_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![巨鹭，克鲁格国家公园，南非](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![巨鹭，克鲁格国家公园，南非](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BalloonsTurkey_EN-US8385517143_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BalloonsTurkey_EN-US8385517143_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_1080x1920.jpg) |
+
+### 20230610
+
+> 波尔图大教堂, 葡萄牙 (© Reinhard Schmid/Huber/eStock Photo)
+
+<details>
+<summary>Description</summary>
+
+> 波尔图大教堂坐落在可以俯瞰杜罗河的山顶上，是葡萄牙第二大城市波尔图最著名的地标之一。这座罗马天主教堂建于12世纪，具有兼收并蓄的建筑风格，融合了罗马风、哥特风和巴洛克风的元素。大教堂内用蓝白相间的阿兹雷荷瓷砖装饰出了一幅幅《圣经》中的一些场景。这些瓷砖遍布葡萄牙各个城市的每个角落，在公寓楼、教堂和公共建筑上都随处可见。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![波尔图大教堂，葡萄牙](https://cn.bing.com/th?id=OHR.PortugalDay_ZH-CN2939429166_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![波尔图大教堂，葡萄牙](https://cn.bing.com/th?id=OHR.PortugalDay_ZH-CN2939429166_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PortugalDay_ZH-CN2939429166_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PortugalDay_ZH-CN2939429166_1080x1920.jpg) |
+
+### 20230609
+
+> 卡帕多西亚, 土耳其 (© Anton Petrus/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 如果你去土耳其旅行，一定要去卡帕多西亚打卡，这是一个位于土耳其中部的历史名胜古迹。卡帕多西亚的一个神奇时刻是观看几十个热气球升入黎明的天空。如果你喜欢冒险，你还可以坐上热气球观光。卡帕多西亚遍布着神秘的高耸岩层，高可达130英尺，由数百万年前火山喷发而形成，被称为“精灵烟囟”。这里还有一个你从热气球上无法看到景点，那就是地下城德林库尤，德林库尤的房屋、市场、办公室以及公共场所完全位于地下，整座城市的历史可以追溯到公元前1400年。这座地下城曾为市民提供庇护，让他们免受掠夺和入侵。在你体验卡帕多西亚的古代奇观时，你会更容易理解这个世界有多古老。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![卡帕多西亚，土耳其](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![卡帕多西亚，土耳其](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_1080x1920.jpg) |
 
 ### 20230608
 
-> Humpback whale (© Philip Thurston/Getty Images)
+> 座头鲸 (© Philip Thurston/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Oceans cover more than 70% of the Earth's surface, so it's no surprise they play a crucial role in our planet's climate and ecosystem, supporting a huge amount of marine life. Humpback whales, like the one in our homepage image, can be found in all oceans and have among the world’s longest migrations, traveling thousands of miles from tropical breeding grounds to colder waters in search of food. They are also known for their haunting 'songs.' There are many theories about why they sing, but some research suggests it might be a sign of loneliness. The good news is, that a global ban on commercial whaling has seen their numbers increase, so there is less need for whales to feel lonely.
+> 海洋覆盖了地球表面70%以上的面积，因此海洋在调节地球气候和生态系统方面发挥着至关重要的作用。这些浩瀚的海洋支撑着巨大的海洋生物生态系统，美丽的座头鲸也在其中。座头鲸因其“唱歌”而闻名，研究认为这可能是一种孤独的表现。好消息是，随着商业捕鲸活动的结束，鲸鱼的数量有所上升，鲸鱼们也就不太需要再唱孤独之歌了。
 > 
-> However, whales' aquatic environment is still at risk from climate change and human action. World Oceans Day is held on June 8 to remind us that the oceans are crucial for the survival of all life on Earth, producing at least half of all the planet's oxygen and home to most of its biodiversity, upon which we all depend.
+> 虽然鲸鱼可能不再孤独，但它们的生存环境仍然受到气候变化和人类活动的威胁。今天是世界海洋日，我们需要思考海洋的重要性以及人类活动会对其产生的负面影响。
 > 
 > 
 
 </details>
 
-| ![World Oceans Day](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Oceans Day](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![世界海洋日](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界海洋日](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_1080x1920.jpg) |
 
 ### 20230607
 
-> Pueblo Bonito, Chaco Culture National Historical Park, New Mexico (© Ian Shive/Tandem Stills + Motion)
+> 普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州 (© Ian Shive/Tandem Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> These circular walls belong to Pueblo Bonito, one of the biggest great homes in Chaco Culture National Historical Park, New Mexico. Between around 850 CE and 1250 CE, Chaco Canyon became a major cultural center for the Ancestral Puebloans, who lived in what is now known as the Four Corners region.
+> 数百年来，新墨西哥州的查科峡谷一直是普韦布洛人祖先的主要文化中心，他们的族群在这里扎根并繁荣起来。然而，由于高地沙漠冬季漫长、少雨且生长季节短暂，在这里生活并非易事。尽管面临这些挑战，普韦布洛人还是找到了在这个条件艰苦的地方繁荣发展的方法。今天，查科文化国家历史公园让我们得以窥见古老的普韦布洛人的文化、传统和价值观。该遗址是史前时代举办典礼的公共建筑的所在地，建筑风格具有普韦布洛文化的独特特征。这些建筑仿照古代的悬崖民居，由石灰石块或土坯砖建造而成。
 > 
-> With long winters, little rain, and short growing seasons, the high desert wasn't the easiest place to live but the Pueblo people found ways to thrive here. Today, the park offers a glimpse into an ancient culture's traditions and way of life. The site is home to remnants of prehistoric ceremonial and massive stone buildings, called great houses. Pueblo Bonito, pictured on our homepage, took decades to build and stood four or five stories tall with more than 600 rooms. It would have been used for ceremonies, commerce, astronomy, hospitality, and more. Eventually, Chaco's influence declined, and the people moved on. These ruins are a window onto its glorious past, at the heart of an ancient civilization.
+> 
 > 
 > 
 
 </details>
 
-| ![Chaco Culture National Historical Park, New Mexico](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chaco Culture National Historical Park, New Mexico](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![查科文化国家历史公园，美国新墨西哥州](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![查科文化国家历史公园，美国新墨西哥州](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1080x1920.jpg) |
 
 ### 20230606
 
-> The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)
+> 埃特尔塔海岸的白垩悬崖，诺曼底，法国 (© MarcelloLand/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> On June 6, 1944, after months of planning, Allied forces descended on the beaches of Normandy, France, for the start of one of the most ambitious military attacks in history. Codenamed Operation Overlord, the Battle of Normandy was an operation to free Western Europe from Nazi occupation during World War II. This military action would play a pivotal role in the Allies' win against the Axis powers.
+> 第二次世界大战期间，1944年6月6日，经过数月计划和无数次的拖延，盟军在法国诺曼底海滩登陆，诺曼底战役由此拉开序幕。这是历史上最雄心勃勃的军事袭击之一，为盟军战胜轴心国奠定了坚实基础。
 > 
-> Today's Normandy is a far cry from the battlefields of war. This beautiful region draws travelers from around the world, who feast their eyes on landscapes that inspired the great Impressionist painters, while sampling the famous local cheese, Camembert. However, blunt physical reminders of the past remain scattered about the region, a lasting reminder of the thousands of lives lost during the D-Day operation.
+> 今天的诺曼底与战争中的战壕和雷区相去甚远。这里是一个美丽的旅游区，吸引着世界各地的游客前来品尝芳香的卡门贝干酪，同时饱览激发了伟大印象派画家灵感的风景。但这里仍然散落着过去的痕迹，时刻提醒着人们要记住和纪念在诺曼底登陆行动中逝去的生命。
 > 
 > 
 
 </details>
 
-| ![D-Day remembered](https://cn.bing.com/th?id=OHR.CliffsEtretat_EN-US8125687089_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![D-Day remembered](https://cn.bing.com/th?id=OHR.CliffsEtretat_EN-US8125687089_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![诺曼底登陆日](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![诺曼底登陆日](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CliffsEtretat_EN-US8125687089_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CliffsEtretat_EN-US8125687089_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_1080x1920.jpg) |
 
 ### 20230605
 
-> 'Priscilla the Parrotfish' art installation at Como Park Zoo & Conservatory, St. Paul, Minnesota (© Michael Siluk/UCG/Universal Images Group via Getty Images)
+> 辛华达峡谷的瀑布，贾斯珀国家公园，加拿大 (© Delpixart/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 'To damage the Earth is to damage your children,' as the writer and environmentalist Wendell Berry put it. Today is World Environment Day, which marks its 50th year of raising awareness and encouraging action to protect the natural world. This year's theme is about finding solutions to plastic pollution, which brings us to our homepage image.
+> 辛华达瀑布位于加拿大艾伯塔省贾斯珀国家公园，落差约为18.5米。从著名的冰原大道下来，通过一条600米的通道便可到达该瀑布。
 > 
-> The colorful collection of assembled objects in this picture is just a small section of an art installation named 'Priscilla the Parrotfish.' Like other sculptures by the Washed Ashore environmental project, Priscilla was constructed from plastic litter found on Oregon's beaches. While striking to look at, the sculpture reminds us that more than 8 million tons of plastic are estimated to be dumped in the ocean each year, harming marine life. This year's World Environment Day urges an end to the flow of waste, by changing the way we produce, use, and dispose of plastic.
+> 辛华达瀑布位于通往班夫国家公园的冰原大道旁边，由上下两个瀑布组成，水源来自阿萨巴斯卡冰川融水。上瀑布可以从观景停车场轻松到达，落差约18米。再走过一条长1.3公里的步道、穿过松树林，就到了下瀑布。辛华达瀑布的最佳参观时间是春末或初夏，那时是融雪的高峰期，也是瀑布水量最大的时候。
 > 
 > 
 
 </details>
 
-| ![World Environment Day](https://cn.bing.com/th?id=OHR.PlasticParrotfish_EN-US8059787303_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Environment Day](https://cn.bing.com/th?id=OHR.PlasticParrotfish_EN-US8059787303_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![辛华达瀑布，贾斯珀国家公园，加拿大](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![辛华达瀑布，贾斯珀国家公园，加拿大](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlasticParrotfish_EN-US8059787303_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlasticParrotfish_EN-US8059787303_1080x1920.jpg) |
-
-### 20230604
-
-> Black sand beach at Wai'ānapanapa State Park, Maui, Hawaii (© Matt Anderson Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Brooding black sand beaches are popular with photographers looking for something a little different, and Hawaii has plenty of them on offer. This famous beach at Wai'ānapanapa State Park on Maui was created when basalt, a dark volcanic rock, was eroded by waves into fine grains, creating a stunning shoreline. You'll find it on Maui's east side, toward the end of the legendary Road to Hana, a scenic 64-mile highway. You can also find black sand shores around the world, from Alaska to Greece, Costa Rica, Italy, Iceland, Indonesia, and New Zealand.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Wai'ānapanapa State Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.MauiBeach_EN-US7999098369_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wai'ānapanapa State Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.MauiBeach_EN-US7999098369_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MauiBeach_EN-US7999098369_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MauiBeach_EN-US7999098369_1080x1920.jpg) |
-
-### 20230603
-
-> South Kaibab Trail in Grand Canyon National Park, Arizona (© Roman Khomlyak/Getty Images)
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_1080x1920.jpg) |rail in Grand Canyon National Park, Arizona (© Roman Khomlyak/Getty Images)
 
 <details>
 <summary>Description</summary>
