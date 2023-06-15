@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230613
+
+> Trees with Spanish moss over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> The Okefenokee Swamp, on the border of Georgia and Florida, is the largest intact freshwater swamp in the US. Its slow-moving blackwaters are stained by tannins from decaying organic matter and this vast ecosystem, covering 700 square miles, is packed with wildlife. Herons, cranes, bitterns, American alligators, turtles, snakes, frogs, and Florida black bears are among creatures who roam the swamp, which is largely protected by the Okefenokee National Wildlife Refuge. In the early years of the 20th century, part of the swamp was logged, and its peat deposits were mined for use as fuel. Remnants of railroad lines can still be seen crossing swamp waterways as well as other equipment dating from its time as a logging area.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Okefenokee Swamp](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_EN-US8688169198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Okefenokee Swamp](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_EN-US8688169198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_EN-US8688169198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_EN-US8688169198_1080x1920.jpg) |
+
 ### 20230612
 
 > Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Chaco Culture National Historical Park, New Mexico](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chaco Culture National Historical Park, New Mexico](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg) |
-
-### 20230606
-
-> The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On June 6, 1944, after months of planning, Allied forces descended on the beaches of Normandy, France, for the start of one of the most ambitious military attacks in history. Codenamed Operation Overlord, the Battle of Normandy was an operation to free Western Europe from Nazi occupation during World War II. This military action would play a pivotal role in the Allies' win against the Axis powers.
-> 
-> Today's Normandy is a far cry from the battlefields of war. This beautiful region draws travelers from around the world, who feast their eyes on landscapes that inspired the great Impressionist painters, while sampling the famous local cheese, Camembert. However, blunt physical reminders of the past remain scattered about the region, a lasting reminder of the thousands of lives lost during the D-Day operation.
-> 
-> 
-
-</details>
-
-| ![D-Day remembered](https://cn.bing.com/th?id=OHR.CliffsEtretat_EN-US8125687089_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![D-Day remembered](https://cn.bing.com/th?id=OHR.CliffsEtretat_EN-US8125687089_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CliffsEtretat_EN-US8125687089_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CliffsEtretat_EN-US8125687089_1080x1920.jpg) |th?id=OHR.PlasticParrotfish_EN-US8059787303_1080x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg) |d=OHR.CormorantBridge_EN-US1902862286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg) |.CliffsEtretat_EN-US8125687089_1080x1920.jpg) |th?id=OHR.PlasticParrotfish_EN-US8059787303_1080x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg) |d=OHR.CormorantBridge_EN-US1902862286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
