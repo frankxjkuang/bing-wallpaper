@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230614
+
+> US Capitol building and US flags, Washington, DC (© Orhan Cam/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> The Stars and Stripes is a symbol that holds different meanings for different Americans. Perhaps that is fitting, given that the flag itself has changed many times. The first version had 13 stripes and 13 stars to symbolize the original colonies that eventually formed the United States of America. On June 14, we commemorate the flag’s adoption at the Second Continental Congress in 1777. Initially, it was rarely seen beyond military and government buildings and ships, but it became an icon of American identity during the Civil War. Today, the Stars and Stripes will fly at Flag Day parades and ceremonies, as the country celebrates its symbolism and history.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Flag Day](https://cn.bing.com/th?id=OHR.FlagDayCapitol_EN-US8751000302_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Flag Day](https://cn.bing.com/th?id=OHR.FlagDayCapitol_EN-US8751000302_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlagDayCapitol_EN-US8751000302_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlagDayCapitol_EN-US8751000302_1080x1920.jpg) |
+
 ### 20230613
 
 > Trees with Spanish moss over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)
@@ -112,24 +131,7 @@
 
 | ![World Oceans Day](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Oceans Day](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_1080x1920.jpg) |
-
-### 20230607
-
-> Pueblo Bonito, Chaco Culture National Historical Park, New Mexico (© Ian Shive/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> These circular walls belong to Pueblo Bonito, one of the biggest great homes in Chaco Culture National Historical Park, New Mexico. Between around 850 CE and 1250 CE, Chaco Canyon became a major cultural center for the Ancestral Puebloans, who lived in what is now known as the Four Corners region.
-> 
-> With long winters, little rain, and short growing seasons, the high desert wasn't the easiest place to live but the Pueblo people found ways to thrive here. Today, the park offers a glimpse into an ancient culture's traditions and way of life. The site is home to remnants of prehistoric ceremonial and massive stone buildings, called great houses. Pueblo Bonito, pictured on our homepage, took decades to build and stood four or five stories tall with more than 600 rooms. It would have been used for ceremonies, commerce, astronomy, hospitality, and more. Eventually, Chaco's influence declined, and the people moved on. These ruins are a window onto its glorious past, at the heart of an ancient civilization.
-> 
-> 
-
-</details>
-
-| ![Chaco Culture National Historical Park, New Mexico](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chaco Culture National Historical Park, New Mexico](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_1080x1920.jpg) |R.ChacoCulture_EN-US8179442556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chaco Culture National Historical Park, New Mexico](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg) |.CliffsEtretat_EN-US8125687089_1080x1920.jpg) |th?id=OHR.PlasticParrotfish_EN-US8059787303_1080x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg) |d=OHR.CormorantBridge_EN-US1902862286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
