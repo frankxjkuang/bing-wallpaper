@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230619
+
+> City Hall lit up for Juneteenth in San Francisco, California (© yhelfman/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Juneteenth is here, a day celebrating the freedom of enslaved African Americans shortly after the end of the Civil War. While Abraham Lincoln's final Emancipation Proclamation in January 1863 freed slaves in Confederate states, certain areas did not abolish slavery until months after Confederate forces surrendered. Texas issued an order on June 19, 1865, that 'all slaves are free.' This act was the origin of Juneteenth, which combines the words June and nineteenth. However, slavery did not fully end in the US until the 13th Amendment was ratified on December 6, 1865.
+> 
+> The holiday has been recognized in every state since 1979. Modern celebrations and jubilees include concerts, marches, fairs, and buildings lit up with red, black, and green like we see in our photo. Juneteenth offers us the opportunity to celebrate progress while also challenging ourselves to identify the ongoing work that needs to be done.
+> 
+> 
+
+</details>
+
+| ![Juneteenth](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Juneteenth](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_1080x1920.jpg) |
+
 ### 20230618
 
 > Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Okefenokee Swamp](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_EN-US8688169198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Okefenokee Swamp](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_EN-US8688169198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_EN-US8688169198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_EN-US8688169198_1080x1920.jpg) |
-
-### 20230612
-
-> Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Happy birthday, Big Bend National Park! Since this humongous park was established in Texas in 1944, it has welcomed millions of nature lovers and adventure seekers. The park's southern boundary is marked by the Rio Grande, which separates Texas and Mexico. If you look at a map, it's clear how the area got its name. The river has a drastic change in course, bending from southeastern to a northeastern flow around the park's boundaries.
-> 
-> Big Bend includes many archaeological sites that offer a glimpse of its rich history, from abandoned mines and ghost towns to Indigenous relics from nearly 10,000 years ago. It also offers some of the clearest skies in the US and is recognized as an International Dark Sky Park, making it a popular destination for stargazers. With its huge canyons, desert areas, and forested mountains, it is also a popular destination for adventure sports like hiking, river rafting, and horseback riding.
-> 
-> 
-
-</details>
-
-| ![Big Bend National Park's birthday](https://cn.bing.com/th?id=OHR.BigBendAnniv_EN-US8613000977_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Big Bend National Park's birthday](https://cn.bing.com/th?id=OHR.BigBendAnniv_EN-US8613000977_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BigBendAnniv_EN-US8613000977_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BigBendAnniv_EN-US8613000977_1080x1920.jpg) |20.jpg) |R.ChacoCulture_EN-US8179442556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chaco Culture National Historical Park, New Mexico](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_EN-US8688169198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_EN-US8688169198_1080x1920.jpg) |g.com/th?id=OHR.BigBendAnniv_EN-US8613000977_1080x1920.jpg) |20.jpg) |R.ChacoCulture_EN-US8179442556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chaco Culture National Historical Park, New Mexico](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg) |.CliffsEtretat_EN-US8125687089_1080x1920.jpg) |th?id=OHR.PlasticParrotfish_EN-US8059787303_1080x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg) |d=OHR.CormorantBridge_EN-US1902862286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
