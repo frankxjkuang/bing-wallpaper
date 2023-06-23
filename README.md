@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230621
+
+> Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The ancient monument of Stonehenge has fascinated people for centuries. Estimated to have been built between 3000 and 2000 BCE in the English county of Wiltshire, its large standing stones remain an enigma. Exactly why and how this massive stone circle was built are still debated. What we do know, is that it was done without metal tools or the use of wheels—and some of those stones were moved more than 150 miles.
+> 
+> On the summer solstice, the longest day of the year, the sun rises directly over the largest stone, the Heel Stone, creating a captivating spectacle. On the winter solstice, the shortest day, the sunset aligns with the stones, casting an enchanting glow upon the ancient site. Stonehenge's precise alignment with astronomical events suggests its importance in ancient ceremonial practices, making it an iconic symbol of human ingenuity and our connection to the cosmos.
+> 
+> 
+
+</details>
+
+| ![Summer solstice](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Summer solstice](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) |
+
 ### 20230620
 
 > Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![Nature Photography Day](https://cn.bing.com/th?id=OHR.SmokyFireflies_EN-US8809086301_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nature Photography Day](https://cn.bing.com/th?id=OHR.SmokyFireflies_EN-US8809086301_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyFireflies_EN-US8809086301_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyFireflies_EN-US8809086301_1080x1920.jpg) |
-
-### 20230614
-
-> US Capitol building and US flags, Washington, DC (© Orhan Cam/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> The Stars and Stripes is a symbol that holds different meanings for different Americans. Perhaps that is fitting, given that the flag itself has changed many times. The first version had 13 stripes and 13 stars to symbolize the original colonies that eventually formed the United States of America. On June 14, we commemorate the flag’s adoption at the Second Continental Congress in 1777. Initially, it was rarely seen beyond military and government buildings and ships, but it became an icon of American identity during the Civil War. Today, the Stars and Stripes will fly at Flag Day parades and ceremonies, as the country celebrates its symbolism and history.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Flag Day](https://cn.bing.com/th?id=OHR.FlagDayCapitol_EN-US8751000302_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Flag Day](https://cn.bing.com/th?id=OHR.FlagDayCapitol_EN-US8751000302_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlagDayCapitol_EN-US8751000302_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlagDayCapitol_EN-US8751000302_1080x1920.jpg) |ChacoCulture_EN-US8179442556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chaco Culture National Historical Park, New Mexico](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg) |.CliffsEtretat_EN-US8125687089_1080x1920.jpg) |th?id=OHR.PlasticParrotfish_EN-US8059787303_1080x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg) |d=OHR.CormorantBridge_EN-US1902862286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyFireflies_EN-US8809086301_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyFireflies_EN-US8809086301_1080x1920.jpg) |ad landscape 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChacoCulture_EN-US8179442556_1080x1920.jpg) |.CliffsEtretat_EN-US8125687089_1080x1920.jpg) |th?id=OHR.PlasticParrotfish_EN-US8059787303_1080x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SumatranRhino_EN-US0245305253_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.MuseoSoumaya_EN-US2440983924_1080x1920.jpg) |d=OHR.CormorantBridge_EN-US1902862286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
