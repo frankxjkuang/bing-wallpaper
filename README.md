@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230626
+
+> Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> The Château de Villandry in France is renowned for its exquisite gardens that are considered a masterpiece of Renaissance horticulture. The gardens, which are divided into sections, feature geometric patterns, vibrant flowerbeds, serene water elements, and meticulously trimmed hedges. Each section has its own theme, ranging from ornamental to practical, and is bursting with a stunning blend of colors and textures. The château's gardens showcase the harmonious relationship between architecture and nature. Stunning gardens have surrounded the château since it was built in 1532, but their appearance changed drastically over the centuries. After Joachim Carvallo acquired the estate, he spent 10 years from 1918 reinventing and restoring the Renaissance formal gardens. Other elements have been added in the decades since and the gardens continue to captivate visitors to this day.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Château de Villandry, France](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Château de Villandry, France](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg) |
+
 ### 20230625
 
 > Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![American Eagle Day](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![American Eagle Day](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |
-
-### 20230619
-
-> City Hall lit up for Juneteenth in San Francisco, California (© yhelfman/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Juneteenth is here, a day celebrating the freedom of enslaved African Americans shortly after the end of the Civil War. While Abraham Lincoln's final Emancipation Proclamation in January 1863 freed slaves in Confederate states, certain areas did not abolish slavery until months after Confederate forces surrendered. Texas issued an order on June 19, 1865, that 'all slaves are free.' This act was the origin of Juneteenth, which combines the words June and nineteenth. However, slavery did not fully end in the US until the 13th Amendment was ratified on December 6, 1865.
-> 
-> The holiday has been recognized in every state since 1979. Modern celebrations and jubilees include concerts, marches, fairs, and buildings lit up with red, black, and green like we see in our photo. Juneteenth offers us the opportunity to celebrate progress while also challenging ourselves to identify the ongoing work that needs to be done.
-> 
-> 
-
-</details>
-
-| ![Juneteenth](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Juneteenth](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_1080x1920.jpg) |664_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
