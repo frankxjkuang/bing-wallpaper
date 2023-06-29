@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230627
+
+> Sedona, Arizona (© Jonathan Ross/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Stunning sandstone cliffs rise from the desert floor amid spectacular scenery here in Sedona, Arizona, also known as Red Rock Country. Adventure enthusiasts come to enjoy the beautiful trails that dot the region, which is also steeped in Native American history. The earliest settlers are believed to have been the Ancestral Puebloans, who inhabited the area around 1,400 years ago. Without any written history, most of the information about these ancient people comes from the archaeological ruins that remain, including cliff dwellings built under overhangs in the area's red sandstone rocks. Other Native American groups came to the area such as the Hakataya, the Hohokam, the Sinagua, and the modern-day tribes that live in Arizona today, the Tonto Apache and the Yavapai.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Sedona, Arizona](https://cn.bing.com/th?id=OHR.SedonaSunset_EN-US2192383635_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sedona, Arizona](https://cn.bing.com/th?id=OHR.SedonaSunset_EN-US2192383635_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SedonaSunset_EN-US2192383635_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SedonaSunset_EN-US2192383635_1080x1920.jpg) |
+
 ### 20230626
 
 > Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Summer solstice](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Summer solstice](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) |
-
-### 20230620
-
-> Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Bald eagles are a symbol of strength, determination, and courage. The powerful bird is celebrated every year on June 20, the day it was made the national symbol of the United States in 1782. President Bill Clinton commemorated this date by declaring it American Eagle Day in 1995. The bald eagle, named for its white-feathered head, was once an endangered bird, but conservation efforts and the Endangered Species Act have helped boost its numbers.
-> 
-> Today's image was taken in the Tongass National Forest in southeast Alaska, which has the highest nesting density of bald eagles in the world. Eagles are picky when it comes to selecting a tree in which to nest. They like tall ones that offer a good view of their surroundings. This majestic bird stands as a proud reminder of the principles of liberty and independence that the nation was founded upon.
-> 
-> 
-
-</details>
-
-| ![American Eagle Day](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![American Eagle Day](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
