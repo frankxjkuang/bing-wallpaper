@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230628
+
+> Rainbow flags and confetti, Reykjavík, Iceland (© Arctic-Images/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On June 28, 1969, protests erupted over a police raid at the Stonewall Inn, a gay bar in Greenwich Village in New York. This watershed moment—at a time when homosexuality was still illegal in most US states—launched an era of activism and resistance that would transform into a celebration of LGBTQIA+ love and pride. Today, Pride Month is observed in the United States and in dozens of countries around the world. Taking place every June, the month-long celebration of LGBTQIA+ communities also highlights their struggles and achievements. The goal of Pride is to promote the acceptance of love in all its forms, so that LGBTQIA+ communities have the respect, dignity, and equality they deserve.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Pride Month](https://cn.bing.com/th?id=OHR.PrideIceland_EN-US2263138010_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride Month](https://cn.bing.com/th?id=OHR.PrideIceland_EN-US2263138010_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrideIceland_EN-US2263138010_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrideIceland_EN-US2263138010_1080x1920.jpg) |
+
 ### 20230627
 
 > Sedona, Arizona (© Jonathan Ross/Getty Images)
@@ -112,25 +131,7 @@
 
 | ![World Rainforest Day](https://cn.bing.com/th?id=OHR.PeruAmazon_EN-US1428483038_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rainforest Day](https://cn.bing.com/th?id=OHR.PeruAmazon_EN-US1428483038_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PeruAmazon_EN-US1428483038_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeruAmazon_EN-US1428483038_1080x1920.jpg) |
-
-### 20230621
-
-> Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The ancient monument of Stonehenge has fascinated people for centuries. Estimated to have been built between 3000 and 2000 BCE in the English county of Wiltshire, its large standing stones remain an enigma. Exactly why and how this massive stone circle was built are still debated. What we do know, is that it was done without metal tools or the use of wheels—and some of those stones were moved more than 150 miles.
-> 
-> On the summer solstice, the longest day of the year, the sun rises directly over the largest stone, the Heel Stone, creating a captivating spectacle. On the winter solstice, the shortest day, the sunset aligns with the stones, casting an enchanting glow upon the ancient site. Stonehenge's precise alignment with astronomical events suggests its importance in ancient ceremonial practices, making it an iconic symbol of human ingenuity and our connection to the cosmos.
-> 
-> 
-
-</details>
-
-| ![Summer solstice](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Summer solstice](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PeruAmazon_EN-US1428483038_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeruAmazon_EN-US1428483038_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
