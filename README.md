@@ -2,88 +2,88 @@
 
 ### 20230701
 
-> 从意大利圣天使城堡俯瞰罗马 (© sborisov/Getty Images)
+> Tour de France cyclists crossing the Pont du Gard, France (© Gonzalo Fuentes/Reuters)
 
 <details>
 <summary>Description</summary>
 
-> 今天的照片是从圣天使堡（又称哈德良陵墓）拍下的罗马美景。圣天使堡是由罗马帝国皇帝哈德良所修建，用作自己和后代的陵墓。除他之外，还有许多皇帝被葬在这里，公元217年的卡拉卡拉是最后一位。
+> The first stage of the Tour de France, known as the Grand Départ, begins today, as the 110th edition of the world's most famous cycling race gets underway. The grueling event, first held in 1903, sees teams race more than 2,100 miles through the Pyrenees and the Alps to finish on the Champs-Élysées in Paris. The competition is divided into 21 day-long stages and while some parts stay the same, others vary from year to year. For example, our image features the Pont du Gard—an ancient Roman aqueduct bridge that was built during the first century AD—which only appeared in the 2019 race. The entire event takes place over a 23-day period, including rest days, as teams of eight cyclists compete for a cash prize and the coveted yellow jersey. For these riders, this competition is the apex of years of training and dedication. Bonne chance!
 > 
-> 从中世纪到19世纪，这座建筑被改造成了保卫罗马的堡垒，梵蒂冈也因此没有落入西哥特人和汪达尔人手中。1365年左右，圣天使堡成为了教会的财产。而在意大利统一后，这座建筑最终成为了博物馆，教会也就随之失去了它的所有权。
 > 
-> 即使在今天，这座雄伟的建筑仍然吸引着数百万来自世界各地的游客，一直是罗马游客最多的博物馆之一。
+> 
+> 
 
 </details>
 
-| ![罗马，意大利](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![罗马，意大利](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![The Tour de France begins](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Tour de France begins](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_1080x1920.jpg) |
 
 ### 20230630
 
-> 棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州 (© Carlos Carreno/Getty Images)
+> Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska (© Carlos Carreno/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在阿拉斯加州克拉克湖国家公园和自然保护区的原始林区中，棕熊统治着一切，它们是原始荒野的标志性象征。棕熊的体型庞大，一只成年雄性棕熊的体重可以超过1000磅，站立高度可达10英尺。棕熊的毛色从金黄色到深棕色不等，皮毛厚实蓬松，为它们抵御阿拉斯加严寒的冬天提供了保障。
+> In the pristine landscapes of Lake Clark National Park and Preserve, Alaska, brown bears reign supreme. These magnificent creatures, also known as grizzly bears, are an iconic symbol of the untamed wilderness. Impressive in size, adult males can exceed 1,000 pounds and reach a standing height of 10 feet. Their thick, shaggy fur—varying in shades from blond to dark brown—provides insulation against the harsh Alaskan winter.
 > 
-> 棕熊是一种杂食动物，它们的食物包括浆果、鱼、小型哺乳动物，甚至还有腐肉。它们还会在公园的原始河流和湖泊中展示出超凡的捕鱼技巧。特别是在每年的鲑鱼洄游期间，它们就会大显身手。克拉克湖国家公园和保护区为棕熊们提供了一个活动、繁衍和冬眠的庇护所。
+> Brown bears are opportunistic omnivores, and their diet comprises berries, fish, small mammals, and carrion. They show off their amazing fishing skills in the park's rivers and lakes, particularly during the annual salmon runs. Lake Clark National Park and Preserve offers these magnificent creatures a sanctuary to roam, thrive, and prepare for each year's hibernation.
 > 
 > 
 
 </details>
 
-| ![棕熊，阿拉斯加州，美国](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![棕熊，阿拉斯加州，美国](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Brown bears in Lake Clark National Park and Preserve, Alaska](https://cn.bing.com/th?id=OHR.ClamBears_EN-US1283973201_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Brown bears in Lake Clark National Park and Preserve, Alaska](https://cn.bing.com/th?id=OHR.ClamBears_EN-US1283973201_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ClamBears_EN-US1283973201_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ClamBears_EN-US1283973201_1080x1920.jpg) |
 
 ### 20230629
 
-> 巴尼亚群岛，苏门答腊，印度尼西亚 (© fbxx/Getty Imagesz)
+> Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 巴尼亚群岛位于印度洋海域，每年吸引数百万游客。巴尼亚群岛由99个小岛组成，这些小岛大部分都无人居住，甚至还没有名字，岛上目之所及都是纯净的沙滩、茂盛的树木和透彻的海水。这个纯净的热带天堂还非常适宜冲浪，这因此成为了完美的度假目的地，适合任何想要在平静和放松之余来一点冒险的人们。
+> On the International Day of the Tropics, we are in the Banyak Islands of Indonesia, a group of more than 70 islands, most of which are uninhabited and unnamed. The Banyak Islands offer miles of pristine sandy beaches, lush green trees, and clear waters as far as the eyes can see. This tropical paradise also boasts some great surfing and snorkeling spots and draws millions of visitors a year.
 > 
-> 
+> But the tropics, roughly defined as the area above and below the equator between the Tropic of Cancer and Tropic of Capricorn, face various challenges including climate change, urbanization, and high levels of poverty. They also make up approximately one-third of the Earth’s landmass and are home to about 40% of the world’s population. On June 29, International Day of the Tropics celebrates the uniqueness and biodiversity of the tropics, while highlighting their challenges and progress made to address them.
 > 
 > 
 
 </details>
 
-| ![国际热带日](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际热带日](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_1080x1920.jpg) |
 
 ### 20230628
 
-> 韦尔纳扎，五渔村，意大利 (© Rubin Versigny/Getty Images)
+> Rainbow flags and confetti, Reykjavík, Iceland (© Arctic-Images/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 韦尔纳扎是组成五渔村国家公园的第二个村镇。五渔村在1997年被联合国教科文组织列为世界文化遗产地。韦尔纳扎是利古里亚海岸上的一颗明珠，镇上的特色建筑非常值得一看，这里还有一条2公里长的步道，通往一座圣母堂，非常适合徒步爱好者。
+> On June 28, 1969, protests erupted over a police raid at the Stonewall Inn, a gay bar in Greenwich Village in New York. This watershed moment—at a time when homosexuality was still illegal in most US states—launched an era of activism and resistance that would transform into a celebration of LGBTQIA+ love and pride. Today, Pride Month is observed in the United States and in dozens of countries around the world. Taking place every June, the month-long celebration of LGBTQIA+ communities also highlights their struggles and achievements. The goal of Pride is to promote the acceptance of love in all its forms, so that LGBTQIA+ communities have the respect, dignity, and equality they deserve.
 > 
-> 韦尔纳扎被称为意大利利古里亚海岸上最迷人的村落，游客既可以在这里进行户外活动，又能享受海边的祥和宁静。
+> 
 > 
 > 
 
 </details>
 
-| ![韦尔纳扎，五渔村，意大利](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![韦尔纳扎，五渔村，意大利](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Pride Month](https://cn.bing.com/th?id=OHR.PrideIceland_EN-US2263138010_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride Month](https://cn.bing.com/th?id=OHR.PrideIceland_EN-US2263138010_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrideIceland_EN-US2263138010_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrideIceland_EN-US2263138010_1080x1920.jpg) |
 
 ### 20230627
 
-> 塞多纳，亚利桑那州，美国 (© Jonathan Ross/Getty Images)
+> Sedona, Arizona (© Jonathan Ross/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 从你踏入塞多纳的那一刻起，你将会震撼于其绝妙的景色和从沙漠中突兀而出的红色砂石悬崖。冒险爱好者热爱这里的美景和宁静。塞多纳还遍地是美洲原住民的历史。尽管由于缺少文字记述，我们对于这个地区最早的定居者知之甚少，他们被称为“祖先普韦布洛人”。普遍认为他们在1400年前在此定居。大部分有关这些古代先民的信息来自于考古遗迹和文物，包括大规模的普韦布洛人定居点遗址。
+> Stunning sandstone cliffs rise from the desert floor amid spectacular scenery here in Sedona, Arizona, also known as Red Rock Country. Adventure enthusiasts come to enjoy the beautiful trails that dot the region, which is also steeped in Native American history. The earliest settlers are believed to have been the Ancestral Puebloans, who inhabited the area around 1,400 years ago. Without any written history, most of the information about these ancient people comes from the archaeological ruins that remain, including cliff dwellings built under overhangs in the area's red sandstone rocks. Other Native American groups came to the area such as the Hakataya, the Hohokam, the Sinagua, and the modern-day tribes that live in Arizona today, the Tonto Apache and the Yavapai.
 > 
 > 
 > 
@@ -91,18 +91,18 @@
 
 </details>
 
-| ![塞多纳，亚利桑那州，美国](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![塞多纳，亚利桑那州，美国](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Sedona, Arizona](https://cn.bing.com/th?id=OHR.SedonaSunset_EN-US2192383635_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sedona, Arizona](https://cn.bing.com/th?id=OHR.SedonaSunset_EN-US2192383635_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SedonaSunset_EN-US2192383635_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SedonaSunset_EN-US2192383635_1080x1920.jpg) |
 
 ### 20230626
 
-> 维朗德里城堡及花园，卢瓦尔河谷，法国 (© VLADJ55/Shutterstock)
+> Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 法国的维朗德里城堡以其精美绝伦的花园出名。它的花园也被认为是一个文艺复兴时期园林设计的典范。花园被细分成了不同的区域，有着几何纹路、生机盎然的花床、静谧的水景和精心修建的树篱。每个区域都有其主题，有的有装饰性，有的有实用性，缤纷的色彩和纹路相交织，美不胜收。城堡的花园体现了建筑设计和自然的和谐关系，其美景和艺术创造力使游客为之着迷。
+> The Château de Villandry in France is renowned for its exquisite gardens that are considered a masterpiece of Renaissance horticulture. The gardens, which are divided into sections, feature geometric patterns, vibrant flowerbeds, serene water elements, and meticulously trimmed hedges. Each section has its own theme, ranging from ornamental to practical, and is bursting with a stunning blend of colors and textures. The château's gardens showcase the harmonious relationship between architecture and nature. Stunning gardens have surrounded the château since it was built in 1532, but their appearance changed drastically over the centuries. After Joachim Carvallo acquired the estate, he spent 10 years from 1918 reinventing and restoring the Renaissance formal gardens. Other elements have been added in the decades since and the gardens continue to captivate visitors to this day.
 > 
 > 
 > 
@@ -110,48 +110,28 @@
 
 </details>
 
-| ![维朗德里城堡，法国](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![维朗德里城堡，法国](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Château de Villandry, France](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Château de Villandry, France](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg) |
 
 ### 20230625
 
-> 佩特拉的宝库，约旦 (© WitthayaP/Shutterstock)
+> Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 卡兹尼神殿是约旦佩特拉的一座神殿，在阿拉伯语中意为 "宝库"。多年以来，佩特拉一直不为世界所知，只有住在周边沙漠里的贝都因人才知晓它的存在。大约2000年前，佩特拉的原住民纳巴泰人用砂岩修建了这座神殿，并给其建造了一个具有蓄水池、水道和其他设施的供水系统，令人啧啧称奇。卡兹尼神殿是纳巴泰建筑的缩影，高141英尺，还有一个令人着迷的美丽门洞，高耸的柱子上刻有狮身人面兽一类的神话生物。据说纳巴泰国王阿雷塔斯四世长眠于此。
+> Welcome to the ancient temple of Al-Khazneh in the desert city of Petra, Jordan. Carved out of a single sandstone rock about 2,000 years ago by the Nabataean people, it is believed to have been a mausoleum for King Aretas IV. Standing 141 feet tall, its massive doorway is framed with towering columns and intricate carvings. It is the most recognizable structure of this 'rose city' of temples and tombs carved from pink sandstone.
 > 
-> 
+> The Nabataeans, the original inhabitants of Petra, were skilled architects who built an impressive network of cisterns and water channels here. Once a thriving center, Petra is thought to have been largely abandoned around the 8th century and was 'lost' to the Western world until the 19th century. Only the Bedouin people, who lived in the surrounding desert, knew of it, and it is they who are thought to have named it Al-Khazneh, believing it contained treasures.
 > 
 > 
 
 </details>
 
-| ![佩特拉，约旦](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![佩特拉，约旦](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Al-Khazneh in Petra, Jordan](https://cn.bing.com/th?id=OHR.PetraTreasury_EN-US1981994011_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Al-Khazneh in Petra, Jordan](https://cn.bing.com/th?id=OHR.PetraTreasury_EN-US1981994011_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_1080x1920.jpg) |g) |
-
-### 20230623
-
-> Monarch butterflies feeding from wildflowers (© bookguy/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It's lunch time for these beautiful monarch butterflies, which like to feed on clusters of colorful wildflowers. While they dine out on nectar, they get a light dusting of pollen, which is then spread to other flowers they land on. This process is pollination, transferring pollen from the male part of a flower to the female part, and is crucial for growing many of our fruits and vegetables. It improves the quality and quantity of crops and increases harvest yields. Nearly $20 billion of goods are produced in the US alone each year, because of pollination.
-> 
-> Pollinators are a critical part of food systems and ecosystems, but their numbers have declined due to various threats including loss of habitats, pesticides, and climate change. Pollinator Week, held in June each year, aims to raise awareness of pollinators and what we can do to protect them. You can mark the week by avoiding using pesticides and creating a pollinator-friendly habitat for butterflies, bees, and other pollinators, helping them continue to play their essential role in plant reproduction.
-> 
-> 
-
-</details>
-
-| ![Pollinator Week](https://cn.bing.com/th?id=OHR.PollinatorMonarch_EN-US1506878789_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pollinator Week](https://cn.bing.com/th?id=OHR.PollinatorMonarch_EN-US1506878789_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PollinatorMonarch_EN-US1506878789_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PollinatorMonarch_EN-US1506878789_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeruAmazon_EN-US1428483038_1080x1920.jpg) |--:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PetraTreasury_EN-US1981994011_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PetraTreasury_EN-US1981994011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
