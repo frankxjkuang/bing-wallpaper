@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230702
+
+> Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today is Halfway Day, which means we are halfway through 2023! Halfway Day begins at noon on July 2 during a regular 365-day year, and at midnight on July 2 during a leap year—so this year, we're celebrating at lunchtime.
+> 
+> Dutch engineers don’t do things by halves. Pictured here is the Veluwemeer Aqueduct in the Netherlands. The project, completed in 2002, used an unusual engineering approach. Rather than a drawbridge or ferry to get cars over Lake Veluwemeer, engineers instead built this 'water bridge' to carry boats across the road. The N302 is a busy highway connecting the mainland to the province of Flevoland, and thanks to this design, both road and waterborne traffic can keep flowing freely. The aqueduct also has pedestrian crossings on both sides, so everyone benefits. No half measures were taken in designing an eye-catching transport solution that works for everyone.
+> 
+> 
+
+</details>
+
+| ![It's Halfway Day!](https://cn.bing.com/th?id=OHR.HalfwayBoats_EN-US9913306071_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![It's Halfway Day!](https://cn.bing.com/th?id=OHR.HalfwayBoats_EN-US9913306071_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HalfwayBoats_EN-US9913306071_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HalfwayBoats_EN-US9913306071_1080x1920.jpg) |
+
 ### 20230701
 
 > Tour de France cyclists crossing the Pont du Gard, France (© Gonzalo Fuentes/Reuters)
@@ -112,26 +131,7 @@
 
 | ![Château de Villandry, France](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Château de Villandry, France](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg) |
-
-### 20230625
-
-> Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to the ancient temple of Al-Khazneh in the desert city of Petra, Jordan. Carved out of a single sandstone rock about 2,000 years ago by the Nabataean people, it is believed to have been a mausoleum for King Aretas IV. Standing 141 feet tall, its massive doorway is framed with towering columns and intricate carvings. It is the most recognizable structure of this 'rose city' of temples and tombs carved from pink sandstone.
-> 
-> The Nabataeans, the original inhabitants of Petra, were skilled architects who built an impressive network of cisterns and water channels here. Once a thriving center, Petra is thought to have been largely abandoned around the 8th century and was 'lost' to the Western world until the 19th century. Only the Bedouin people, who lived in the surrounding desert, knew of it, and it is they who are thought to have named it Al-Khazneh, believing it contained treasures.
-> 
-> 
-
-</details>
-
-| ![Al-Khazneh in Petra, Jordan](https://cn.bing.com/th?id=OHR.PetraTreasury_EN-US1981994011_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Al-Khazneh in Petra, Jordan](https://cn.bing.com/th?id=OHR.PetraTreasury_EN-US1981994011_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PetraTreasury_EN-US1981994011_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PetraTreasury_EN-US1981994011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg) |sury_EN-US1981994011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
