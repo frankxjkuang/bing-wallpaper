@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230704
+
+> Empire State Building on the Fourth of July, New York City (© Tetra Images/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Break out the BBQ and unfurl your flags, Independence Day is here! Founding Father John Adams wrote to his wife, Abigail, that he believed the holiday would be celebrated with parades, sports, shows, and illuminations. After 247 years, Americans are keeping those traditions alive, though not on the date that Adams anticipated. The Second Continental Congress voted to approve the independence of the United States of America on July 2, 1776, but formally adopted the Declaration of Independence on July 4. That date, enshrined on the Declaration document, became the one we observe today. If you're looking for a grand way to celebrate, journey to New York City for views of their annual fireworks show and the Empire State Building lit up to match in red, white, and blue.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Happy Independence Day!](https://cn.bing.com/th?id=OHR.EmpireFourth_EN-US1852348146_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Independence Day!](https://cn.bing.com/th?id=OHR.EmpireFourth_EN-US1852348146_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EmpireFourth_EN-US1852348146_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EmpireFourth_EN-US1852348146_1080x1920.jpg) |
+
 ### 20230703
 
 > A coyote in Banff, Alberta, Canada (© Harry Collins/Getty Images)
@@ -113,25 +132,6 @@
 | ![Pride Month](https://cn.bing.com/th?id=OHR.PrideIceland_EN-US2263138010_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride Month](https://cn.bing.com/th?id=OHR.PrideIceland_EN-US2263138010_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrideIceland_EN-US2263138010_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrideIceland_EN-US2263138010_1080x1920.jpg) |
-
-### 20230627
-
-> Sedona, Arizona (© Jonathan Ross/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Stunning sandstone cliffs rise from the desert floor amid spectacular scenery here in Sedona, Arizona, also known as Red Rock Country. Adventure enthusiasts come to enjoy the beautiful trails that dot the region, which is also steeped in Native American history. The earliest settlers are believed to have been the Ancestral Puebloans, who inhabited the area around 1,400 years ago. Without any written history, most of the information about these ancient people comes from the archaeological ruins that remain, including cliff dwellings built under overhangs in the area's red sandstone rocks. Other Native American groups came to the area such as the Hakataya, the Hohokam, the Sinagua, and the modern-day tribes that live in Arizona today, the Tonto Apache and the Yavapai.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Sedona, Arizona](https://cn.bing.com/th?id=OHR.SedonaSunset_EN-US2192383635_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sedona, Arizona](https://cn.bing.com/th?id=OHR.SedonaSunset_EN-US2192383635_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SedonaSunset_EN-US2192383635_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SedonaSunset_EN-US2192383635_1080x1920.jpg) |US2096198100_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg) |sury_EN-US1981994011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
