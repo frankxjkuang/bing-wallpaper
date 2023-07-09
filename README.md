@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230707
+
+> Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Happy World Chocolate Day! Hidden inside these colorful pods are cocoa seeds, or beans, which will be fermented, roasted, and ground on their way to being turned into chocolate, a sweet treat with a worldwide fanbase.
+> 
+> Chocolate has a fascinating history. Its origins can be traced back to the Indigenous Olmec people of Mesoamerica, who dried and fermented the seeds of the cacao tree to create an unsweetened alcoholic beverage. The solid chocolate bars we love today came much later, in the 19th century, when J.S. Fry and Sons put them into production. The company created its first solid bar in 1847, closely followed in 1849 by rival firm Cadbury. Things snowballed from there and today, we are spoiled for choice. So, whether you prefer the creamy sweetness of milk chocolate, or the bitterness of super dark chocolate, today is the perfect time to indulge yourself in this delicious confection.
+> 
+> 
+
+</details>
+
+| ![World Chocolate Day](https://cn.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Chocolate Day](https://cn.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_1080x1920.jpg) |
+
 ### 20230706
 
 > Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![The Tour de France begins](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Tour de France begins](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_1080x1920.jpg) |
-
-### 20230630
-
-> Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska (© Carlos Carreno/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In the pristine landscapes of Lake Clark National Park and Preserve, Alaska, brown bears reign supreme. These magnificent creatures, also known as grizzly bears, are an iconic symbol of the untamed wilderness. Impressive in size, adult males can exceed 1,000 pounds and reach a standing height of 10 feet. Their thick, shaggy fur—varying in shades from blond to dark brown—provides insulation against the harsh Alaskan winter.
-> 
-> Brown bears are opportunistic omnivores, and their diet comprises berries, fish, small mammals, and carrion. They show off their amazing fishing skills in the park's rivers and lakes, particularly during the annual salmon runs. Lake Clark National Park and Preserve offers these magnificent creatures a sanctuary to roam, thrive, and prepare for each year's hibernation.
-> 
-> 
-
-</details>
-
-| ![Brown bears in Lake Clark National Park and Preserve, Alaska](https://cn.bing.com/th?id=OHR.ClamBears_EN-US1283973201_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Brown bears in Lake Clark National Park and Preserve, Alaska](https://cn.bing.com/th?id=OHR.ClamBears_EN-US1283973201_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ClamBears_EN-US1283973201_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ClamBears_EN-US1283973201_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_1080x1920.jpg) |283973201_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_1080x1920.jpg) |g.com/th?id=OHR.VillandryGarden_EN-US2096198100_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg) |sury_EN-US1981994011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
