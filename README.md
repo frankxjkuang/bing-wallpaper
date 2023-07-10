@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230708
+
+> Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The Mildred B. Cooper Memorial Chapel in Bella Vista, Arkansas, is one of the most charming buildings in the country. Constructed in 1988 and named for a beloved community member whose husband commissioned it, this chapel was designed by E. Fay Jones, an architect known for his wooden creations. Its unique design seamlessly blends modernist principles with nature's splendor, resulting in a harmonious space which blends with its natural setting. Surrounded by lush trees, with sunlight filtering in through the huge glass windows, the chapel serves as a perfect sanctuary for contemplation and prayer. It also stands as a powerful testament to the ability of architecture to inspire and uplift the human spirit.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Mildred B. Cooper Memorial Chapel in Arkansas](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mildred B. Cooper Memorial Chapel in Arkansas](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_1080x1920.jpg) |
+
 ### 20230707
 
 > Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![It's Halfway Day!](https://cn.bing.com/th?id=OHR.HalfwayBoats_EN-US9913306071_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![It's Halfway Day!](https://cn.bing.com/th?id=OHR.HalfwayBoats_EN-US9913306071_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HalfwayBoats_EN-US9913306071_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HalfwayBoats_EN-US9913306071_1080x1920.jpg) |
-
-### 20230701
-
-> Tour de France cyclists crossing the Pont du Gard, France (© Gonzalo Fuentes/Reuters)
-
-<details>
-<summary>Description</summary>
-
-> The first stage of the Tour de France, known as the Grand Départ, begins today, as the 110th edition of the world's most famous cycling race gets underway. The grueling event, first held in 1903, sees teams race more than 2,100 miles through the Pyrenees and the Alps to finish on the Champs-Élysées in Paris. The competition is divided into 21 day-long stages and while some parts stay the same, others vary from year to year. For example, our image features the Pont du Gard—an ancient Roman aqueduct bridge that was built during the first century AD—which only appeared in the 2019 race. The entire event takes place over a 23-day period, including rest days, as teams of eight cyclists compete for a cash prize and the coveted yellow jersey. For these riders, this competition is the apex of years of training and dedication. Bonne chance!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![The Tour de France begins](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Tour de France begins](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_1080x1920.jpg) |283973201_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HalfwayBoats_EN-US9913306071_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HalfwayBoats_EN-US9913306071_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_1080x1920.jpg) |283973201_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_1080x1920.jpg) |g.com/th?id=OHR.VillandryGarden_EN-US2096198100_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg) |sury_EN-US1981994011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
