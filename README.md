@@ -1,13 +1,13 @@
 ## bing wallpaper
 
-### 20230709
+### 20230711
 
-> Moselle River loop, Kröv, Germany (© Jorg Greuel/Getty Images)
+> Hong Kong SAR (© leungchopan/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> The Moselle River, a tributary of the powerful Rhine, meanders through the landscapes of France, Luxembourg, and Germany. Along the way, it carves out valleys of breathtaking natural beauty, dotted with towns and historic landmarks. Lush, sun-drenched vineyards cling to the steep slopes overlooking the river, producing some of the finest wines in the world, including riesling, pinot blanc, and pinot gris, to name a few. The river's gentle flow and sparkling waters invite visitors to embark on leisurely cruises or peaceful walks along its shores. The Moselle creates a haven for nature lovers, wine enthusiasts, and history buffs alike.
+> 三十六年前的今天，世界迎来了第 50 亿人口。 现在地球人口已经达到 80 亿，而且还在不断增加，这个问题继续存在：我们会用完空间、食物和其他必要的资源吗？ 在今天，我们可以反思地球能够维持多少生命，以及我们个人和集体的生活如何影响我们的地方、国家和全球环境。
 > 
 > 
 > 
@@ -15,18 +15,56 @@
 
 </details>
 
-| ![Moselle River loop near Kröv, Germany](https://cn.bing.com/th?id=OHR.MoselleRiver_EN-US2499319157_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Moselle River loop near Kröv, Germany](https://cn.bing.com/th?id=OHR.MoselleRiver_EN-US2499319157_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![香港特别行政区](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![香港特别行政区](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoselleRiver_EN-US2499319157_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoselleRiver_EN-US2499319157_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1080x1920.jpg) |
+
+### 20230710
+
+> 萨默塞特郡的薰衣草田，英国 (© Doug Chinnery/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 英国西南部风景如画的萨默塞特郡以其迷人的薰衣草田而闻名。这些薰衣草田动人的色彩和迷人的花香令人神魂颠倒。2000年前，罗马人将薰衣草带到英国。薰衣草除了好看，对于罗马人来说还有很多实用用途，包括烹饪、驱虫和抗菌。自古以来，很多香水都会采用薰衣草，相传伊丽莎白一世女王就曾用过薰衣草香水。在今天的英国，薰衣草田依旧常见，让人见之忘俗。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![萨默塞特郡的薰衣草田，英国](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![萨默塞特郡的薰衣草田，英国](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1080x1920.jpg) |
+
+### 20230709
+
+> 克罗夫附近的摩泽尔河，德国 (© Jorg Greuel/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 摩泽尔河是奔腾的莱茵河的一条支流，贯穿欧洲迷人的土地，流经法国、卢森堡和德国。河流雕刻出令人惊叹的山谷，两岸点缀着城镇和历史建筑。郁郁葱葱、沐浴阳光的葡萄藤爬满河流两岸的山坡，这里出产一些世界上最优质的葡萄酒，包括雷司令、白皮诺、灰皮诺。缓缓流动、波光粼粼的河水造就了宁静的氛围，吸引游客来此游船休闲或在岸边漫步。摩泽尔河是自然爱好者、葡萄酒爱好者和历史爱好者共同的圣地。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![克罗夫附近的摩泽尔河，德国](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![克罗夫附近的摩泽尔河，德国](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1080x1920.jpg) |
 
 ### 20230708
 
-> Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)
+> 米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州 (© Eddie Brady/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> The Mildred B. Cooper Memorial Chapel in Bella Vista, Arkansas, is one of the most charming buildings in the country. Constructed in 1988 and named for a beloved community member whose husband commissioned it, this chapel was designed by E. Fay Jones, an architect known for his wooden creations. Its unique design seamlessly blends modernist principles with nature's splendor, resulting in a harmonious space which blends with its natural setting. Surrounded by lush trees, with sunlight filtering in through the huge glass windows, the chapel serves as a perfect sanctuary for contemplation and prayer. It also stands as a powerful testament to the ability of architecture to inspire and uplift the human spirit.
+> 位于阿肯色州贝拉维斯塔的米尔德里德-B-库珀纪念教堂是该国最迷人的建筑之一。这座教堂建于1988年，以一位受人爱戴的社区成员的名字命名，由E.Fay Jones设计，其特点是独特的设计理念，将现代主义原则与大自然的壮丽完美融合。这一设计理念的结果是为人们缔造了一个和谐的空间，其木制建筑与自然环境融为一体。小教堂被郁郁葱葱的树木所包围，阳光透过彩色玻璃照射进来，成为沉思和祈祷的完美圣地。它也是建筑激发和提升人类精神能力的一个有力证明。
 > 
 > 
 > 
@@ -34,37 +72,37 @@
 
 </details>
 
-| ![Mildred B. Cooper Memorial Chapel in Arkansas](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mildred B. Cooper Memorial Chapel in Arkansas](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![阿肯色州的米尔德里德-B-库珀纪念教堂](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![阿肯色州的米尔德里德-B-库珀纪念教堂](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_1080x1920.jpg) |
 
 ### 20230707
 
-> Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)
+> 安班加的可可豆荚，马达加斯加 (© pierivb/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Happy World Chocolate Day! Hidden inside these colorful pods are cocoa seeds, or beans, which will be fermented, roasted, and ground on their way to being turned into chocolate, a sweet treat with a worldwide fanbase.
+> 很少有人能拒绝巧克力的浓郁美味。每年的7月7日是世界巧克力日，就让我们在今天毫无愧疚地享受巧克力的美味吧。
 > 
-> Chocolate has a fascinating history. Its origins can be traced back to the Indigenous Olmec people of Mesoamerica, who dried and fermented the seeds of the cacao tree to create an unsweetened alcoholic beverage. The solid chocolate bars we love today came much later, in the 19th century, when J.S. Fry and Sons put them into production. The company created its first solid bar in 1847, closely followed in 1849 by rival firm Cadbury. Things snowballed from there and today, we are spoiled for choice. So, whether you prefer the creamy sweetness of milk chocolate, or the bitterness of super dark chocolate, today is the perfect time to indulge yourself in this delicious confection.
+> 巧克力有着神奇的历史，可以追溯到中美洲原住民奥尔梅克人，他们将可可豆荚晒干、发酵来制作一种没有甜味的酒精饮料。直到19世纪，我们钟爱的固体巧克力才出现。最早生产固体巧克力的公司是J.S. Fry & Sons。很快，吉百利和玛氏等等知名品牌也紧随其后。你最喜欢哪种巧克力呢？无论是丝滑甜蜜的牛奶巧克力还是苦涩的高浓度黑巧，今天就毫无心理负担地来一块吧。
 > 
 > 
 
 </details>
 
-| ![World Chocolate Day](https://cn.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Chocolate Day](https://cn.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![世界巧克力日](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界巧克力日](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_1080x1920.jpg) |
 
 ### 20230706
 
-> Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)
+> 南跳岩企鹅，福克兰群岛 (© Tony Beck/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> This photograph captures a heartwarming moment between two southern rockhopper penguins, the perfect image for International Kissing Day. Why do we kiss? Well, dozens of cultures don't kiss on the lips at all. For those that do, theories range widely, from the chemical reactions in the brain, to ancient ancestral parents chewing food for their children, to simply smelling each other. Of course, no scientific explanation can capture the magic of a shared kiss. Perhaps that's why artists including Prince, Faith Hill, and Hall & Oates have all had chart-toppers about lip-locking; they have found a way to put an indescribable feeling into words.
+> 这张照片完美地捕捉到了两只南跳岩企鹅温柔地亲吻对方的温馨瞬间。今天是国际接吻日，这张照片实在是非常应景。我们为什么要亲吻？对此有各种各样的解释：接吻会让我们的大脑产生化学反应；远古时父母会嚼碎食物喂给孩子吃，后来演变为接吻；接吻是为了嗅闻彼此的味道……当然，没有任何科学的解释能阐释出接吻的魔力。我们创作了无数关于接吻的歌曲，这或许也是我们尝试描述接吻的魔力的一种方式吧。
 > 
 > 
 > 
@@ -72,18 +110,18 @@
 
 </details>
 
-| ![International Kissing Day](https://cn.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Kissing Day](https://cn.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![国际接吻日](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际接吻日](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_1080x1920.jpg) |
 
 ### 20230705
 
-> Porto Timoni beach, Corfu, Greece (© nantonov/Getty Images)
+> 蒂莫尼港海滩，科孚岛，希腊 (© nantonov/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Porto Timoni beach, in Corfu, Greece, is a hidden gem reached either by boat, or by hiking from the historic village of Afionas. Those who make the journey are rewarded with two stunning coves, offering a unique double-beach experience. With clear turquoise waters and dramatic cliffs, Porto Timoni presents a picturesque coastal panorama. Surrounding the beach, lush olive groves and cypress trees add to its charm. Greek islands like Corfu may seem timeless and ancient but they are relatively new in the history of Earth. A leading theory is that around 5.3 million years ago, a great flood poured in between Africa and Europe from the Atlantic Ocean, an event called the Zanclean flood. Lakes became oceans and what were previously mountaintops became islands.
+> 蒂莫尼港海滩位于希腊科孚岛的西北部海岸，是一个具有自然魅力的迷人目的地。从历史悠久的阿菲奥纳斯村出发，通过风景优美的徒步旅行路线或乘船前往，这个隐藏着的如宝石般的海岛拥有两个令人惊叹的海湾，形成了独特的双重海滩体验。蒂莫尼港拥有晶莹剔透的绿松石水域和引人注目的悬崖，呈现出如画的海岸全景。在海滩周围，郁郁葱葱的橄榄树和柏树为这里增添了迷人的氛围。尽管像科孚岛这样的希腊岛屿似乎是永恒的、古老的，但它们在地球的历史上相对较新。一个主要的理论是，大约在530万年前，一场大洪水从大西洋涌入非洲和欧洲之间，这一事件被称为赞克尔期洪水。湖泊变成了海洋，以前的山顶变成了岛屿。
 > 
 > 
 > 
@@ -91,37 +129,9 @@
 
 </details>
 
-| ![Porto Timoni beach, Greece](https://cn.bing.com/th?id=OHR.CorfuBeach_EN-US1955770867_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Porto Timoni beach, Greece](https://cn.bing.com/th?id=OHR.CorfuBeach_EN-US1955770867_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![蒂莫尼港海滩，希腊](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![蒂莫尼港海滩，希腊](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CorfuBeach_EN-US1955770867_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CorfuBeach_EN-US1955770867_1080x1920.jpg) |
-
-### 20230704
-
-> Empire State Building on the Fourth of July, New York City (© Tetra Images/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Break out the BBQ and unfurl your flags, Independence Day is here! Founding Father John Adams wrote to his wife, Abigail, that he believed the holiday would be celebrated with parades, sports, shows, and illuminations. After 247 years, Americans are keeping those traditions alive, though not on the date that Adams anticipated. The Second Continental Congress voted to approve the independence of the United States of America on July 2, 1776, but formally adopted the Declaration of Independence on July 4. That date, enshrined on the Declaration document, became the one we observe today. If you're looking for a grand way to celebrate, journey to New York City for views of their annual fireworks show and the Empire State Building lit up to match in red, white, and blue.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Happy Independence Day!](https://cn.bing.com/th?id=OHR.EmpireFourth_EN-US1852348146_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Independence Day!](https://cn.bing.com/th?id=OHR.EmpireFourth_EN-US1852348146_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EmpireFourth_EN-US1852348146_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EmpireFourth_EN-US1852348146_1080x1920.jpg) |
-
-### 20230703
-
-> A coyote in Banff, Alberta, Canada (© Harry Collins/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Is it hot enough for you? Chances are it is, as we get into what are typically the hottest months of the year in the Northern Hemisphere, thanks to the tilt of the Earth angling more towards the sun in summer. You may have heard this sweltering period called the dog days of summer, though that name doesn't come from hot dogs or panting pooches. Rather it comes from Sirius, the Dog Star, which becomes visible above the eastern horizon at daybreak during the summer. Sirius is the brightest star in the night sky, and is part of Canis Major, not to be confused with the Canis latrans, or coyote, in today's image, who is just trying to beat the heat.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_1080x1920.jpg) |f the Earth angling more towards the sun in summer. You may have heard this sweltering period called the dog days of summer, though that name doesn't come from hot dogs or panting pooches. Rather it comes from Sirius, the Dog Star, which becomes visible above the eastern horizon at daybreak during the summer. Sirius is the brightest star in the night sky, and is part of Canis Major, not to be confused with the Canis latrans, or coyote, in today's image, who is just trying to beat the heat.
 > 
 > 
 > 
