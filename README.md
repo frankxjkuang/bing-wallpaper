@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230712
+
+> Sand bar in Nakupenda Beach Nature Reserve, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Off the west coast of Zanzibar, the Nakupenda Beach Nature Reserve sits on a small, sandy island. Surrounded by the Indian Ocean, this sand bar is a popular destination with tourists looking to soak up the sun's rays on its white sands. Plentiful marine life here creates a vibrant underwater world that is perfect for snorkeling. The islands of Tanzania are home to an array of wildlife like the Pemba scops owl and the African fish eagle. To the north of Nakupenda, there is a giant tortoise sanctuary on Changuu Island, while their sea turtle cousins swim in the surrounding waters.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Nakupenda Beach Nature Reserve, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nakupenda Beach Nature Reserve, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |
+
 ### 20230711
 
 > Hong Kong SAR (© leungchopan/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Kissing Day](https://cn.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Kissing Day](https://cn.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_1080x1920.jpg) |
-
-### 20230705
-
-> Porto Timoni beach, Corfu, Greece (© nantonov/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Porto Timoni beach, in Corfu, Greece, is a hidden gem reached either by boat, or by hiking from the historic village of Afionas. Those who make the journey are rewarded with two stunning coves, offering a unique double-beach experience. With clear turquoise waters and dramatic cliffs, Porto Timoni presents a picturesque coastal panorama. Surrounding the beach, lush olive groves and cypress trees add to its charm. Greek islands like Corfu may seem timeless and ancient but they are relatively new in the history of Earth. A leading theory is that around 5.3 million years ago, a great flood poured in between Africa and Europe from the Atlantic Ocean, an event called the Zanclean flood. Lakes became oceans and what were previously mountaintops became islands.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Porto Timoni beach, Greece](https://cn.bing.com/th?id=OHR.CorfuBeach_EN-US1955770867_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Porto Timoni beach, Greece](https://cn.bing.com/th?id=OHR.CorfuBeach_EN-US1955770867_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CorfuBeach_EN-US1955770867_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CorfuBeach_EN-US1955770867_1080x1920.jpg) ||
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.CorfuBeach_EN-US1955770867_1080x1920.jpg) ||
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.HalfwayBoats_EN-US9913306071_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HalfwayBoats_EN-US9913306071_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.PelotonPont_EN-US1487303209_1080x1920.jpg) |283973201_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_1080x1920.jpg) |g.com/th?id=OHR.VillandryGarden_EN-US2096198100_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg) |sury_EN-US1981994011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
