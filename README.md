@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230714
+
+> Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, on Shark Awareness Day, let's dive into the ocean's depths to meet our finned friends. It's believed that sharks have been cruising the oceans for at least 420 million years. Today’s homepage shows blacktip reef sharks, hunting in a group in the waters around the Maldives, one of more than 500 species of shark, each uniquely adapted to its habitat. From the graceful hammerhead with its panoramic vision to the fastest species, the sleek mako, shark species are diverse, but a third face extinction. Among threats are unregulated fishing and abandoned nets as well as demand for shark fins. They have a fearsome reputation but are the victims of myths and misconceptions that paint them as mindless killing machines. Today, let's celebrate these magnificent creatures, a key part of healthy marine ecosystems, by advocating for their conservation.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |
+
 ### 20230713
 
 > Zhangye Danxia National Geopark, Gansu province, China (© TONNAJA/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Mildred B. Cooper Memorial Chapel in Arkansas](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mildred B. Cooper Memorial Chapel in Arkansas](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_1080x1920.jpg) |
-
-### 20230707
-
-> Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Happy World Chocolate Day! Hidden inside these colorful pods are cocoa seeds, or beans, which will be fermented, roasted, and ground on their way to being turned into chocolate, a sweet treat with a worldwide fanbase.
-> 
-> Chocolate has a fascinating history. Its origins can be traced back to the Indigenous Olmec people of Mesoamerica, who dried and fermented the seeds of the cacao tree to create an unsweetened alcoholic beverage. The solid chocolate bars we love today came much later, in the 19th century, when J.S. Fry and Sons put them into production. The company created its first solid bar in 1847, closely followed in 1849 by rival firm Cadbury. Things snowballed from there and today, we are spoiled for choice. So, whether you prefer the creamy sweetness of milk chocolate, or the bitterness of super dark chocolate, today is the perfect time to indulge yourself in this delicious confection.
-> 
-> 
-
-</details>
-
-| ![World Chocolate Day](https://cn.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Chocolate Day](https://cn.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CocoaPods_EN-US2252740906_1080x1920.jpg) |&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_1080x1920.jpg) |0906_1080x1920.jpg) |&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_1080x1920.jpg) |g.com/th?id=OHR.VillandryGarden_EN-US2096198100_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg) |sury_EN-US1981994011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
