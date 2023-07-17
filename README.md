@@ -1,13 +1,13 @@
 ## bing wallpaper
 
-### 20230714
+### 20230716
 
-> Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)
+> 熊洞溪，卡茨基尔山脉，纽约，美国 (© GummyBone/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Today, on Shark Awareness Day, let's dive into the ocean's depths to meet our finned friends. It's believed that sharks have been cruising the oceans for at least 420 million years. Today’s homepage shows blacktip reef sharks, hunting in a group in the waters around the Maldives, one of more than 500 species of shark, each uniquely adapted to its habitat. From the graceful hammerhead with its panoramic vision to the fastest species, the sleek mako, shark species are diverse, but a third face extinction. Among threats are unregulated fishing and abandoned nets as well as demand for shark fins. They have a fearsome reputation but are the victims of myths and misconceptions that paint them as mindless killing machines. Today, let's celebrate these magnificent creatures, a key part of healthy marine ecosystems, by advocating for their conservation.
+> 卡茨基尔山脉坐落在纽约州北部，面积超过4000平方英里，以令人惊叹的美景闻名。连绵不绝的山峰和古老的森林勾勒出迷人的背景，山谷孕育着蜿蜒流动的小溪，就像我们今天看到的熊洞溪。该地区拥有众多迂回曲折的徒步旅行路线，穿越茂密的林地，通向令人敬畏的壮丽景色。卡茨基尔在文化史上也占有重要地位，多年来一直吸引着世界各地的艺术家和梦想家。从标志性的度假胜地到迷人的小村庄，这里独特的魅力一直吸引着源源不断的游客到访。
 > 
 > 
 > 
@@ -15,37 +15,75 @@
 
 </details>
 
-| ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![熊洞溪，卡茨基尔山脉，纽约](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![熊洞溪，卡茨基尔山脉，纽约](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1080x1920.jpg) |
+
+### 20230715
+
+> 卡斯泰尔梅扎诺，意大利 (© Rudy Balasko/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> 坐落在多洛米蒂山脉的崎岖峭壁上，意大利古老的村庄卡斯泰尔梅扎诺散发着迷人的魅力。这座村庄已被列为世界遗产，它历经过封建领主的统治和大大小小的战争，狭窄的小巷和古老的建筑里都有历史故事。据说，公元11世纪左右诺曼人定居于此，并建造了一座城堡，该村庄由此得名。此外，卡斯泰尔梅扎诺还有各种冒险活动，你可以来一次“天使飞行”，在山脉之间感受高空滑索。不过，感受这个小村庄的惬意的最佳方式，可能只需一杯咖啡：喝着咖啡看着太阳从雄伟的山峰后冉冉升起，与街灯一同照亮傍山而建的一排排房屋。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![卡斯泰尔梅扎诺，意大利](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![卡斯泰尔梅扎诺，意大利](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1080x1920.jpg) |
+
+### 20230714
+
+> 乌翅真鲨，马尔代夫 (© Filippo Bacci/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 今天是鲨鱼保护日。据化石记录显示，鲨鱼已经在海洋中繁衍生息了至少4.2亿年。世界上有500多种鲨鱼，其中三分之一面临灭绝风险。每一种鲨鱼都有一套适应其所在环境的独特方法：锤头鲨拥有360度视野，光滑的灰鲭鲨是所有鲨鱼中游速最快的，黑尖礁鲨可以伪装成珊瑚礁……这些生物展示了惊人的多样性。在大多数人的印象中，鲨鱼性情凶猛和攻击力强，是无情的“海洋杀手”。但其实也有性情温和的鲨鱼，比如护士鲨。今天，让我们行动起来，共同倡导保护这些被人们误解的海洋生物！
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![鲨鱼保护日](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![鲨鱼保护日](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1080x1920.jpg) |
 
 ### 20230713
 
-> Zhangye Danxia National Geopark, Gansu province, China (© TONNAJA/Getty Images)
+> 张掖国家地质公园，甘肃，中国 (© TONNAJA/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> International Rock Day, on July 13, celebrates these hardy heroes, which have played a big part in human history since at least the Stone Age. They served as humanity's first tools and as nature's journals, protecting ancient fossils and documenting changes caused by geological processes.
+> 7月13日是国际岩石日。为什么要给岩石设立一个节日呢？因为自石器时代以来，岩石就在人类历史中扮演着重要角色。它们是人类最早的工具，也是自然的记录，包裹着古代生物的化石，也留下了地质变化的印记。中国张掖丹霞国家地质公园的彩虹山就是一个很好的例子。这里的沉积岩经过数百万年的风化和侵蚀，最终形成了这片色彩斑斓的风景，红、橙、黄、紫各色疏密相生，组合有序。变质岩、沉积岩、火成岩等等各种各样的岩石帮助形成了我们今天所生活的世界。
 > 
-> Our homepage image shows Zhangye National Geopark's Rainbow Mountains in China, an incredible landscape created over millions of years. Those colorful layers are formed of sedimentary sandstone rock. Iron oxide gave the rock its predominately rusty hue, while other oxides tinted the various layers brown, yellow, and green. Sandstone and minerals that were once layered on top of each other were lifted and distorted by tectonic movement, revealing those colorful stripes. And that is not the end of this geological tale. This unique landscape continues to change, as wind and water erosion sculpts new pillars and ravines. No matter what your favorite category of rock is—metamorphic, sedimentary, or igneous—rocks of every kind helped build the world we live in today.
+> 
 > 
 > 
 
 </details>
 
-| ![International Rock Day](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_EN-US3229882052_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Rock Day](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_EN-US3229882052_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![国际岩石日](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际岩石日](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_EN-US3229882052_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_EN-US3229882052_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_1080x1920.jpg) |
 
 ### 20230712
 
-> Sand bar in Nakupenda Beach Nature Reserve, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)
+> “我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> Off the west coast of Zanzibar, the Nakupenda Beach Nature Reserve sits on a small, sandy island. Surrounded by the Indian Ocean, this sand bar is a popular destination with tourists looking to soak up the sun's rays on its white sands. Plentiful marine life here creates a vibrant underwater world that is perfect for snorkeling. The islands of Tanzania are home to an array of wildlife like the Pemba scops owl and the African fish eagle. To the north of Nakupenda, there is a giant tortoise sanctuary on Changuu Island, while their sea turtle cousins swim in the surrounding waters.
+> Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛上。 这个沙洲被印度洋碧绿的海水所环绕，是游客沐浴阳光和享受金色沙滩的热门目的地。 在海浪之下，海洋生物创造了一个充满活力的海底世界，非常适合浮潜。 坦桑尼亚的岛屿是奔巴角鸮和非洲鱼雕等一系列野生动物的家园。 在 Nakupenda 以北，您可以在 Changuu 岛上遇到一个乌龟保护区，而他们的海龟表亲则在周围水域游泳。
 > 
 > 
 > 
@@ -53,9 +91,9 @@
 
 </details>
 
-| ![Nakupenda Beach Nature Reserve, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nakupenda Beach Nature Reserve, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![“我爱你”沙滩，桑给巴尔，坦桑尼亚](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![“我爱你”沙滩，桑给巴尔，坦桑尼亚](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_1080x1920.jpg) |
 
 ### 20230711
 
@@ -64,26 +102,26 @@
 <details>
 <summary>Description</summary>
 
-> On July 11, 1987, the world is thought to have welcomed its 5-billionth person. Thirty-six years later, our population has reached 8 billion and is still rising. World Population Day, established by the UN, is a day to reflect on how much life Earth can sustain, and how our lives impact our environment.
+> 三十六年前的今天，世界迎来了第 50 亿人口。 现在地球人口已经达到 80 亿，而且还在不断增加，这个问题继续存在：我们会用完空间、食物和其他必要的资源吗？ 在今天，我们可以反思地球能够维持多少生命，以及我们个人和集体的生活如何影响我们的地方、国家和全球环境。
 > 
-> Pictured here is Hong Kong, a city recognized as one of the world's most densely populated areas, with approximately 17,582 people per square mile. Though Hong Kong has a low birth rate, the density remains high as people live longer thanks to improvements in healthcare, a contributing factor to population increases worldwide. While this colorful night scene might appear glamorous, it is also an example of light pollution, which can disrupt ecosystems and affect our health—one of humanity's many impacts on the world around us.
+> 
 > 
 > 
 
 </details>
 
-| ![World Population Day](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![香港特别行政区](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![香港特别行政区](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1080x1920.jpg) |
 
 ### 20230710
 
-> Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)
+> 萨默塞特郡的薰衣草田，英国 (© Doug Chinnery/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Delighting the senses with its vibrant hues and fragrant blooms, lavender is thought to have arrived in England with the Romans, around 2,000 years ago. While it’s nice to look at, the Romans likely brought it with them for its many practical uses, including cooking, repelling insects, and as an antiseptic. Many perfumes, modern and historical, have featured lavender, and Queen Elizabeth I is purported to have used lavender scent. You’ll find lavender fields scattered across the country. This one is a typical example, a quintessential summer sight here in the picturesque county of Somerset, in southwest England.
+> 英国西南部风景如画的萨默塞特郡以其迷人的薰衣草田而闻名。这些薰衣草田动人的色彩和迷人的花香令人神魂颠倒。2000年前，罗马人将薰衣草带到英国。薰衣草除了好看，对于罗马人来说还有很多实用用途，包括烹饪、驱虫和抗菌。自古以来，很多香水都会采用薰衣草，相传伊丽莎白一世女王就曾用过薰衣草香水。在今天的英国，薰衣草田依旧常见，让人见之忘俗。
 > 
 > 
 > 
@@ -91,32 +129,9 @@
 
 </details>
 
-| ![A field of English lavender](https://cn.bing.com/th?id=OHR.SomersetLavender_EN-US0165780359_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A field of English lavender](https://cn.bing.com/th?id=OHR.SomersetLavender_EN-US0165780359_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![萨默塞特郡的薰衣草田，英国](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![萨默塞特郡的薰衣草田，英国](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SomersetLavender_EN-US0165780359_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SomersetLavender_EN-US0165780359_1080x1920.jpg) |
-
-### 20230709
-
-> Moselle River loop, Kröv, Germany (© Jorg Greuel/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The Moselle River, a tributary of the powerful Rhine, meanders through the landscapes of France, Luxembourg, and Germany. Along the way, it carves out valleys of breathtaking natural beauty, dotted with towns and historic landmarks. Lush, sun-drenched vineyards cling to the steep slopes overlooking the river, producing some of the finest wines in the world, including riesling, pinot blanc, and pinot gris, to name a few. The river's gentle flow and sparkling waters invite visitors to embark on leisurely cruises or peaceful walks along its shores. The Moselle creates a haven for nature lovers, wine enthusiasts, and history buffs alike.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Moselle River loop near Kröv, Germany](https://cn.bing.com/th?id=OHR.MoselleRiver_EN-US2499319157_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Moselle River loop near Kröv, Germany](https://cn.bing.com/th?id=OHR.MoselleRiver_EN-US2499319157_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoselleRiver_EN-US2499319157_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoselleRiver_EN-US2499319157_1080x1920.jpg) |
-
-### 20230708
-
-> Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1080x1920.jpg) |as (© Eddie Brady/Getty Images)
 
 <details>
 <summary>Description</summary>
