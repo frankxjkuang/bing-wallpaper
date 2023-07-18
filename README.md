@@ -2,12 +2,12 @@
 
 ### 20230716
 
-> 熊洞溪，卡茨基尔山脉，纽约，美国 (© GummyBone/Getty Images)
+> Bear Hole Brook, Catskill Mountains, New York (© GummyBone/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 卡茨基尔山脉坐落在纽约州北部，面积超过4000平方英里，以令人惊叹的美景闻名。连绵不绝的山峰和古老的森林勾勒出迷人的背景，山谷孕育着蜿蜒流动的小溪，就像我们今天看到的熊洞溪。该地区拥有众多迂回曲折的徒步旅行路线，穿越茂密的林地，通向令人敬畏的壮丽景色。卡茨基尔在文化史上也占有重要地位，多年来一直吸引着世界各地的艺术家和梦想家。从标志性的度假胜地到迷人的小村庄，这里独特的魅力一直吸引着源源不断的游客到访。
+> Stretched over 4,000 square miles in upstate New York, the Catskill Mountains captivate visitors with their breathtaking beauty. Towering peaks cloaked in forests surround valleys filled with meandering streams like Bear Hole Brook, seen in today's image. The region boasts hiking trails that wind through enchanting woodlands, past waterfalls and lakes while motorists can enjoy scenic drives and spot the region's covered bridges, dating from the 1800s. The Catskills also hold a place in cultural history, attracting artists and dreamers and as the fictional setting for the movie Dirty Dancing—which was actually filmed in Pembroke, Virginia. With other attractions including ski resorts and picturesque small towns and hamlets, visitors continue to flock to the Catskills, a huge wilderness within driving distance of more than 20 million Americans.
 > 
 > 
 > 
@@ -15,18 +15,18 @@
 
 </details>
 
-| ![熊洞溪，卡茨基尔山脉，纽约](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![熊洞溪，卡茨基尔山脉，纽约](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Bear Hole Brook, Catskill Mountains, New York](https://cn.bing.com/th?id=OHR.BearHoleBrook_EN-US0278547262_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bear Hole Brook, Catskill Mountains, New York](https://cn.bing.com/th?id=OHR.BearHoleBrook_EN-US0278547262_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BearHoleBrook_EN-US0278547262_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BearHoleBrook_EN-US0278547262_1080x1920.jpg) |
 
 ### 20230715
 
-> 卡斯泰尔梅扎诺，意大利 (© Rudy Balasko/Shutterstock)
+> Castelmezzano, Italy (© Rudy Balasko/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 坐落在多洛米蒂山脉的崎岖峭壁上，意大利古老的村庄卡斯泰尔梅扎诺散发着迷人的魅力。这座村庄已被列为世界遗产，它历经过封建领主的统治和大大小小的战争，狭窄的小巷和古老的建筑里都有历史故事。据说，公元11世纪左右诺曼人定居于此，并建造了一座城堡，该村庄由此得名。此外，卡斯泰尔梅扎诺还有各种冒险活动，你可以来一次“天使飞行”，在山脉之间感受高空滑索。不过，感受这个小村庄的惬意的最佳方式，可能只需一杯咖啡：喝着咖啡看着太阳从雄伟的山峰后冉冉升起，与街灯一同照亮傍山而建的一排排房屋。
+> Embraced by the rugged peaks of the Lucanian Dolomites, the ancient village of Castelmezzano in southern Italy glows with charm. Its narrow alleys and cobblestone streets pass buildings that cling to the mountainside. This picturesque destination is brimming with history; from its rule by feudal lords to battles long forgotten. It's believed that the Normans settled here around the 11th century AD and constructed a castle, from which the village gets its name. Castelmezzano isn't just a sleepy portrait of the past, it also offers adventure activities for the brave, including a high-altitude zip line between mountains on the Volo dell'Angelo (Flight of the Angel). Yet the finest pleasure the small village offers might just be grabbing a cup of coffee and watching the sun rise behind the majestic mountain peaks, illuminating those huddled houses as the streetlamps go out.
 > 
 > 
 > 
@@ -34,18 +34,18 @@
 
 </details>
 
-| ![卡斯泰尔梅扎诺，意大利](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![卡斯泰尔梅扎诺，意大利](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Castelmezzano, Italy](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castelmezzano, Italy](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |
 
 ### 20230714
 
-> 乌翅真鲨，马尔代夫 (© Filippo Bacci/Getty Images)
+> Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 今天是鲨鱼保护日。据化石记录显示，鲨鱼已经在海洋中繁衍生息了至少4.2亿年。世界上有500多种鲨鱼，其中三分之一面临灭绝风险。每一种鲨鱼都有一套适应其所在环境的独特方法：锤头鲨拥有360度视野，光滑的灰鲭鲨是所有鲨鱼中游速最快的，黑尖礁鲨可以伪装成珊瑚礁……这些生物展示了惊人的多样性。在大多数人的印象中，鲨鱼性情凶猛和攻击力强，是无情的“海洋杀手”。但其实也有性情温和的鲨鱼，比如护士鲨。今天，让我们行动起来，共同倡导保护这些被人们误解的海洋生物！
+> Today, on Shark Awareness Day, let's dive into the ocean's depths to meet our finned friends. It's believed that sharks have been cruising the oceans for at least 420 million years. Today’s homepage shows blacktip reef sharks, hunting in a group in the waters around the Maldives, one of more than 500 species of shark, each uniquely adapted to its habitat. From the graceful hammerhead with its panoramic vision to the fastest species, the sleek mako, shark species are diverse, but a third face extinction. Among threats are unregulated fishing and abandoned nets as well as demand for shark fins. They have a fearsome reputation but are the victims of myths and misconceptions that paint them as mindless killing machines. Today, let's celebrate these magnificent creatures, a key part of healthy marine ecosystems, by advocating for their conservation.
 > 
 > 
 > 
@@ -53,37 +53,37 @@
 
 </details>
 
-| ![鲨鱼保护日](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![鲨鱼保护日](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |
 
 ### 20230713
 
-> 张掖国家地质公园，甘肃，中国 (© TONNAJA/Getty Images)
+> Zhangye Danxia National Geopark, Gansu province, China (© TONNAJA/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 7月13日是国际岩石日。为什么要给岩石设立一个节日呢？因为自石器时代以来，岩石就在人类历史中扮演着重要角色。它们是人类最早的工具，也是自然的记录，包裹着古代生物的化石，也留下了地质变化的印记。中国张掖丹霞国家地质公园的彩虹山就是一个很好的例子。这里的沉积岩经过数百万年的风化和侵蚀，最终形成了这片色彩斑斓的风景，红、橙、黄、紫各色疏密相生，组合有序。变质岩、沉积岩、火成岩等等各种各样的岩石帮助形成了我们今天所生活的世界。
+> International Rock Day, on July 13, celebrates these hardy heroes, which have played a big part in human history since at least the Stone Age. They served as humanity's first tools and as nature's journals, protecting ancient fossils and documenting changes caused by geological processes.
 > 
-> 
+> Our homepage image shows Zhangye National Geopark's Rainbow Mountains in China, an incredible landscape created over millions of years. Those colorful layers are formed of sedimentary sandstone rock. Iron oxide gave the rock its predominately rusty hue, while other oxides tinted the various layers brown, yellow, and green. Sandstone and minerals that were once layered on top of each other were lifted and distorted by tectonic movement, revealing those colorful stripes. And that is not the end of this geological tale. This unique landscape continues to change, as wind and water erosion sculpts new pillars and ravines. No matter what your favorite category of rock is—metamorphic, sedimentary, or igneous—rocks of every kind helped build the world we live in today.
 > 
 > 
 
 </details>
 
-| ![国际岩石日](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际岩石日](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Rock Day](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_EN-US3229882052_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Rock Day](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_EN-US3229882052_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_EN-US3229882052_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_EN-US3229882052_1080x1920.jpg) |
 
 ### 20230712
 
-> “我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy)
+> Sand bar in Nakupenda Beach Nature Reserve, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛上。 这个沙洲被印度洋碧绿的海水所环绕，是游客沐浴阳光和享受金色沙滩的热门目的地。 在海浪之下，海洋生物创造了一个充满活力的海底世界，非常适合浮潜。 坦桑尼亚的岛屿是奔巴角鸮和非洲鱼雕等一系列野生动物的家园。 在 Nakupenda 以北，您可以在 Changuu 岛上遇到一个乌龟保护区，而他们的海龟表亲则在周围水域游泳。
+> Off the west coast of Zanzibar, the Nakupenda Beach Nature Reserve sits on a small, sandy island. Surrounded by the Indian Ocean, this sand bar is a popular destination with tourists looking to soak up the sun's rays on its white sands. Plentiful marine life here creates a vibrant underwater world that is perfect for snorkeling. The islands of Tanzania are home to an array of wildlife like the Pemba scops owl and the African fish eagle. To the north of Nakupenda, there is a giant tortoise sanctuary on Changuu Island, while their sea turtle cousins swim in the surrounding waters.
 > 
 > 
 > 
@@ -91,9 +91,9 @@
 
 </details>
 
-| ![“我爱你”沙滩，桑给巴尔，坦桑尼亚](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![“我爱你”沙滩，桑给巴尔，坦桑尼亚](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Nakupenda Beach Nature Reserve, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nakupenda Beach Nature Reserve, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |
 
 ### 20230711
 
@@ -102,26 +102,26 @@
 <details>
 <summary>Description</summary>
 
-> 三十六年前的今天，世界迎来了第 50 亿人口。 现在地球人口已经达到 80 亿，而且还在不断增加，这个问题继续存在：我们会用完空间、食物和其他必要的资源吗？ 在今天，我们可以反思地球能够维持多少生命，以及我们个人和集体的生活如何影响我们的地方、国家和全球环境。
+> On July 11, 1987, the world is thought to have welcomed its 5-billionth person. Thirty-six years later, our population has reached 8 billion and is still rising. World Population Day, established by the UN, is a day to reflect on how much life Earth can sustain, and how our lives impact our environment.
 > 
-> 
+> Pictured here is Hong Kong, a city recognized as one of the world's most densely populated areas, with approximately 17,582 people per square mile. Though Hong Kong has a low birth rate, the density remains high as people live longer thanks to improvements in healthcare, a contributing factor to population increases worldwide. While this colorful night scene might appear glamorous, it is also an example of light pollution, which can disrupt ecosystems and affect our health—one of humanity's many impacts on the world around us.
 > 
 > 
 
 </details>
 
-| ![香港特别行政区](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![香港特别行政区](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Population Day](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_1080x1920.jpg) |
 
 ### 20230710
 
-> 萨默塞特郡的薰衣草田，英国 (© Doug Chinnery/Getty Images)
+> Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 英国西南部风景如画的萨默塞特郡以其迷人的薰衣草田而闻名。这些薰衣草田动人的色彩和迷人的花香令人神魂颠倒。2000年前，罗马人将薰衣草带到英国。薰衣草除了好看，对于罗马人来说还有很多实用用途，包括烹饪、驱虫和抗菌。自古以来，很多香水都会采用薰衣草，相传伊丽莎白一世女王就曾用过薰衣草香水。在今天的英国，薰衣草田依旧常见，让人见之忘俗。
+> Delighting the senses with its vibrant hues and fragrant blooms, lavender is thought to have arrived in England with the Romans, around 2,000 years ago. While it’s nice to look at, the Romans likely brought it with them for its many practical uses, including cooking, repelling insects, and as an antiseptic. Many perfumes, modern and historical, have featured lavender, and Queen Elizabeth I is purported to have used lavender scent. You’ll find lavender fields scattered across the country. This one is a typical example, a quintessential summer sight here in the picturesque county of Somerset, in southwest England.
 > 
 > 
 > 
@@ -129,26 +129,9 @@
 
 </details>
 
-| ![萨默塞特郡的薰衣草田，英国](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![萨默塞特郡的薰衣草田，英国](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![A field of English lavender](https://cn.bing.com/th?id=OHR.SomersetLavender_EN-US0165780359_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A field of English lavender](https://cn.bing.com/th?id=OHR.SomersetLavender_EN-US0165780359_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1080x1920.jpg) |as (© Eddie Brady/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The Mildred B. Cooper Memorial Chapel in Bella Vista, Arkansas, is one of the most charming buildings in the country. Constructed in 1988 and named for a beloved community member whose husband commissioned it, this chapel was designed by E. Fay Jones, an architect known for his wooden creations. Its unique design seamlessly blends modernist principles with nature's splendor, resulting in a harmonious space which blends with its natural setting. Surrounded by lush trees, with sunlight filtering in through the huge glass windows, the chapel serves as a perfect sanctuary for contemplation and prayer. It also stands as a powerful testament to the ability of architecture to inspire and uplift the human spirit.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Mildred B. Cooper Memorial Chapel in Arkansas](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mildred B. Cooper Memorial Chapel in Arkansas](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CooperChapel_EN-US2412561000_1080x1920.jpg) |0906_1080x1920.jpg) |&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_1080x1920.jpg) |g.com/th?id=OHR.VillandryGarden_EN-US2096198100_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg) |sury_EN-US1981994011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SomersetLavender_EN-US0165780359_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SomersetLavender_EN-US0165780359_1080x1920.jpg) |ng.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg) |sury_EN-US1981994011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
