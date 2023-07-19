@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230717
+
+> Cloughoughter Castle in Lough Oughter, County Cavan, Ireland (© 4H4 PH/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Cloughoughter Castle sits on a small island in the middle of Lough Oughter, a huge complex of lakes and waterways in County Cavan in Ireland. Its first stones are thought to have been laid in the early 13th century by the Anglo-Norman de Lacy family, but the O'Reilly clan took possession of the area in 1233 and completed the castle's construction. They retained control of Cloughoughter Castle for centuries, but by 1653, it had been bombed and abandoned. Since then, it has been in ruins, resplendent in a sort of tattered grandeur. It can only be visited by boat but, as a symbol of Ireland's medieval heritage, it is a must-see for history and castle enthusiasts alike.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Cloughoughter Castle, County Cavan, Ireland](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cloughoughter Castle, County Cavan, Ireland](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_1080x1920.jpg) |
+
 ### 20230716
 
 > Bear Hole Brook, Catskill Mountains, New York (© GummyBone/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_1080x1920.jpg) |
-
-### 20230710
-
-> Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Delighting the senses with its vibrant hues and fragrant blooms, lavender is thought to have arrived in England with the Romans, around 2,000 years ago. While it’s nice to look at, the Romans likely brought it with them for its many practical uses, including cooking, repelling insects, and as an antiseptic. Many perfumes, modern and historical, have featured lavender, and Queen Elizabeth I is purported to have used lavender scent. You’ll find lavender fields scattered across the country. This one is a typical example, a quintessential summer sight here in the picturesque county of Somerset, in southwest England.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![A field of English lavender](https://cn.bing.com/th?id=OHR.SomersetLavender_EN-US0165780359_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A field of English lavender](https://cn.bing.com/th?id=OHR.SomersetLavender_EN-US0165780359_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SomersetLavender_EN-US0165780359_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SomersetLavender_EN-US0165780359_1080x1920.jpg) |ng.com/th?id=OHR.VillandryGarden_EN-US2096198100_1080x1920.jpg) |sury_EN-US1981994011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_1080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
