@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230718
+
+> Great hornbill, Khao Yai National Park, Thailand (© kajornyot wildlife photography/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> The great hornbill is a remarkable bird found in the tropical forests of Southeast Asia. Despite weighing as much as 9 pounds and growing up to 4 feet long, it is an agile flyer capable of maneuvering through dense forests. Alongside its striking black and yellow plumage, the great hornbill has a unique helmet-like casque on its bill, which amplifies its calls. The bird primarily feeds on fruit but also eats small mammals, reptiles, and insects. While incubating her eggs, the female great hornbill seals herself inside a tree cavity, leaving a small opening through which the male inserts food. This magnificent bird holds cultural and spiritual significance in many Southeast Asian cultures as a sacred animal and the subject of festivals.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Great hornbill, Thailand](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great hornbill, Thailand](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_1080x1920.jpg) |
+
 ### 20230717
 
 > Cloughoughter Castle in Lough Oughter, County Cavan, Ireland (© 4H4 PH/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Nakupenda Beach Nature Reserve, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nakupenda Beach Nature Reserve, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |
-
-### 20230711
-
-> Hong Kong SAR (© leungchopan/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On July 11, 1987, the world is thought to have welcomed its 5-billionth person. Thirty-six years later, our population has reached 8 billion and is still rising. World Population Day, established by the UN, is a day to reflect on how much life Earth can sustain, and how our lives impact our environment.
-> 
-> Pictured here is Hong Kong, a city recognized as one of the world's most densely populated areas, with approximately 17,582 people per square mile. Though Hong Kong has a low birth rate, the density remains high as people live longer thanks to improvements in healthcare, a contributing factor to population increases worldwide. While this colorful night scene might appear glamorous, it is also an example of light pollution, which can disrupt ecosystems and affect our health—one of humanity's many impacts on the world around us.
-> 
-> 
-
-</details>
-
-| ![World Population Day](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_1080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
