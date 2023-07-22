@@ -2,12 +2,12 @@
 
 ### 20230720
 
-> 从美国宇航局猎户座飞船上看到的月球 (© NASA)
+> The moon seen from the Orion spacecraft of NASA's Artemis mission (© NASA)
 
 <details>
 <summary>Description</summary>
 
-> 为了纪念1969年7月20日人类首次成功登陆月球，7月20日被定为国际月球日。这个节日不仅让人们回顾我们过去在月球探索上取得的卓越成就，也让人们关注我们如今在月球探索方面的获得的进步。图片上的美国宇航局研制的猎户座飞船正是这种进步的一个实证。这座飞船是为深空探索而设计的，它在2022年执行了一次无人绕月飞行，将在2024年进行一次载人绕月飞行，并计划在2025年载宇航员重返月球。这个节日的意义还在于让大家意识到月球的重要性，并了解人类未来在太空探索和太空殖民方面的潜力。
+> International Moon Day is celebrated on July 20, the day humans first set foot on the moon during the Apollo 11 mission in 1969. It recognizes our lunar achievements and highlights scientific and technological advancements, like NASA's Orion spacecraft, seen here. Designed for deep space exploration, Orion completed a test flight to the moon without astronauts in 2022 and will carry out a crewed orbit in 2024. The plan is to return astronauts to the moon's surface in 2025. NASA hopes that these flights, along with events like International Moon Day, will encourage public engagement and education about the moon and its influence on Earth, as well as the potential for future space exploration and colonization.
 > 
 > 
 > 
@@ -15,18 +15,18 @@
 
 </details>
 
-| ![国际月球日](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际月球日](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Moon Day](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Moon Day](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_1080x1920.jpg) |
 
 ### 20230719
 
-> 敦煌月牙泉，甘肃省，中国 (© R7 Photo/Shutterstock)
+> Crescent Lake near Dunhuang, Gansu province, China (© R7 Photo/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 月牙泉位于中国甘肃省敦煌市附近，是隐藏在广袤戈壁滩上的一个摄人心魄的自然奇观。数百年来，这片因独特的月牙形状而闻名的绿洲，一直是一个重要的水源地。人们认为，月牙泉是风蚀形成的，其水源是地下泉水。由于附近有山脉遮挡，月牙泉才不会被该地的风沙所淹没。当地采取了许多保护措施，确保月牙泉不会干涸。游客不仅可以在湖上划船、骑骆驼在沙漠徜徉，还可以在附近的莫高窟欣赏古代佛教壁画及雕塑。
+> Crescent Lake is a captivating natural wonder hidden in the vast Gobi Desert near the Chinese city of Dunhuang in Gansu province. This oasis, named for its unusual shape, has been a vital water source here for centuries. The lake is thought to have formed in a valley carved by wind and been fed by an underground spring. It sits amid Dunhuang's 'singing' sand dunes, which make a noise when the wind blows. The sand dunes also help stop the lake from being swallowed by sand and conservation efforts have ensured that it doesn't dry out. Visitors enjoy boating on the lake, camel rides through the surrounding dunes, and seeing ancient Buddhist art and murals in the nearby Mogao Caves.
 > 
 > 
 > 
@@ -34,18 +34,18 @@
 
 </details>
 
-| ![敦煌月牙泉，中国](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![敦煌月牙泉，中国](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Crescent Lake near Dunhuang, China](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Crescent Lake near Dunhuang, China](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_1080x1920.jpg) |
 
 ### 20230718
 
-> 双角犀鸟，考艾国家公园，泰国 (© kajornyot wildlife photography/Shutterstock)
+> Great hornbill, Khao Yai National Park, Thailand (© kajornyot wildlife photography/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 双角犀鸟是一种生活在东南亚热带森林的珍贵鸟类。其体型庞大，可长达4英尺，重达9磅，但是它们非常敏捷，能够在茂密的森林中自由飞行。双角犀鸟有着极为醒目的黑色和黄色羽毛，喙上长着一个独特的盔突，这有助于增强它们鸣叫的分贝，使声音传得更远。这种鸟主要以各种水果和种子为食，但也捕食小型哺乳动物、爬行动物和昆虫。有趣的是，雌犀鸟在孵化期会将自己封闭在一个树洞内，只留下一个小口，雄犀鸟通过这个小口把食物递给雌犀鸟。在东南亚的许多文化中，这些华丽的鸟儿被视为神圣的动物，还有各种与之相关的节日。
+> The great hornbill is a remarkable bird found in the tropical forests of Southeast Asia. Despite weighing as much as 9 pounds and growing up to 4 feet long, it is an agile flyer capable of maneuvering through dense forests. Alongside its striking black and yellow plumage, the great hornbill has a unique helmet-like casque on its bill, which amplifies its calls. The bird primarily feeds on fruit but also eats small mammals, reptiles, and insects. While incubating her eggs, the female great hornbill seals herself inside a tree cavity, leaving a small opening through which the male inserts food. This magnificent bird holds cultural and spiritual significance in many Southeast Asian cultures as a sacred animal and the subject of festivals.
 > 
 > 
 > 
@@ -53,18 +53,18 @@
 
 </details>
 
-| ![双角犀鸟，泰国](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![双角犀鸟，泰国](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Great hornbill, Thailand](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great hornbill, Thailand](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_1080x1920.jpg) |
 
 ### 20230717
 
-> 乌特湖的克拉夫特城堡，卡文郡，爱尔兰 (© 4H4 PH/Shutterstock)
+> Cloughoughter Castle in Lough Oughter, County Cavan, Ireland (© 4H4 PH/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 克拉夫特城堡位于爱尔兰卡文郡，坐落在一个湖中小岛上。据说，这座城堡起初是由盎格鲁-诺曼人在13世纪初建造的。城堡的圆柱形结构美观且实用，既能控制水道，又能为周围区域提供防御。在接下来的几个世纪里，这座城堡和周围的土地几经易主，直到1653年被炸毁遗弃，只剩断壁残垣。克拉夫特城堡是爱尔兰中世纪遗产的象征，对于历史爱好者和城堡爱好者来说是必看之地。
+> Cloughoughter Castle sits on a small island in the middle of Lough Oughter, a huge complex of lakes and waterways in County Cavan in Ireland. Its first stones are thought to have been laid in the early 13th century by the Anglo-Norman de Lacy family, but the O'Reilly clan took possession of the area in 1233 and completed the castle's construction. They retained control of Cloughoughter Castle for centuries, but by 1653, it had been bombed and abandoned. Since then, it has been in ruins, resplendent in a sort of tattered grandeur. It can only be visited by boat but, as a symbol of Ireland's medieval heritage, it is a must-see for history and castle enthusiasts alike.
 > 
 > 
 > 
@@ -72,18 +72,18 @@
 
 </details>
 
-| ![克拉夫特城堡，卡文郡，爱尔兰](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![克拉夫特城堡，卡文郡，爱尔兰](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Cloughoughter Castle, County Cavan, Ireland](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cloughoughter Castle, County Cavan, Ireland](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_1080x1920.jpg) |
 
 ### 20230716
 
-> 熊洞溪，卡茨基尔山脉，纽约，美国 (© GummyBone/Getty Images)
+> Bear Hole Brook, Catskill Mountains, New York (© GummyBone/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 卡茨基尔山脉坐落在纽约州北部，面积超过4000平方英里，以令人惊叹的美景闻名。连绵不绝的山峰和古老的森林勾勒出迷人的背景，山谷孕育着蜿蜒流动的小溪，就像我们今天看到的熊洞溪。该地区拥有众多迂回曲折的徒步旅行路线，穿越茂密的林地，通向令人敬畏的壮丽景色。卡茨基尔在文化史上也占有重要地位，多年来一直吸引着世界各地的艺术家和梦想家。从标志性的度假胜地到迷人的小村庄，这里独特的魅力一直吸引着源源不断的游客到访。
+> Stretched over 4,000 square miles in upstate New York, the Catskill Mountains captivate visitors with their breathtaking beauty. Towering peaks cloaked in forests surround valleys filled with meandering streams like Bear Hole Brook, seen in today's image. The region boasts hiking trails that wind through enchanting woodlands, past waterfalls and lakes while motorists can enjoy scenic drives and spot the region's covered bridges, dating from the 1800s. The Catskills also hold a place in cultural history, attracting artists and dreamers and as the fictional setting for the movie Dirty Dancing—which was actually filmed in Pembroke, Virginia. With other attractions including ski resorts and picturesque small towns and hamlets, visitors continue to flock to the Catskills, a huge wilderness within driving distance of more than 20 million Americans.
 > 
 > 
 > 
@@ -91,18 +91,18 @@
 
 </details>
 
-| ![熊洞溪，卡茨基尔山脉，纽约](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![熊洞溪，卡茨基尔山脉，纽约](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Bear Hole Brook, Catskill Mountains, New York](https://cn.bing.com/th?id=OHR.BearHoleBrook_EN-US0278547262_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bear Hole Brook, Catskill Mountains, New York](https://cn.bing.com/th?id=OHR.BearHoleBrook_EN-US0278547262_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BearHoleBrook_EN-US0278547262_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BearHoleBrook_EN-US0278547262_1080x1920.jpg) |
 
 ### 20230715
 
-> 卡斯泰尔梅扎诺，意大利 (© Rudy Balasko/Shutterstock)
+> Castelmezzano, Italy (© Rudy Balasko/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 坐落在多洛米蒂山脉的崎岖峭壁上，意大利古老的村庄卡斯泰尔梅扎诺散发着迷人的魅力。这座村庄已被列为世界遗产，它历经过封建领主的统治和大大小小的战争，狭窄的小巷和古老的建筑里都有历史故事。据说，公元11世纪左右诺曼人定居于此，并建造了一座城堡，该村庄由此得名。此外，卡斯泰尔梅扎诺还有各种冒险活动，你可以来一次“天使飞行”，在山脉之间感受高空滑索。不过，感受这个小村庄的惬意的最佳方式，可能只需一杯咖啡：喝着咖啡看着太阳从雄伟的山峰后冉冉升起，与街灯一同照亮傍山而建的一排排房屋。
+> Embraced by the rugged peaks of the Lucanian Dolomites, the ancient village of Castelmezzano in southern Italy glows with charm. Its narrow alleys and cobblestone streets pass buildings that cling to the mountainside. This picturesque destination is brimming with history; from its rule by feudal lords to battles long forgotten. It's believed that the Normans settled here around the 11th century AD and constructed a castle, from which the village gets its name. Castelmezzano isn't just a sleepy portrait of the past, it also offers adventure activities for the brave, including a high-altitude zip line between mountains on the Volo dell'Angelo (Flight of the Angel). Yet the finest pleasure the small village offers might just be grabbing a cup of coffee and watching the sun rise behind the majestic mountain peaks, illuminating those huddled houses as the streetlamps go out.
 > 
 > 
 > 
@@ -110,18 +110,18 @@
 
 </details>
 
-| ![卡斯泰尔梅扎诺，意大利](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![卡斯泰尔梅扎诺，意大利](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Castelmezzano, Italy](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castelmezzano, Italy](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |
 
 ### 20230714
 
-> 乌翅真鲨，马尔代夫 (© Filippo Bacci/Getty Images)
+> Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 今天是鲨鱼保护日。据化石记录显示，鲨鱼已经在海洋中繁衍生息了至少4.2亿年。世界上有500多种鲨鱼，其中三分之一面临灭绝风险。每一种鲨鱼都有一套适应其所在环境的独特方法：锤头鲨拥有360度视野，光滑的灰鲭鲨是所有鲨鱼中游速最快的，黑尖礁鲨可以伪装成珊瑚礁……这些生物展示了惊人的多样性。在大多数人的印象中，鲨鱼性情凶猛和攻击力强，是无情的“海洋杀手”。但其实也有性情温和的鲨鱼，比如护士鲨。今天，让我们行动起来，共同倡导保护这些被人们误解的海洋生物！
+> Today, on Shark Awareness Day, let's dive into the ocean's depths to meet our finned friends. It's believed that sharks have been cruising the oceans for at least 420 million years. Today’s homepage shows blacktip reef sharks, hunting in a group in the waters around the Maldives, one of more than 500 species of shark, each uniquely adapted to its habitat. From the graceful hammerhead with its panoramic vision to the fastest species, the sleek mako, shark species are diverse, but a third face extinction. Among threats are unregulated fishing and abandoned nets as well as demand for shark fins. They have a fearsome reputation but are the victims of myths and misconceptions that paint them as mindless killing machines. Today, let's celebrate these magnificent creatures, a key part of healthy marine ecosystems, by advocating for their conservation.
 > 
 > 
 > 
@@ -129,26 +129,9 @@
 
 </details>
 
-| ![鲨鱼保护日](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![鲨鱼保护日](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1080x1920.jpg) |id=OHR.ZhangyeGeopark_EN-US3229882052_1080x1920.jpg) |
-
-### 20230712
-
-> Sand bar in Nakupenda Beach Nature Reserve, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Off the west coast of Zanzibar, the Nakupenda Beach Nature Reserve sits on a small, sandy island. Surrounded by the Indian Ocean, this sand bar is a popular destination with tourists looking to soak up the sun's rays on its white sands. Plentiful marine life here creates a vibrant underwater world that is perfect for snorkeling. The islands of Tanzania are home to an array of wildlife like the Pemba scops owl and the African fish eagle. To the north of Nakupenda, there is a giant tortoise sanctuary on Changuu Island, while their sea turtle cousins swim in the surrounding waters.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Nakupenda Beach Nature Reserve, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nakupenda Beach Nature Reserve, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
