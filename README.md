@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230721
+
+> Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Norway's picturesque Atlantic Ocean Road crosses eight bridges as it makes its way across islands, islets, and reefs to link the island of Averøya with the mainland Romsdal Peninsula. The longest of them, pictured here, is the Storseisundet Bridge. This bridge, surrounded by ample natural beauty, was tough to build. It took six years, and during construction workers were pelted by the region's unpredictable weather, including 12 hurricanes. It opened in 1989 and remains a popular visitor attraction. With its dramatic curve and sudden incline, Storseisundet Bridge creates the illusion of suddenly disappearing into the ocean, making drivers skip a heartbeat. Its construction showcases the brilliance of Norwegian engineering, blending seamlessly with the landscape.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Storseisundet Bridge, Norway](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Storseisundet Bridge, Norway](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |
+
 ### 20230720
 
 > The moon seen from the Orion spacecraft of NASA's Artemis mission (© NASA)
@@ -112,26 +131,7 @@
 
 | ![Castelmezzano, Italy](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castelmezzano, Italy](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |
-
-### 20230714
-
-> Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, on Shark Awareness Day, let's dive into the ocean's depths to meet our finned friends. It's believed that sharks have been cruising the oceans for at least 420 million years. Today’s homepage shows blacktip reef sharks, hunting in a group in the waters around the Maldives, one of more than 500 species of shark, each uniquely adapted to its habitat. From the graceful hammerhead with its panoramic vision to the fastest species, the sleek mako, shark species are diverse, but a third face extinction. Among threats are unregulated fishing and abandoned nets as well as demand for shark fins. They have a fearsome reputation but are the victims of myths and misconceptions that paint them as mindless killing machines. Today, let's celebrate these magnificent creatures, a key part of healthy marine ecosystems, by advocating for their conservation.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
