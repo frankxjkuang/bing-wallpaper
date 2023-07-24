@@ -1,13 +1,13 @@
 ## bing wallpaper
 
-### 20230721
+### 20230723
 
-> Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)
+> 爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡 (© Jeremy Woodhouse/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Norway's picturesque Atlantic Ocean Road crosses eight bridges as it makes its way across islands, islets, and reefs to link the island of Averøya with the mainland Romsdal Peninsula. The longest of them, pictured here, is the Storseisundet Bridge. This bridge, surrounded by ample natural beauty, was tough to build. It took six years, and during construction workers were pelted by the region's unpredictable weather, including 12 hurricanes. It opened in 1989 and remains a popular visitor attraction. With its dramatic curve and sudden incline, Storseisundet Bridge creates the illusion of suddenly disappearing into the ocean, making drivers skip a heartbeat. Its construction showcases the brilliance of Norwegian engineering, blending seamlessly with the landscape.
+> 从中国的功夫茶到英国的红茶，世界各地的茶文化丰富而迷人。近年来，茶叶旅游越来越受欢迎，人们参观茶庄和茶园，体验茶文化，并了解茶叶的历史。这张照片里的爱丁堡茶园就是这样的一个地方。凭借其殖民时代的建筑和薄雾笼罩的茶园，这片坐落于斯里兰卡的努沃勒埃利耶的高地赢得了“小英格兰”的称号。这个地方也因出产部分世界上最精良的橙白毫（一种红茶）而闻名天下。
 > 
 > 
 > 
@@ -15,18 +15,56 @@
 
 </details>
 
-| ![Storseisundet Bridge, Norway](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Storseisundet Bridge, Norway](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![努沃勒埃利耶, 斯里兰卡](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![努沃勒埃利耶, 斯里兰卡](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_1080x1920.jpg) |
+
+### 20230722
+
+> 在一棵秃柏树上吊床露营，佛罗里达州，美国 (© Mac Stone/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> 传统的吊床是由中美洲人发明的，最初是用来在睡觉时保护自己免受危险的昆虫和动物的袭击。如今，吊床是一个用来增添乐趣的工具。由布料、网或绳子等各种各样的材料制作而成的吊床，是旅行者最好的伙伴。在佛罗里达州，秃柏树就是一个挂吊床的绝佳去处。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![在一棵秃柏树上吊床露营，佛罗里达州](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![在一棵秃柏树上吊床露营，佛罗里达州](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_1080x1920.jpg) |
+
+### 20230721
+
+> 斯托尔桑德特大桥，挪威 (© Morten Falch Sortland/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 挪威的大西洋海滨公路连接了一系列大大小小的岛屿，一路上风景如画，设置有8座桥梁，其中最长的桥梁就是图上的这座斯托尔桑德特大桥。这座被自然美景环绕的桥梁，也是一个建筑奇迹。当地天气变幻莫测，这座桥在建设过程中就历经了12次飓风，最终奇迹般地建成了。斯托尔桑德特大桥有一个突兀的陡坡和急转弯，会给人造成一种大桥突然消失在海洋中的错觉，令司机们瞠目结舌，心如擂鼓。挪威斯托尔桑德特大桥与周围的天然美景融合得天衣无缝，很好地展示了挪威建筑工程的辉煌成就。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![斯托尔桑德特大桥，挪威](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![斯托尔桑德特大桥，挪威](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1080x1920.jpg) |
 
 ### 20230720
 
-> The moon seen from the Orion spacecraft of NASA's Artemis mission (© NASA)
+> 从美国宇航局猎户座飞船上看到的月球 (© NASA)
 
 <details>
 <summary>Description</summary>
 
-> International Moon Day is celebrated on July 20, the day humans first set foot on the moon during the Apollo 11 mission in 1969. It recognizes our lunar achievements and highlights scientific and technological advancements, like NASA's Orion spacecraft, seen here. Designed for deep space exploration, Orion completed a test flight to the moon without astronauts in 2022 and will carry out a crewed orbit in 2024. The plan is to return astronauts to the moon's surface in 2025. NASA hopes that these flights, along with events like International Moon Day, will encourage public engagement and education about the moon and its influence on Earth, as well as the potential for future space exploration and colonization.
+> 为了纪念1969年7月20日人类首次成功登陆月球，7月20日被定为国际月球日。这个节日不仅让人们回顾我们过去在月球探索上取得的卓越成就，也让人们关注我们如今在月球探索方面的获得的进步。图片上的美国宇航局研制的猎户座飞船正是这种进步的一个实证。这座飞船是为深空探索而设计的，它在2022年执行了一次无人绕月飞行，将在2024年进行一次载人绕月飞行，并计划在2025年载宇航员重返月球。这个节日的意义还在于让大家意识到月球的重要性，并了解人类未来在太空探索和太空殖民方面的潜力。
 > 
 > 
 > 
@@ -34,18 +72,18 @@
 
 </details>
 
-| ![International Moon Day](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Moon Day](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![国际月球日](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际月球日](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1080x1920.jpg) |
 
 ### 20230719
 
-> Crescent Lake near Dunhuang, Gansu province, China (© R7 Photo/Shutterstock)
+> 敦煌月牙泉，甘肃省，中国 (© R7 Photo/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> Crescent Lake is a captivating natural wonder hidden in the vast Gobi Desert near the Chinese city of Dunhuang in Gansu province. This oasis, named for its unusual shape, has been a vital water source here for centuries. The lake is thought to have formed in a valley carved by wind and been fed by an underground spring. It sits amid Dunhuang's 'singing' sand dunes, which make a noise when the wind blows. The sand dunes also help stop the lake from being swallowed by sand and conservation efforts have ensured that it doesn't dry out. Visitors enjoy boating on the lake, camel rides through the surrounding dunes, and seeing ancient Buddhist art and murals in the nearby Mogao Caves.
+> 月牙泉位于中国甘肃省敦煌市附近，是隐藏在广袤戈壁滩上的一个摄人心魄的自然奇观。数百年来，这片因独特的月牙形状而闻名的绿洲，一直是一个重要的水源地。人们认为，月牙泉是风蚀形成的，其水源是地下泉水。由于附近有山脉遮挡，月牙泉才不会被该地的风沙所淹没。当地采取了许多保护措施，确保月牙泉不会干涸。游客不仅可以在湖上划船、骑骆驼在沙漠徜徉，还可以在附近的莫高窟欣赏古代佛教壁画及雕塑。
 > 
 > 
 > 
@@ -53,18 +91,18 @@
 
 </details>
 
-| ![Crescent Lake near Dunhuang, China](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Crescent Lake near Dunhuang, China](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![敦煌月牙泉，中国](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![敦煌月牙泉，中国](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_1080x1920.jpg) |
 
 ### 20230718
 
-> Great hornbill, Khao Yai National Park, Thailand (© kajornyot wildlife photography/Shutterstock)
+> 双角犀鸟，考艾国家公园，泰国 (© kajornyot wildlife photography/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> The great hornbill is a remarkable bird found in the tropical forests of Southeast Asia. Despite weighing as much as 9 pounds and growing up to 4 feet long, it is an agile flyer capable of maneuvering through dense forests. Alongside its striking black and yellow plumage, the great hornbill has a unique helmet-like casque on its bill, which amplifies its calls. The bird primarily feeds on fruit but also eats small mammals, reptiles, and insects. While incubating her eggs, the female great hornbill seals herself inside a tree cavity, leaving a small opening through which the male inserts food. This magnificent bird holds cultural and spiritual significance in many Southeast Asian cultures as a sacred animal and the subject of festivals.
+> 双角犀鸟是一种生活在东南亚热带森林的珍贵鸟类。其体型庞大，可长达4英尺，重达9磅，但是它们非常敏捷，能够在茂密的森林中自由飞行。双角犀鸟有着极为醒目的黑色和黄色羽毛，喙上长着一个独特的盔突，这有助于增强它们鸣叫的分贝，使声音传得更远。这种鸟主要以各种水果和种子为食，但也捕食小型哺乳动物、爬行动物和昆虫。有趣的是，雌犀鸟在孵化期会将自己封闭在一个树洞内，只留下一个小口，雄犀鸟通过这个小口把食物递给雌犀鸟。在东南亚的许多文化中，这些华丽的鸟儿被视为神圣的动物，还有各种与之相关的节日。
 > 
 > 
 > 
@@ -72,18 +110,18 @@
 
 </details>
 
-| ![Great hornbill, Thailand](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great hornbill, Thailand](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![双角犀鸟，泰国](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![双角犀鸟，泰国](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_1080x1920.jpg) |
 
 ### 20230717
 
-> Cloughoughter Castle in Lough Oughter, County Cavan, Ireland (© 4H4 PH/Shutterstock)
+> 乌特湖的克拉夫特城堡，卡文郡，爱尔兰 (© 4H4 PH/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> Cloughoughter Castle sits on a small island in the middle of Lough Oughter, a huge complex of lakes and waterways in County Cavan in Ireland. Its first stones are thought to have been laid in the early 13th century by the Anglo-Norman de Lacy family, but the O'Reilly clan took possession of the area in 1233 and completed the castle's construction. They retained control of Cloughoughter Castle for centuries, but by 1653, it had been bombed and abandoned. Since then, it has been in ruins, resplendent in a sort of tattered grandeur. It can only be visited by boat but, as a symbol of Ireland's medieval heritage, it is a must-see for history and castle enthusiasts alike.
+> 克拉夫特城堡位于爱尔兰卡文郡，坐落在一个湖中小岛上。据说，这座城堡起初是由盎格鲁-诺曼人在13世纪初建造的。城堡的圆柱形结构美观且实用，既能控制水道，又能为周围区域提供防御。在接下来的几个世纪里，这座城堡和周围的土地几经易主，直到1653年被炸毁遗弃，只剩断壁残垣。克拉夫特城堡是爱尔兰中世纪遗产的象征，对于历史爱好者和城堡爱好者来说是必看之地。
 > 
 > 
 > 
@@ -91,37 +129,9 @@
 
 </details>
 
-| ![Cloughoughter Castle, County Cavan, Ireland](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cloughoughter Castle, County Cavan, Ireland](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![克拉夫特城堡，卡文郡，爱尔兰](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![克拉夫特城堡，卡文郡，爱尔兰](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_1080x1920.jpg) |
-
-### 20230716
-
-> Bear Hole Brook, Catskill Mountains, New York (© GummyBone/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Stretched over 4,000 square miles in upstate New York, the Catskill Mountains captivate visitors with their breathtaking beauty. Towering peaks cloaked in forests surround valleys filled with meandering streams like Bear Hole Brook, seen in today's image. The region boasts hiking trails that wind through enchanting woodlands, past waterfalls and lakes while motorists can enjoy scenic drives and spot the region's covered bridges, dating from the 1800s. The Catskills also hold a place in cultural history, attracting artists and dreamers and as the fictional setting for the movie Dirty Dancing—which was actually filmed in Pembroke, Virginia. With other attractions including ski resorts and picturesque small towns and hamlets, visitors continue to flock to the Catskills, a huge wilderness within driving distance of more than 20 million Americans.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Bear Hole Brook, Catskill Mountains, New York](https://cn.bing.com/th?id=OHR.BearHoleBrook_EN-US0278547262_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bear Hole Brook, Catskill Mountains, New York](https://cn.bing.com/th?id=OHR.BearHoleBrook_EN-US0278547262_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BearHoleBrook_EN-US0278547262_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BearHoleBrook_EN-US0278547262_1080x1920.jpg) |
-
-### 20230715
-
-> Castelmezzano, Italy (© Rudy Balasko/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Embraced by the rugged peaks of the Lucanian Dolomites, the ancient village of Castelmezzano in southern Italy glows with charm. Its narrow alleys and cobblestone streets pass buildings that cling to the mountainside. This picturesque destination is brimming with history; from its rule by feudal lords to battles long forgotten. It's believed that the Normans settled here around the 11th century AD and constructed a castle, from which the village gets its name. Castelmezzano isn't just a sleepy portrait of the past, it also offers adventure activities for the brave, including a high-altitude zip line between mountains on the Volo dell'Angelo (Flight of the Angel). Yet the finest pleasure the small village offers might just be grabbing a cup of coffee and watching the sun rise behind the majestic mountain peaks, illuminating those huddled houses as the streetlamps go out.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_1080x1920.jpg) |rugged peaks of the Lucanian Dolomites, the ancient village of Castelmezzano in southern Italy glows with charm. Its narrow alleys and cobblestone streets pass buildings that cling to the mountainside. This picturesque destination is brimming with history; from its rule by feudal lords to battles long forgotten. It's believed that the Normans settled here around the 11th century AD and constructed a castle, from which the village gets its name. Castelmezzano isn't just a sleepy portrait of the past, it also offers adventure activities for the brave, including a high-altitude zip line between mountains on the Volo dell'Angelo (Flight of the Angel). Yet the finest pleasure the small village offers might just be grabbing a cup of coffee and watching the sun rise behind the majestic mountain peaks, illuminating those huddled houses as the streetlamps go out.
 > 
 > 
 > 
