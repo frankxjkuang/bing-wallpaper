@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230724
+
+> Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> When it comes to honoring family members, parents and siblings get most of the attention—but today, let us sing the praises of our cousins on Cousins Day! These extended family members hold a special place in our hearts. They're not quite siblings, but more than mere friends. When we're young, they're the buddies we go adventuring with, while the adults stay behind to make small talk. Maybe you've fallen out of touch with your cousins, or maybe you're still close—either way, today's a great day to reach out, say hello, and reminisce. That's what it looks like these zebras are doing; there's likely a set of cousins or two in this group that's horsing around on the savannah in Tanzania.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Cousins Day](https://cn.bing.com/th?id=OHR.ZebraCousins_EN-US1951215229_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cousins Day](https://cn.bing.com/th?id=OHR.ZebraCousins_EN-US1951215229_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZebraCousins_EN-US1951215229_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraCousins_EN-US1951215229_1080x1920.jpg) |
+
 ### 20230723
 
 > Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Great hornbill, Thailand](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great hornbill, Thailand](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_1080x1920.jpg) |
-
-### 20230717
-
-> Cloughoughter Castle in Lough Oughter, County Cavan, Ireland (© 4H4 PH/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Cloughoughter Castle sits on a small island in the middle of Lough Oughter, a huge complex of lakes and waterways in County Cavan in Ireland. Its first stones are thought to have been laid in the early 13th century by the Anglo-Norman de Lacy family, but the O'Reilly clan took possession of the area in 1233 and completed the castle's construction. They retained control of Cloughoughter Castle for centuries, but by 1653, it had been bombed and abandoned. Since then, it has been in ruins, resplendent in a sort of tattered grandeur. It can only be visited by boat but, as a symbol of Ireland's medieval heritage, it is a must-see for history and castle enthusiasts alike.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Cloughoughter Castle, County Cavan, Ireland](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cloughoughter Castle, County Cavan, Ireland](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CavanCastle_EN-US0493721152_1080x1920.jpg) |mezzano, Italy](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_1080x1920.jpg) |th?id=OHR.CavanCastle_EN-US0493721152_1080x1920.jpg) |mezzano, Italy](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
