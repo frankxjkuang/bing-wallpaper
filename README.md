@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230725
+
+> Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> When we encounter bodies of water in nature, we might expect hues of blue, from the pale cyan shade of lagoons to the navy blue of deep lakes. But pink water—where on Earth could that be found? At (deep breath) El Parque Natural de Las Lagunas de La Mata y Torrevieja in Alicante, Spain. Here, there are two lakes: one green and one pink, and it is the latter that you see on our homepage. The highly saline water, dotted with clusters of salt crystals, is the perfect environment for microscopic algae, which are rich in carotenes. This results in the rosy tinge that protects the algae from solar radiation. And the pink is just getting started, as the algae are eaten by tiny crustaceans, which turn pink and are then eaten by flamingos, which acquire the rosy hue as well.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Laguna de Torrevieja, Spain](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Laguna de Torrevieja, Spain](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_1080x1920.jpg) |
+
 ### 20230724
 
 > Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Crescent Lake near Dunhuang, China](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Crescent Lake near Dunhuang, China](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_1080x1920.jpg) |
-
-### 20230718
-
-> Great hornbill, Khao Yai National Park, Thailand (© kajornyot wildlife photography/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> The great hornbill is a remarkable bird found in the tropical forests of Southeast Asia. Despite weighing as much as 9 pounds and growing up to 4 feet long, it is an agile flyer capable of maneuvering through dense forests. Alongside its striking black and yellow plumage, the great hornbill has a unique helmet-like casque on its bill, which amplifies its calls. The bird primarily feeds on fruit but also eats small mammals, reptiles, and insects. While incubating her eggs, the female great hornbill seals herself inside a tree cavity, leaving a small opening through which the male inserts food. This magnificent bird holds cultural and spiritual significance in many Southeast Asian cultures as a sacred animal and the subject of festivals.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Great hornbill, Thailand](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great hornbill, Thailand](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BucerosBicornis_EN-US0841652066_1080x1920.jpg) |th?id=OHR.CavanCastle_EN-US0493721152_1080x1920.jpg) |mezzano, Italy](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_1080x1920.jpg) |th?id=OHR.CavanCastle_EN-US0493721152_1080x1920.jpg) |mezzano, Italy](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
