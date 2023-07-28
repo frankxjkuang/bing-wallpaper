@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230726
+
+> Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Natural vegetation is sparse in the United Arab Emirates, due to its hot and dry desert climate. But along its coast, mangroves have taken root. These hardy trees and shrubs are halophytes, salt-tolerant plants that can filter 90% of the salt from the seawater they live in. Despite their resilience, mangroves are threatened globally, largely due to human activity. Mangrove coverage is thought to have halved over the past 40 years, and they are dwindling much faster than forests overall. The UN has established the International Day of Mangrove Conservation, scientific funding, Global Geoparks, and World Heritage sites to try to reverse these trends. These efforts are vital; mangroves help prevent erosion and protect against storm surges, as well as providing a home for fish, crustaceans, and other wildlife.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![International Day of Mangrove Conservation](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Mangrove Conservation](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_1080x1920.jpg) |
+
 ### 20230725
 
 > Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Moon Day](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Moon Day](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_1080x1920.jpg) |
-
-### 20230719
-
-> Crescent Lake near Dunhuang, Gansu province, China (© R7 Photo/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Crescent Lake is a captivating natural wonder hidden in the vast Gobi Desert near the Chinese city of Dunhuang in Gansu province. This oasis, named for its unusual shape, has been a vital water source here for centuries. The lake is thought to have formed in a valley carved by wind and been fed by an underground spring. It sits amid Dunhuang's 'singing' sand dunes, which make a noise when the wind blows. The sand dunes also help stop the lake from being swallowed by sand and conservation efforts have ensured that it doesn't dry out. Visitors enjoy boating on the lake, camel rides through the surrounding dunes, and seeing ancient Buddhist art and murals in the nearby Mogao Caves.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Crescent Lake near Dunhuang, China](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Crescent Lake near Dunhuang, China](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrescentLake_EN-US1005101872_1080x1920.jpg) |th?id=OHR.CavanCastle_EN-US0493721152_1080x1920.jpg) |mezzano, Italy](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_1080x1920.jpg) |=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
