@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230727
+
+> Arc de Triomphe du Carrousel and Louvre Pyramid, Paris, France (© Jon Hicks/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Paris features an impressive stretch of parks, gardens, and monuments called the Axe historique, or historical axis, that starts at the Louvre Museum, in the city center, and extends west, ending at La Grande Arche. Today's image shows the Arc de Triomphe du Carrousel at the eastern end of the route, with the embodiment of Peace riding a chariot atop it. It shouldn't be confused with the better-known and much larger Arc de Triomphe de l'Étoile, which stands 2 miles away, halfway along the Axe historique. It's a lovely walk from one to the other, through the Jardin Des Tuileries and along the famous Avenue des Champs-Élysées. If the statue on the left side of the photo caught your eye, wave hello to King Louis XIV on horseback.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Arc de Triomphe du Carrousel and the Louvre Pyramid](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arc de Triomphe du Carrousel and the Louvre Pyramid](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_1080x1920.jpg) |
+
 ### 20230726
 
 > Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![Storseisundet Bridge, Norway](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Storseisundet Bridge, Norway](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |
-
-### 20230720
-
-> The moon seen from the Orion spacecraft of NASA's Artemis mission (© NASA)
-
-<details>
-<summary>Description</summary>
-
-> International Moon Day is celebrated on July 20, the day humans first set foot on the moon during the Apollo 11 mission in 1969. It recognizes our lunar achievements and highlights scientific and technological advancements, like NASA's Orion spacecraft, seen here. Designed for deep space exploration, Orion completed a test flight to the moon without astronauts in 2022 and will carry out a crewed orbit in 2024. The plan is to return astronauts to the moon's surface in 2025. NASA hopes that these flights, along with events like International Moon Day, will encourage public engagement and education about the moon and its influence on Earth, as well as the potential for future space exploration and colonization.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![International Moon Day](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Moon Day](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoonDayArtemis_EN-US1226397186_1080x1920.jpg) |=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |g.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
