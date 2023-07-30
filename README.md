@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230728
+
+> San Blas Islands, Panama (© bgremler/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Nestled off the northern coast of Panama, the San Blas Islands are an archipelago of more than 360 islands in the Caribbean Sea. Known for their clean, calm waters, they are the perfect place for adventure sports such as snorkeling, surfing, and diving. Staghorn and pillar coral are among the species found in coral reefs surrounding the islands, which teem with marine life. The islands are inhabited primarily by Gunas—people indigenous to Guna Yala—who preserve their way of living with vibrant, traditional clothing, thatched-roof huts known as 'bohíos,' and intricate, handcrafted mola textiles.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![San Blas Islands, Panama](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![San Blas Islands, Panama](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_1080x1920.jpg) |
+
 ### 20230727
 
 > Arc de Triomphe du Carrousel and Louvre Pyramid, Paris, France (© Jon Hicks/Getty Images)
@@ -112,25 +131,7 @@
 
 | ![National Hammock Day](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hammock Day](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_1080x1920.jpg) |
-
-### 20230721
-
-> Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Norway's picturesque Atlantic Ocean Road crosses eight bridges as it makes its way across islands, islets, and reefs to link the island of Averøya with the mainland Romsdal Peninsula. The longest of them, pictured here, is the Storseisundet Bridge. This bridge, surrounded by ample natural beauty, was tough to build. It took six years, and during construction workers were pelted by the region's unpredictable weather, including 12 hurricanes. It opened in 1989 and remains a popular visitor attraction. With its dramatic curve and sudden incline, Storseisundet Bridge creates the illusion of suddenly disappearing into the ocean, making drivers skip a heartbeat. Its construction showcases the brilliance of Norwegian engineering, blending seamlessly with the landscape.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Storseisundet Bridge, Norway](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Storseisundet Bridge, Norway](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_1080x1920.jpg) |--------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |g.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
