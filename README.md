@@ -1,13 +1,13 @@
 ## bing wallpaper
 
-### 20230728
+### 20230730
 
-> San Blas Islands, Panama (© bgremler/Shutterstock)
+> 帕卢斯的农田，华盛顿州，美国 (© EJ-J/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Nestled off the northern coast of Panama, the San Blas Islands are an archipelago of more than 360 islands in the Caribbean Sea. Known for their clean, calm waters, they are the perfect place for adventure sports such as snorkeling, surfing, and diving. Staghorn and pillar coral are among the species found in coral reefs surrounding the islands, which teem with marine life. The islands are inhabited primarily by Gunas—people indigenous to Guna Yala—who preserve their way of living with vibrant, traditional clothing, thatched-roof huts known as 'bohíos,' and intricate, handcrafted mola textiles.
+> 美国的帕卢斯地区以风景如画的景观和独特的地质特征而闻名。延绵起伏的丘陵田原一望无际，错落有致、金绿相间的麦浪美不胜收，相比意大利的托斯卡纳和法国乡村也毫不逊色。帕卢斯是一个农业区，当地土壤肥沃和气候适宜，盛产小麦、大麦、豌豆和小扁豆等。
 > 
 > 
 > 
@@ -15,18 +15,56 @@
 
 </details>
 
-| ![San Blas Islands, Panama](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![San Blas Islands, Panama](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![帕卢斯的农田，华盛顿，美国](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![帕卢斯的农田，华盛顿，美国](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_1080x1920.jpg) |
+
+### 20230729
+
+> 孟加拉虎，兰坦波尔国家公园，印度 (© Andy Rouse/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> 每年的7月29日为国际老虎日，这是一个全球性的活动，旨在倡导对老虎及其栖息地的保护。栖息地丧失、偷猎和非法野生动物贸易，使野生老虎的生存状况堪忧，有的老虎种类甚至濒临灭绝。今天这张照片里的是孟加拉虎，是印度的标志性动物，也是老虎的濒危亚种之一。作为顶级捕食者，孟加拉虎主要捕食白斑鹿、野猪和印度野牛等，从而控制了这些动物的数量，因此孟加拉虎在维持生态平衡方面有着重要作用。据统计，野生老虎的数量目前约在2500~3000只之间。所以，提高人们对老虎的保护意识至关重要。行动起来，一起守护“丛林之王”！
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![国际老虎日](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际老虎日](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_1080x1920.jpg) |
+
+### 20230728
+
+> 圣布拉斯群岛，巴拿马 (© bgremler/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> 圣布拉斯群岛坐落在巴拿马北部海岸，由360多个岛屿组成，面朝加勒比海。群岛以清澈纯净的海水闻名，是浮潜、冲浪、潜水和岛屿探险的理想乐园。美丽的珊瑚礁环绕着岛屿，为丰富多样的海洋生物提供了栖息地。当地原住民库纳人是岛屿上的主要居民，他们古老悠久的生活方式非常独特，至今穿着传统但充满活力的服饰，住在被称为bohíos的茅草屋，还掌握着技法复杂、被称为mola的服饰图案拼布刺绣艺术。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![圣布拉斯群岛，巴拿马](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![圣布拉斯群岛，巴拿马](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_1080x1920.jpg) |
 
 ### 20230727
 
-> Arc de Triomphe du Carrousel and Louvre Pyramid, Paris, France (© Jon Hicks/Getty Images)
+> 卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国 (© Jon Hicks/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Paris features an impressive stretch of parks, gardens, and monuments called the Axe historique, or historical axis, that starts at the Louvre Museum, in the city center, and extends west, ending at La Grande Arche. Today's image shows the Arc de Triomphe du Carrousel at the eastern end of the route, with the embodiment of Peace riding a chariot atop it. It shouldn't be confused with the better-known and much larger Arc de Triomphe de l'Étoile, which stands 2 miles away, halfway along the Axe historique. It's a lovely walk from one to the other, through the Jardin Des Tuileries and along the famous Avenue des Champs-Élysées. If the statue on the left side of the photo caught your eye, wave hello to King Louis XIV on horseback.
+> 巴黎有一条历史中轴线，以卢浮宫博物馆为起点，一直延伸到新凯旋门，沿线是大片公园、花园和历史建筑。今天这张照片展示的卡鲁赛尔凯旋门就在这条轴线上。不过，千万不要把这个拱门和历史轴线中心的雄狮凯旋门混淆哦。你可以从这个拱门出发，经过杜伊勒里花园，沿着香榭丽舍大街到凯旋门。另外，如果照片左侧的雕像吸引了你的注意力的话，和马背上的国王路易十四打声招呼吧。
 > 
 > 
 > 
@@ -34,18 +72,18 @@
 
 </details>
 
-| ![Arc de Triomphe du Carrousel and the Louvre Pyramid](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arc de Triomphe du Carrousel and the Louvre Pyramid](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![卡鲁塞尔凯旋门和卢浮宫金字塔](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![卡鲁塞尔凯旋门和卢浮宫金字塔](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_1080x1920.jpg) |
 
 ### 20230726
 
-> Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)
+> 朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> Natural vegetation is sparse in the United Arab Emirates, due to its hot and dry desert climate. But along its coast, mangroves have taken root. These hardy trees and shrubs are halophytes, salt-tolerant plants that can filter 90% of the salt from the seawater they live in. Despite their resilience, mangroves are threatened globally, largely due to human activity. Mangrove coverage is thought to have halved over the past 40 years, and they are dwindling much faster than forests overall. The UN has established the International Day of Mangrove Conservation, scientific funding, Global Geoparks, and World Heritage sites to try to reverse these trends. These efforts are vital; mangroves help prevent erosion and protect against storm surges, as well as providing a home for fish, crustaceans, and other wildlife.
+> 由于炎热的沙漠气候和降雨的缺乏，自然植被在阿联酋非常稀少。但严酷的环境并没有阻止坚韧的红树林在这个国家的海岸线上生长。红树林属于耐盐植物，可以过滤掉它们生长的海水中的最多90%的盐分。尽管它们适应能力惊人，但红树林在全球仍然受到生存威胁。过去的40年，红树林的覆盖量减半，它们消失的速度是森林整体消失速度的3到5倍。联合国通过设立国际红树林保护日、科研基金、世界遗产地等方式以逆转这个趋势。因为红树林非常重要，它们可以防止海水侵蚀陆地，同时还为鱼类、甲壳类动物以及一系列陆地动物提供栖息地。
 > 
 > 
 > 
@@ -53,18 +91,18 @@
 
 </details>
 
-| ![International Day of Mangrove Conservation](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Mangrove Conservation](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![国际红树林保护日](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际红树林保护日](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_1080x1920.jpg) |
 
 ### 20230725
 
-> Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)
+> 托雷维耶哈潟湖，阿利坎特，西班牙 (© Juan Maria Coy Vergara/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> When we encounter bodies of water in nature, we might expect hues of blue, from the pale cyan shade of lagoons to the navy blue of deep lakes. But pink water—where on Earth could that be found? At (deep breath) El Parque Natural de Las Lagunas de La Mata y Torrevieja in Alicante, Spain. Here, there are two lakes: one green and one pink, and it is the latter that you see on our homepage. The highly saline water, dotted with clusters of salt crystals, is the perfect environment for microscopic algae, which are rich in carotenes. This results in the rosy tinge that protects the algae from solar radiation. And the pink is just getting started, as the algae are eaten by tiny crustaceans, which turn pink and are then eaten by flamingos, which acquire the rosy hue as well.
+> 大自然中的水是什么颜色？我们的第一反应通常是蓝色或绿色。但是你见过粉色的水吗？这片粉红湖泊就是西班牙阿利坎特的托雷维耶哈潟湖。这个湖泊的含盐度非常高，湖面上还有自然形成的盐结晶团，使它成为富含胡萝卜素的微生物藻类繁殖的完美家园，因此才形成了这片粉红的水域。这里的甲壳类动物吃掉这些藻类后，也会变成粉色，进而又被火烈鸟吃掉，最终让火烈鸟也变成了粉色。
 > 
 > 
 > 
@@ -72,18 +110,18 @@
 
 </details>
 
-| ![Laguna de Torrevieja, Spain](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Laguna de Torrevieja, Spain](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![托雷维耶哈潟湖，阿利坎特，西班牙](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![托雷维耶哈潟湖，阿利坎特，西班牙](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_1080x1920.jpg) |
 
 ### 20230724
 
-> Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)
+> 斑马，塔兰吉雷国家公园，坦桑尼亚 (© cinoby/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> When it comes to honoring family members, parents and siblings get most of the attention—but today, let us sing the praises of our cousins on Cousins Day! These extended family members hold a special place in our hearts. They're not quite siblings, but more than mere friends. When we're young, they're the buddies we go adventuring with, while the adults stay behind to make small talk. Maybe you've fallen out of touch with your cousins, or maybe you're still close—either way, today's a great day to reach out, say hello, and reminisce. That's what it looks like these zebras are doing; there's likely a set of cousins or two in this group that's horsing around on the savannah in Tanzania.
+> 当我们赞美家庭成员时，父母和亲兄弟姐妹通常会得到最多的关注。但是今天，让我们在堂/表兄弟姐妹日，为堂/表兄弟姐妹们唱起赞歌！这些大家庭中的成员在我们的家庭结构和我们的心中有着特殊的位置。他们不是亲兄弟姐妹，但是又更甚朋友：童年时，父母们在一边聊闲天，而他们就是和我们一起冒险的战友。也许你已经和你的堂/表兄弟姐妹疏远了，又或者你们依旧亲密。无论如何，今天都非常适合去和他们打声招呼，回忆过去。就像这些斑马一样：它们中有几只很可能就是堂/表兄弟姐妹关系，正齐聚在坦桑尼亚的大草原上胡闹。
 > 
 > 
 > 
@@ -91,37 +129,9 @@
 
 </details>
 
-| ![Cousins Day](https://cn.bing.com/th?id=OHR.ZebraCousins_EN-US1951215229_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cousins Day](https://cn.bing.com/th?id=OHR.ZebraCousins_EN-US1951215229_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![堂/表兄弟姐妹日](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![堂/表兄弟姐妹日](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZebraCousins_EN-US1951215229_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraCousins_EN-US1951215229_1080x1920.jpg) |
-
-### 20230723
-
-> Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Legend has it that tea was first brewed accidentally around 2737 BC in China thanks to a strong wind and some loose leaves. If you find that hard to swallow, there are other origin stories to choose from. However, one thing is certain—the feeling it stirs in tea drinkers worldwide. From gongfu tea practice in China to darye in Korea, there are plenty of fascinating tea cultures to savor. Tea tourism has gained popularity, with visitors to tea plantations and estates learning all about their history. Our homepage image shows one such place, Nuwara Eliya's Edinburgh Estate in the central highlands of Sri Lanka. Nuwara Eliya's colonial-era buildings and mist-shrouded tea gardens have earned it the name 'Little England.' The area is known for producing some of the world's finest orange pekoe tea. So, for your next trip, are you willing to 'chai' something new?
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Nuwara Eliya, Sri Lanka](https://cn.bing.com/th?id=OHR.TeaEstate_EN-US1720005197_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nuwara Eliya, Sri Lanka](https://cn.bing.com/th?id=OHR.TeaEstate_EN-US1720005197_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TeaEstate_EN-US1720005197_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TeaEstate_EN-US1720005197_1080x1920.jpg) |
-
-### 20230722
-
-> Hammock camping in a bald cypress tree, Florida (© Mac Stone/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> It’s National Hammock Day! A day to slowly unwind while rocking gently from side to side. These days, hammocks are associated with summer relaxation, but they were originally developed by Central Americans to protect them from dangerous insects and animals. Today the hammock is a traveler's best buddy, made from a variety of materials like fabric, netting, or rope. But where best to hang it? Florida boasts some beautiful hammock hang-out spots, like the bald cypress tree pictured on our homepage. Have hammock, will travel and relax. It's just that simple.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_1080x1920.jpg) |ey were originally developed by Central Americans to protect them from dangerous insects and animals. Today the hammock is a traveler's best buddy, made from a variety of materials like fabric, netting, or rope. But where best to hang it? Florida boasts some beautiful hammock hang-out spots, like the bald cypress tree pictured on our homepage. Have hammock, will travel and relax. It's just that simple.
 > 
 > 
 > 
