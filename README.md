@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230801
+
+> Climber on Denali, Denali National Park, Alaska (© Andrew Peacock/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Today is National Mountain Climbing Day, dedicated to celebrating the sport while highlighting its many risks and rewards. In a bid to scale the tallest peaks and conquer difficult terrain around the world, mountain climbers embark on physically strenuous journeys that demand exceptional training and experience. But the panoramic views and sense of achievement after reaching the summit makes the effort worthwhile. Our image today is that of Denali, North America's highest peak at 20,310 feet, in south-central Alaska. The name 'Denali' means 'the high one' in the native Athabascan language. Four climbers, Walter Harper, Harry Karstens, Robert Tatum, and Hudson Stuck, were the first to set foot on the top of the mountain in 1913.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![National Mountain Climbing Day](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Mountain Climbing Day](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_1080x1920.jpg) |
+
 ### 20230731
 
 > Rock House, Hocking Hills State Park, Ohio (© Kenneth Keifer/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Day of Mangrove Conservation](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Mangrove Conservation](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_1080x1920.jpg) |
-
-### 20230725
-
-> Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> When we encounter bodies of water in nature, we might expect hues of blue, from the pale cyan shade of lagoons to the navy blue of deep lakes. But pink water—where on Earth could that be found? At (deep breath) El Parque Natural de Las Lagunas de La Mata y Torrevieja in Alicante, Spain. Here, there are two lakes: one green and one pink, and it is the latter that you see on our homepage. The highly saline water, dotted with clusters of salt crystals, is the perfect environment for microscopic algae, which are rich in carotenes. This results in the rosy tinge that protects the algae from solar radiation. And the pink is just getting started, as the algae are eaten by tiny crustaceans, which turn pink and are then eaten by flamingos, which acquire the rosy hue as well.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Laguna de Torrevieja, Spain](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Laguna de Torrevieja, Spain](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_1080x1920.jpg) |53297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_1080x1920.jpg) |--------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_1080x1920.jpg) |1920.jpg) |53297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_1080x1920.jpg) |--------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |g.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
