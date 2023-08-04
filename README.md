@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230802
+
+> Sandstone butte in Capitol Reef National Park, Utah (© Amazing Aerial Premium/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Behold the rugged grandeur of Utah's red rock country. This hidden gem of the American Southwest is Capitol Reef National Park, a tapestry of towering cliffs, twisting canyons, colorful sandstone buttes, and sweeping desert landscapes. Less popular than Zion and Bryce Canyon, the park offers a pleasantly uncrowded experience for visitors keen to enjoy this spectacular landscape. It is also home to a wide variety of plants and animals, including the elusive desert bighorn sheep and more than 230 bird species. But its crown jewel is the nearly 100-mile long Waterpocket Fold, a 7,000-foot-high step in the rock layers, officially known as a monocline. This massive wrinkle on the surface of the planet was formed around 50 to 70 million years ago.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Capitol Reef National Park, Utah](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Capitol Reef National Park, Utah](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_1080x1920.jpg) |
+
 ### 20230801
 
 > Climber on Denali, Denali National Park, Alaska (© Andrew Peacock/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Arc de Triomphe du Carrousel and the Louvre Pyramid](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arc de Triomphe du Carrousel and the Louvre Pyramid](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_1080x1920.jpg) |
-
-### 20230726
-
-> Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Natural vegetation is sparse in the United Arab Emirates, due to its hot and dry desert climate. But along its coast, mangroves have taken root. These hardy trees and shrubs are halophytes, salt-tolerant plants that can filter 90% of the salt from the seawater they live in. Despite their resilience, mangroves are threatened globally, largely due to human activity. Mangrove coverage is thought to have halved over the past 40 years, and they are dwindling much faster than forests overall. The UN has established the International Day of Mangrove Conservation, scientific funding, Global Geoparks, and World Heritage sites to try to reverse these trends. These efforts are vital; mangroves help prevent erosion and protect against storm surges, as well as providing a home for fish, crustaceans, and other wildlife.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![International Day of Mangrove Conservation](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Mangrove Conservation](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_1080x1920.jpg) |1920.jpg) |53297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_1080x1920.jpg) |--------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_1080x1920.jpg) |1920.jpg) |53297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_1080x1920.jpg) |--------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |g.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
