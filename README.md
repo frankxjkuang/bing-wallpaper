@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230803
+
+> Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Experience nature's palette at its colorful best at Zelenci Springs, where Italy, Austria, and Slovenia meet, and multiple springs combine to form this aquamarine lake. Here in Slovenia’s Triglav National Park, these crystal-clear waters are the source of the Sava Dolinka, which runs into the country’s longest river, the Sava. Peer closely at the lakebed and you will see tiny springs bubbling up beneath the water's surface. These spring waters never freeze as underground water temperatures stay around 41 degrees Fahrenheit, enough to keep flowing through harsh winters in this alpine region.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Zelenci Nature Reserve, Slovenia](https://cn.bing.com/th?id=OHR.ZelenciSprings_EN-US2246293953_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Zelenci Nature Reserve, Slovenia](https://cn.bing.com/th?id=OHR.ZelenciSprings_EN-US2246293953_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZelenciSprings_EN-US2246293953_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZelenciSprings_EN-US2246293953_1080x1920.jpg) |
+
 ### 20230802
 
 > Sandstone butte in Capitol Reef National Park, Utah (© Amazing Aerial Premium/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![San Blas Islands, Panama](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![San Blas Islands, Panama](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_1080x1920.jpg) |
-
-### 20230727
-
-> Arc de Triomphe du Carrousel and Louvre Pyramid, Paris, France (© Jon Hicks/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Paris features an impressive stretch of parks, gardens, and monuments called the Axe historique, or historical axis, that starts at the Louvre Museum, in the city center, and extends west, ending at La Grande Arche. Today's image shows the Arc de Triomphe du Carrousel at the eastern end of the route, with the embodiment of Peace riding a chariot atop it. It shouldn't be confused with the better-known and much larger Arc de Triomphe de l'Étoile, which stands 2 miles away, halfway along the Axe historique. It's a lovely walk from one to the other, through the Jardin Des Tuileries and along the famous Avenue des Champs-Élysées. If the statue on the left side of the photo caught your eye, wave hello to King Louis XIV on horseback.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Arc de Triomphe du Carrousel and the Louvre Pyramid](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arc de Triomphe du Carrousel and the Louvre Pyramid](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_1080x1920.jpg) |1920.jpg) |53297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_1080x1920.jpg) |--------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SanBlasIslands_EN-US1442226155_1080x1920.jpg) |nload landscape 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_1080x1920.jpg) |1920.jpg) |53297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_1080x1920.jpg) |--------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |g.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
