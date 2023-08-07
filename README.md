@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230805
+
+> Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Meet the Atlantic puffin! Known as 'sea parrots' or 'clowns of the sea,' about 60% of all Atlantic puffins nest on the coasts of Iceland. If you visit between June and September, you might see baby puffins being flung off a cliff. Do not be alarmed! It's part of puffling season, a yearly tradition on Iceland's Westman Islands, home of the largest puffin colony in the world. Residents search with a flashlight for lost or wayward pufflings—baby puffins—around cliffs, harbors, and the seaside area. They pick them up with gloved hands, take them to a cliff before sundown, and toss them over the edge. Why? Well, the lights of the town can confuse pufflings, who use the light of the moon and stars to guide them to the ocean, where they live for much of the year. Residents are simply doing their part to ensure they find their way to their natural habitat.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Atlantic puffin, Iceland](https://cn.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Atlantic puffin, Iceland](https://cn.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_1080x1920.jpg) |
+
 ### 20230804
 
 > Tintern Abbey, Wales (© matthibcn/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Palouse farmland, Washington state](https://cn.bing.com/th?id=OHR.PalouseHills_EN-US1737990003_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Palouse farmland, Washington state](https://cn.bing.com/th?id=OHR.PalouseHills_EN-US1737990003_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalouseHills_EN-US1737990003_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalouseHills_EN-US1737990003_1080x1920.jpg) |
-
-### 20230729
-
-> Bengal tiger, Ranthambore National Park, India (© Andy Rouse/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> It's International Tiger Day! A day to celebrate these magnificent animals and consider how best they can be protected. The largest wild cats in the world, all tiger species are endangered, facing challenges including habitat loss, the illegal wildlife trade, and poaching. The Bengal tiger, an iconic subspecies primarily found in India, is the star of today's image. As apex predators, Bengal tigers play a vital role in maintaining ecological balance by controlling populations of deer, wild boar, and bison. With an estimated population in the wild of between 2,500 and 3,000, tiger conservation is crucial to secure the future of this majestic species.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![International Tiger Day](https://cn.bing.com/th?id=OHR.TigerIndia_EN-US1594590553_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Tiger Day](https://cn.bing.com/th?id=OHR.TigerIndia_EN-US1594590553_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerIndia_EN-US1594590553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerIndia_EN-US1594590553_1080x1920.jpg) |0_1080x1920.jpg) |1920.jpg) |53297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_1080x1920.jpg) |--------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |g.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalouseHills_EN-US1737990003_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalouseHills_EN-US1737990003_1080x1920.jpg) |OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |g.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
