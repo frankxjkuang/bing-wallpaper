@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230806
+
+> Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> This serene Japanese landscape is reflected in the still waters of an artificial reservoir known as Kagami-ike, meaning ‘mirror pond.' Surrounded by lush greenery and the Togakushi Mountain Range in Nagano Prefecture, Kagami-ike emerges from the morning mists to create an enchanting spectacle. During the cherry blossom season, visitors walk among sakura petals that float along the breeze while, in autumn, they can enjoy its surrounding orange and yellow foliage. This secluded spot is a wonderfully peaceful place for mindful meditation and self-reflection.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Kagami-ike, Nagano, Japan](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kagami-ike, Nagano, Japan](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_1080x1920.jpg) |
+
 ### 20230805
 
 > Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Rock House in Hocking Hills State Park, Ohio](https://cn.bing.com/th?id=OHR.RockHouse_EN-US1852534234_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rock House in Hocking Hills State Park, Ohio](https://cn.bing.com/th?id=OHR.RockHouse_EN-US1852534234_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RockHouse_EN-US1852534234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockHouse_EN-US1852534234_1080x1920.jpg) |
-
-### 20230730
-
-> Farmland in the Palouse, Washington (© EJ-J/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The Palouse region in the Pacific Northwest is known for its picturesque landscapes, agricultural heritage, and unique geological features. Those stunning hills in our homepage image were formed over tens of thousands of years, from dust and silt blown by the wind, known as loess. The Palouse's fertile soil and climate make it ideal for farming and it is known for its wheat, barley, lentils, and other crops. With its beautiful rolling hills covered in patchworks of green and golden fields, it is often compared to Italy's Tuscany region or the French countryside.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Palouse farmland, Washington state](https://cn.bing.com/th?id=OHR.PalouseHills_EN-US1737990003_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Palouse farmland, Washington state](https://cn.bing.com/th?id=OHR.PalouseHills_EN-US1737990003_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalouseHills_EN-US1737990003_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalouseHills_EN-US1737990003_1080x1920.jpg) |OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |g.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RockHouse_EN-US1852534234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockHouse_EN-US1852534234_1080x1920.jpg) |03_1080x1920.jpg) |OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |g.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
