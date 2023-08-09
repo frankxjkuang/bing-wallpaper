@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230807
+
+> Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Happy National Lighthouse Day! A beacon, a warning, and a symbol of hope and home, lighthouses have existed for thousands of years. The earliest known was the Pharos of Alexandria, which stood an estimated 330 feet tall. Built by the ancient Egyptians in the 3rd century BCE, an open fire was lit at its highest part to guide ships into port. Illumination technology advanced over the centuries, culminating in today's electric versions beaming light that can be seen from over 20 miles away. North Carolina's Bodie Island Lighthouse, pictured here, was built in 1872 and overlooks a section of ocean once known as the Graveyard of the Atlantic. Since then, it's been doing its best to outshine the stars above, as it guides sailors home to safe harbor.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |
+
 ### 20230806
 
 > Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Mountain Climbing Day](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Mountain Climbing Day](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_1080x1920.jpg) |
-
-### 20230731
-
-> Rock House, Hocking Hills State Park, Ohio (© Kenneth Keifer/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Ancient and beautiful, Rock House is the only true cave in Ohio's Hocking Hills State Park. This corridor, halfway up a 150-foot cliff, was carved by erosion and has offered shelter to various dwellers over different periods. Long before European settlers arrived, the area's Native American people are believed to have used Rock House as a refuge. Small recesses in the rock walls are thought to have been used as baking ovens, while troughs gouged in the cave's floor helped them to collect water. The walls of Rock House have seven window-like openings, allowing sunlight to filter through, casting beautiful patterns inside the cave and offering cliffside views over the trees for generations of Rock House dwellers.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Rock House in Hocking Hills State Park, Ohio](https://cn.bing.com/th?id=OHR.RockHouse_EN-US1852534234_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rock House in Hocking Hills State Park, Ohio](https://cn.bing.com/th?id=OHR.RockHouse_EN-US1852534234_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RockHouse_EN-US1852534234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockHouse_EN-US1852534234_1080x1920.jpg) |03_1080x1920.jpg) |OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |g.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_1080x1920.jpg) |pg) |03_1080x1920.jpg) |OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |g.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
