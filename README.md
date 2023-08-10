@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230808
+
+> Highways in Taipei, Taiwan (© Tavarius/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> This looping highway in Taipei bears a resemblance to the symbol of infinity—the concept of something without ends or limits that is celebrated today. Infinity Day is held on the eighth day of the eighth month, a nod to the symbol's likeness to a sideways figure-of-eight. Established in 1987 by a New York-based philosopher, Jean-Pierre Ady Fenyo, the day celebrates freedom of thinking in its various forms, from philosophy through the arts and sciences. The symbol itself has a much longer history. English mathematician John Wallis is credited with introducing it as a mathematical symbol in 1655. The philosophical concept of infinity dates back at least as far as ancient Greece.
+> 
+> Taipei, the capital of Taiwan, was founded in the 18th century. The city might seem remote due to its location at the northern tip of the island, but Taipei's industrial activity encouraged the construction of impressive highways and public transport systems. Its green areas and nature preserves are equally remarkable, creating an extraordinary aerial view of the parks and roads in surprising shapes.
+> 
+> 
+
+</details>
+
+| ![Infinity Day](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Infinity Day](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |
+
 ### 20230807
 
 > Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Capitol Reef National Park, Utah](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Capitol Reef National Park, Utah](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_1080x1920.jpg) |
-
-### 20230801
-
-> Climber on Denali, Denali National Park, Alaska (© Andrew Peacock/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Today is National Mountain Climbing Day, dedicated to celebrating the sport while highlighting its many risks and rewards. In a bid to scale the tallest peaks and conquer difficult terrain around the world, mountain climbers embark on physically strenuous journeys that demand exceptional training and experience. But the panoramic views and sense of achievement after reaching the summit makes the effort worthwhile. Our image today is that of Denali, North America's highest peak at 20,310 feet, in south-central Alaska. The name 'Denali' means 'the high one' in the native Athabascan language. Four climbers, Walter Harper, Harry Karstens, Robert Tatum, and Hudson Stuck, were the first to set foot on the top of the mountain in 1913.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![National Mountain Climbing Day](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Mountain Climbing Day](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_1080x1920.jpg) |pg) |03_1080x1920.jpg) |OHR.BridgeNorway_EN-US1530199433_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_1080x1920.jpg) |g.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_1080x1920.jpg) |astelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
