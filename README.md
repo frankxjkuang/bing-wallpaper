@@ -2,12 +2,12 @@
 
 ### 20230810
 
-> 马赛马拉的一头狮子，肯尼亚 (© Federico Veronesi/Minden Pictures)
+> A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 狮子被称作“丛林之王”，但是在今天，也就是世界狮子日，我们得纠正这个说法：狮子其实并不生活在丛林中。狮子是草原和平原的王者，是凶猛的猎手。当它们没有狩猎时，这些威武的生物又会显露出相当有欺骗性的可爱一面来。它们会小憩、打闹、互相梳理毛发，然后下一秒又会突然去追逐羚羊，甚至是河马。就像是1994年的经典电影《狮子王》的片头曲里面唱的，这就是生命的循环。
+> Lions are known as 'the king of the jungle,' but on World Lion Day, let's set the record straight: Lions don't live in the jungle. Lions lounge in lordly leisure and hunt with ferocious focus on grasslands and plains. When they're not hunting, these majestic creatures nap, wrestle, and groom each other. But in an instant, they're chasing down a hapless gazelle or a hippopotamus that's wandered too far from the safety of its river. Like the opening song of 'The Lion King' movie says, it's the circle of life. World Lion Day is our opportunity to (ahem) lionize these regal beasts and raise awareness of threats to their well-being like poaching, habitat destruction, and other human-lion conflicts.
 > 
 > 
 > 
@@ -15,18 +15,18 @@
 
 </details>
 
-| ![世界狮子日](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界狮子日](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Lion Day](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lion Day](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_1080x1920.jpg) |
 
 ### 20230809
 
-> 马苏阿的甜面包海蚀柱，撒丁岛，意大利 (© DaLiu/Getty Images)
+> Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 马苏阿是意大利伊格莱西亚斯市的一个小镇，周围环绕着地中海植物群，两侧是高耸的石灰岩悬崖。 那些喜欢钓鱼、浮潜或水肺潜水的人会喜欢这个位置，因为这里晶莹剔透的海水和极佳的能见度。然而，壮丽的甜面包海蚀柱是一个巨大的石堆，从海滩前的水面上浮现出来——事实证明是它是该海湾的主要景点。它的名字来源于巴西里约热内卢的一个命名为甜面包的海蚀柱岩层，由于与它惊人的相似，游客们都会与它联系在一起。尽管甜面包海蚀柱的表面积只有30平方米，但它却异常高大，高出海面133米。小岛的西北和东南两侧有天然的拱门和画廊，石头是在这些地方被侵蚀而雕刻出来的。 如果有人敢的话，一艘小船可以穿过那里的一条隧道。
+> Earth is home to an estimated 476 million Indigenous people, a term meaning 'sprung from the land' or native, which refers to the descendants of an area's first-known inhabitants. They represent about 6% of the global population but speak more than half of the world's estimated 7,000 languages. Our homepage today showcases the art of the Tiwi people of Australia, who speak a unique language unlinked to another other known language, in their community of only 2,000 people. Colonization has long impacted Indigenous people, contributing to high rates of poverty and loss of language and traditional lands. The UN first held the International Day of the World's Indigenous Peoples in 1994, and every August 9 they bring attention to the fight to preserve the rights, dignity, and existence of the world's oldest cultures.
 > 
 > 
 > 
@@ -34,37 +34,37 @@
 
 </details>
 
-| ![甜面包海蚀柱，撒丁岛，意大利](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![甜面包海蚀柱，撒丁岛，意大利](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_1080x1920.jpg) |
 
 ### 20230808
 
-> 五花海，阿坝九寨沟旅游景区，四川省，中国 (© Michael Ver Sprill/Getty Images)
+> Highways in Taipei, Taiwan (© Tavarius/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 在立秋的这一天，我们带您来欣赏一下九寨沟五花海绝美景色。中国的秋季景色堪称四季之最，树木层林尽染，叠翠流金。虽然酷热与凉爽的分水岭并不在立秋这一天，但是人们在经历了一个夏季的高温季节后，开始期待秋日的凉爽温度，也开始期待出门欣赏秋季的美景。
+> This looping highway in Taipei bears a resemblance to the symbol of infinity—the concept of something without ends or limits that is celebrated today. Infinity Day is held on the eighth day of the eighth month, a nod to the symbol's likeness to a sideways figure-of-eight. Established in 1987 by a New York-based philosopher, Jean-Pierre Ady Fenyo, the day celebrates freedom of thinking in its various forms, from philosophy through the arts and sciences. The symbol itself has a much longer history. English mathematician John Wallis is credited with introducing it as a mathematical symbol in 1655. The philosophical concept of infinity dates back at least as far as ancient Greece.
 > 
-> 九寨沟五花海之美在于能够在同一水域中呈现出鹅黄、墨绿、深蓝、藏青等色，色彩缤纷，是九寨沟各个景点中最为精彩的景点之一。进入秋季的九寨沟恍若童话世界，胜似人间仙境！翠海、叠瀑、彩林、雪峰，演绎着赤、橙、黄、绿、青、蓝、紫的梦幻组合，令人几乎不敢相信眼前的现实！
+> Taipei, the capital of Taiwan, was founded in the 18th century. The city might seem remote due to its location at the northern tip of the island, but Taipei's industrial activity encouraged the construction of impressive highways and public transport systems. Its green areas and nature preserves are equally remarkable, creating an extraordinary aerial view of the parks and roads in surprising shapes.
 > 
 > 
 
 </details>
 
-| ![五花海，九寨沟，中国四川省](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![五花海，九寨沟，中国四川省](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Infinity Day](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Infinity Day](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |
 
 ### 20230807
 
-> 博迪岛灯塔，马头城，北卡罗来纳州，美国 (© Michael Ver Sprill/Getty Images)
+> Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 作为信标、警告、亦是希望和回家的象征，灯塔已经存在了几千年。几个世纪以来，科技一直在进步，如今的灯塔技术远非几百年前的灯塔可比，人们在20英里之外就能看见现代灯塔的灯光。今天照片里展示的是始建于1872年的博迪岛灯塔，它俯瞰一片被称为大西洋坟场的海域。自建成之日起它就在和头顶群星争辉，指引水手回到安全的港湾。
+> Happy National Lighthouse Day! A beacon, a warning, and a symbol of hope and home, lighthouses have existed for thousands of years. The earliest known was the Pharos of Alexandria, which stood an estimated 330 feet tall. Built by the ancient Egyptians in the 3rd century BCE, an open fire was lit at its highest part to guide ships into port. Illumination technology advanced over the centuries, culminating in today's electric versions beaming light that can be seen from over 20 miles away. North Carolina's Bodie Island Lighthouse, pictured here, was built in 1872 and overlooks a section of ocean once known as the Graveyard of the Atlantic. Since then, it's been doing its best to outshine the stars above, as it guides sailors home to safe harbor.
 > 
 > 
 > 
@@ -72,18 +72,18 @@
 
 </details>
 
-| ![博迪岛灯塔，北卡罗来纳州，美国](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![博迪岛灯塔，北卡罗来纳州，美国](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |
 
 ### 20230806
 
-> 镜池，长野，日本 (© Shoji Fujita/Getty Images)
+> Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 迷人的镜池坐落在日本长野。水池周围清幽的环境完美倒映在这个人工水库的镜面般的湖水中。被郁郁葱葱的绿色植物和户隐山脉所包围的镜池，四季的风景都各有千秋。在樱花盛开的季节，瓣瓣樱花会随着微风在湖面起伏。秋日，周围橙黄的树木倒映在湖面上，仿佛湖中也有一片人间仙境。
+> This serene Japanese landscape is reflected in the still waters of an artificial reservoir known as Kagami-ike, meaning ‘mirror pond.' Surrounded by lush greenery and the Togakushi Mountain Range in Nagano Prefecture, Kagami-ike emerges from the morning mists to create an enchanting spectacle. During the cherry blossom season, visitors walk among sakura petals that float along the breeze while, in autumn, they can enjoy its surrounding orange and yellow foliage. This secluded spot is a wonderfully peaceful place for mindful meditation and self-reflection.
 > 
 > 
 > 
@@ -91,18 +91,18 @@
 
 </details>
 
-| ![镜池，长野，日本](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![镜池，长野，日本](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Kagami-ike, Nagano, Japan](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kagami-ike, Nagano, Japan](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_1080x1920.jpg) |
 
 ### 20230805
 
-> 大西洋海鹦，冰岛 (© Peter Hering/Minden Pictures)
+> Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 今天的照片中的海鹦拍摄于冰岛海岸。如果你在每年的6月到9月去冰岛旅游，你可能会看到小海鹦被扔下悬崖。不要被吓到，这是世界上最大的海鹦繁殖地——冰岛韦斯特曼纳群岛每年的传统：居民们用手电筒在悬崖、港口和海滨地区寻找被城镇灯光迷惑而误入歧途的海鹦宝宝。接着，他们会戴着手套把海鹦宝宝们捡起来，在日落之前把它们带到悬崖上，然后再把它们从悬崖上扔下去，这样海鹦宝宝们就可以奔向大海，回到它们的自然栖息地。
+> Meet the Atlantic puffin! Known as 'sea parrots' or 'clowns of the sea,' about 60% of all Atlantic puffins nest on the coasts of Iceland. If you visit between June and September, you might see baby puffins being flung off a cliff. Do not be alarmed! It's part of puffling season, a yearly tradition on Iceland's Westman Islands, home of the largest puffin colony in the world. Residents search with a flashlight for lost or wayward pufflings—baby puffins—around cliffs, harbors, and the seaside area. They pick them up with gloved hands, take them to a cliff before sundown, and toss them over the edge. Why? Well, the lights of the town can confuse pufflings, who use the light of the moon and stars to guide them to the ocean, where they live for much of the year. Residents are simply doing their part to ensure they find their way to their natural habitat.
 > 
 > 
 > 
@@ -110,18 +110,18 @@
 
 </details>
 
-| ![大西洋海鹦，冰岛](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大西洋海鹦，冰岛](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Atlantic puffin, Iceland](https://cn.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Atlantic puffin, Iceland](https://cn.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_1080x1920.jpg) |
 
 ### 20230804
 
-> 廷特恩修道院，威尔士 (© matthibcn/Getty Images)
+> Tintern Abbey, Wales (© matthibcn/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 位于威尔士蒙茅斯郡的廷特恩修道院有着悠久的历史。这座哥特式建筑杰作始建于1131年，最初是木结构的，后来人们又在1269年用石头重新修建了这座修道院。16世纪，亨利八世与天主教会决裂后，随着修道院的解散，这座建筑也被遗弃。在中世纪的历史上，这座修道院可谓是平平无奇。但在其后的几百年间，它复杂的建筑结构和周围浪漫的田园风光声名远播，如今，这座修道院已成为了英国的标志性建筑物。多年以来，从画家透纳到诗人威廉·华兹华斯，无数艺术家都被这座修道院吸引。
+> Set deep in a gorge of the UK's River Wye, Tintern Abbey has an enduring presence. Originally built in wood, this Gothic masterpiece in Monmouthshire, Wales, was rebuilt in stone in 1269. It was in use for centuries until the dissolution of the monasteries in the 1530s, when Henry VIII broke with the Catholic Church. The building fell into ruin but, as the centuries passed, word of its intricate stones and romantic, pastoral setting spread. From painter J. M. W. Turner to poet William Wordsworth, many artists were drawn to the abbey over the years. This majestic ruin is now a national icon on the Welsh bank of the River Wye, on the border between Wales and England. There's another abbey in County Wexford, Ireland, of the same name. Back in olden days, the one in Wales was often known as 'Tintern Major,' while the Ireland one was called 'Tintern de Voto' (Tintern of the Vow).
 > 
 > 
 > 
@@ -129,20 +129,9 @@
 
 </details>
 
-| ![廷特恩修道院，威尔士](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![廷特恩修道院，威尔士](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Tintern Abbey, Wales](https://cn.bing.com/th?id=OHR.GothicRuins_EN-US2341737381_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tintern Abbey, Wales](https://cn.bing.com/th?id=OHR.GothicRuins_EN-US2341737381_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1080x1920.jpg) |st is Capitol Reef National Park, a tapestry of towering cliffs, twisting canyons, colorful sandstone buttes, and sweeping desert landscapes. Less popular than Zion and Bryce Canyon, the park offers a pleasantly uncrowded experience for visitors keen to enjoy this spectacular landscape. It is also home to a wide variety of plants and animals, including the elusive desert bighorn sheep and more than 230 bird species. But its crown jewel is the nearly 100-mile long Waterpocket Fold, a 7,000-foot-high step in the rock layers, officially known as a monocline. This massive wrinkle on the surface of the planet was formed around 50 to 70 million years ago.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Capitol Reef National Park, Utah](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Capitol Reef National Park, Utah](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_1080x1920.jpg) |astelmazzanoSunrise_EN-US9968041695_1080x1920.jpg) |.BlacktipSharks_EN-US9224288033_1080x1920.jpg) |NakupendaBeach_EN-US3130365422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GothicRuins_EN-US2341737381_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GothicRuins_EN-US2341737381_1080x1920.jpg) |-----:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
