@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230812
+
+> Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> These giants are the largest land animals on Earth, African bush elephants, which can reach 13 feet in shoulder height and weigh as much as 11 tons. They are one of three living species of elephant, alongside their smaller relatives, the African forest elephant and the Asian elephant. Their immense size is not the only incredible thing about them. Studies suggest that elephants can recognize themselves in the mirror and that these mammals display emotions such as grief when they lose family members. World Elephant Day—held on August 12—was set up to admire them but also to highlight the difficulties they face. Amboseli National Park in Kenya—where this photograph was taken—is one of the few remaining habitats where African elephant herds can still be found in large numbers.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![World Elephant Day](https://cn.bing.com/th?id=OHR.ThreeElephants_EN-US3930300492_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Elephant Day](https://cn.bing.com/th?id=OHR.ThreeElephants_EN-US3930300492_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThreeElephants_EN-US3930300492_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThreeElephants_EN-US3930300492_1080x1920.jpg) |
+
 ### 20230811
 
 > 'Gateway Pool' art installation at Jupiter Artland sculpture park, Edinburgh, Scotland (© Owen Humphreys/PA Images/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Kagami-ike, Nagano, Japan](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kagami-ike, Nagano, Japan](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_1080x1920.jpg) |
-
-### 20230805
-
-> Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Meet the Atlantic puffin! Known as 'sea parrots' or 'clowns of the sea,' about 60% of all Atlantic puffins nest on the coasts of Iceland. If you visit between June and September, you might see baby puffins being flung off a cliff. Do not be alarmed! It's part of puffling season, a yearly tradition on Iceland's Westman Islands, home of the largest puffin colony in the world. Residents search with a flashlight for lost or wayward pufflings—baby puffins—around cliffs, harbors, and the seaside area. They pick them up with gloved hands, take them to a cliff before sundown, and toss them over the edge. Why? Well, the lights of the town can confuse pufflings, who use the light of the moon and stars to guide them to the ocean, where they live for much of the year. Residents are simply doing their part to ensure they find their way to their natural habitat.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Atlantic puffin, Iceland](https://cn.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Atlantic puffin, Iceland](https://cn.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_1080x1920.jpg) |-:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_1080x1920.jpg) |?id=OHR.AtlanticPuffin_EN-US6337041297_1080x1920.jpg) |-:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
