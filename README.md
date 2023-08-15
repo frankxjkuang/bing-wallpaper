@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230813
+
+> Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> What must our ancestors have thought when they saw meteors light up the night sky? Was it terrifying or an event of wonder? Thankfully, we now know that this celestial cascade is a harmless annual event. The Perseid meteor shower thrills stargazers from mid-July to late August and is due to peak today. The Perseids are caused by Earth passing through debris left behind by the Comet Swift-Tuttle. When the cosmic debris hits our atmosphere, it disintegrates in a colorful, fiery light display. It's a good night to catch the Perseids if you can—the moon is projected to only be 10% illuminated, so the meteors should really stand out against the dark sky.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Perseid meteor shower over Oregon](https://cn.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Perseid meteor shower over Oregon](https://cn.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_1080x1920.jpg) |
+
 ### 20230812
 
 > Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |
-
-### 20230806
-
-> Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This serene Japanese landscape is reflected in the still waters of an artificial reservoir known as Kagami-ike, meaning ‘mirror pond.' Surrounded by lush greenery and the Togakushi Mountain Range in Nagano Prefecture, Kagami-ike emerges from the morning mists to create an enchanting spectacle. During the cherry blossom season, visitors walk among sakura petals that float along the breeze while, in autumn, they can enjoy its surrounding orange and yellow foliage. This secluded spot is a wonderfully peaceful place for mindful meditation and self-reflection.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Kagami-ike, Nagano, Japan](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kagami-ike, Nagano, Japan](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_1080x1920.jpg) |?id=OHR.AtlanticPuffin_EN-US6337041297_1080x1920.jpg) |-:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
