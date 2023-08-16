@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230814
+
+> Tiny gecko on a leaf (© Darren Greenwood/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> When trying to draw attention to World Lizard Day, you don't want to lead off with a scary Gila monster or monitor lizard. Nope, what you want front and center is a cute little gecko like the one we see here. Geckos come in varying sizes across 1,500 species and are unique among lizards for their vocalizations for mating, distress, and social interactions.
+> 
+> World Lizard Day might not be a big event for most of us, but it is important: These reptiles are threatened worldwide, and as both predators and prey, they are a critical part of ecosystems. So today let's think about our scaled friends, and if you're thinking about getting a pet, why not a lizard? Leopard geckos and bearded dragons are among the most beginner-friendly lizards to own.
+> 
+> 
+
+</details>
+
+| ![World Lizard Day](https://cn.bing.com/th?id=OHR.GeckoLeaf_EN-US4138920498_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lizard Day](https://cn.bing.com/th?id=OHR.GeckoLeaf_EN-US4138920498_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GeckoLeaf_EN-US4138920498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GeckoLeaf_EN-US4138920498_1080x1920.jpg) |
+
 ### 20230813
 
 > Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Infinity Day](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Infinity Day](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |
-
-### 20230807
-
-> Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Happy National Lighthouse Day! A beacon, a warning, and a symbol of hope and home, lighthouses have existed for thousands of years. The earliest known was the Pharos of Alexandria, which stood an estimated 330 feet tall. Built by the ancient Egyptians in the 3rd century BCE, an open fire was lit at its highest part to guide ships into port. Illumination technology advanced over the centuries, culminating in today's electric versions beaming light that can be seen from over 20 miles away. North Carolina's Bodie Island Lighthouse, pictured here, was built in 1872 and overlooks a section of ocean once known as the Graveyard of the Atlantic. Since then, it's been doing its best to outshine the stars above, as it guides sailors home to safe harbor.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |m/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
