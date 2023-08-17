@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230815
+
+> Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to Taormina, an historic Italian resort built into a hillside high above the Ionian Sea on the coast of Sicily. From here you can take in panoramic views of the coast of Calabria, on the Italian mainland, the city of Syracuse, and Mount Etna, roughly 20 miles away.
+> 
+> Our homepage image shows the town's main square, the Piazza IX Aprile, with a Baroque church and bell tower, the Chiesa di San Giuseppe, and an historic clock tower. The square is seen as an elegant 'public living room' with many outdoor bars and artists waiting to paint your portrait.
+> 
+> 
+
+</details>
+
+| ![Piazza IX Aprile, Taormina, Sicily, Italy](https://cn.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Piazza IX Aprile, Taormina, Sicily, Italy](https://cn.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_1080x1920.jpg) |
+
 ### 20230814
 
 > Tiny gecko on a leaf (© Darren Greenwood/Alamy)
@@ -113,22 +132,6 @@
 | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_1080x1920.jpg) |
-
-### 20230808
-
-> Highways in Taipei, Taiwan (© Tavarius/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> This looping highway in Taipei bears a resemblance to the symbol of infinity—the concept of something without ends or limits that is celebrated today. Infinity Day is held on the eighth day of the eighth month, a nod to the symbol's likeness to a sideways figure-of-eight. Established in 1987 by a New York-based philosopher, Jean-Pierre Ady Fenyo, the day celebrates freedom of thinking in its various forms, from philosophy through the arts and sciences. The symbol itself has a much longer history. English mathematician John Wallis is credited with introducing it as a mathematical symbol in 1655. The philosophical concept of infinity dates back at least as far as ancient Greece.
-> 
-> Taipei, the capital of Taiwan, was founded in the 18th century. The city might seem remote due to its location at the northern tip of the island, but Taipei's industrial activity encouraged the construction of impressive highways and public transport systems. Its green areas and nature preserves are equally remarkable, creating an extraordinary aerial view of the parks and roads in surprising shapes.
-> 
-> 
-
-</details>
-
 | ![Infinity Day](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Infinity Day](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |m/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
