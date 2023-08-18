@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230816
+
+> Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)
+
+<details>
+<summary>Description</summary>
+
+> Once upon a time, there lived a wealthy industrialist, Henry Flagler, who embarked on the herculean task of creating an overseas railway connecting mainland Florida to Key West. When it opened in 1912, it was dubbed the Eighth Wonder of the World. However, the triumph was short-lived. It was hit by a hurricane on Labor Day, 1935 and the railroad discontinued operations. The railway was sold to the US government and rebuilt as an automobile highway, opening in 1938.
+> 
+> These days, the Overseas Highway still stretches about 113 miles through the Florida Keys over 42 bridges, which jump from island to island over the Atlantic Ocean, Florida Bay, and the Gulf of Mexico. Many of the original bridges were replaced in 1982, including the longest, the Seven Mile Bridge pictured in the distance in our homepage image. Drivers crossing the Overseas Highway can still see remnants of some of the old bridges running alongside their replacements, including the Old Seven Mile Bridge, a section of which was renovated for cyclists and pedestrians. An engineering marvel, the ‘highway that goes to sea' has also featured in blockbusters like 'License to Kill' and 'True Lies.'
+> 
+> 
+
+</details>
+
+| ![Overseas Highway, Florida Keys](https://cn.bing.com/th?id=OHR.KeyWestBridge_EN-US9752501933_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Overseas Highway, Florida Keys](https://cn.bing.com/th?id=OHR.KeyWestBridge_EN-US9752501933_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KeyWestBridge_EN-US9752501933_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KeyWestBridge_EN-US9752501933_1080x1920.jpg) |
+
 ### 20230815
 
 > Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)
@@ -112,29 +131,7 @@
 
 | ![World Lion Day](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lion Day](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_1080x1920.jpg) |
-
-### 20230809
-
-> Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Earth is home to an estimated 476 million Indigenous people, a term meaning 'sprung from the land' or native, which refers to the descendants of an area's first-known inhabitants. They represent about 6% of the global population but speak more than half of the world's estimated 7,000 languages. Our homepage today showcases the art of the Tiwi people of Australia, who speak a unique language unlinked to another other known language, in their community of only 2,000 people. Colonization has long impacted Indigenous people, contributing to high rates of poverty and loss of language and traditional lands. The UN first held the International Day of the World's Indigenous Peoples in 1994, and every August 9 they bring attention to the fight to preserve the rights, dignity, and existence of the world's oldest cultures.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_1080x1920.jpg) |
-| ![Infinity Day](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Infinity Day](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |m/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_1080x1920.jpg) |wnload landscape 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |m/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
