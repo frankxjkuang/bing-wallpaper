@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230817
+
+> Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> We're looking at sequoia trees in Sequoia and Kings Canyon National Parks, California—the two parks border each other in the Sierra Nevada range in Central California. These giant sequoias can grow nearly 300 feet tall and some specimens have lived more than 3,000 years. Their longevity—even in areas prone to wildfires—is helped by thick bark that's full of fire-resistant tannins.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Things are looking up](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Things are looking up](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_1080x1920.jpg) |
+
 ### 20230816
 
 > Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)
@@ -112,24 +131,7 @@
 
 | ![Edinburgh Art Festival](https://cn.bing.com/th?id=OHR.JupiterArtland_EN-US8317170258_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Edinburgh Art Festival](https://cn.bing.com/th?id=OHR.JupiterArtland_EN-US8317170258_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JupiterArtland_EN-US8317170258_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JupiterArtland_EN-US8317170258_1080x1920.jpg) |
-
-### 20230810
-
-> A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Lions are known as 'the king of the jungle,' but on World Lion Day, let's set the record straight: Lions don't live in the jungle. Lions lounge in lordly leisure and hunt with ferocious focus on grasslands and plains. When they're not hunting, these majestic creatures nap, wrestle, and groom each other. But in an instant, they're chasing down a hapless gazelle or a hippopotamus that's wandered too far from the safety of its river. Like the opening song of 'The Lion King' movie says, it's the circle of life. World Lion Day is our opportunity to (ahem) lionize these regal beasts and raise awareness of threats to their well-being like poaching, habitat destruction, and other human-lion conflicts.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![World Lion Day](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lion Day](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JupiterArtland_EN-US8317170258_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JupiterArtland_EN-US8317170258_1080x1920.jpg) |w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_1080x1920.jpg) |wnload landscape 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |m/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
