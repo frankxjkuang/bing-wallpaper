@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230818
+
+> 'Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> These stunning stone spires, rising from the forest in China's Hunan province, are said to have inspired the floating mountains of the movie 'Avatar.' There are more than 3,000 of these quartz-sandstone pillars in Zhangjiajie National Forest Park, often swathed in mist, part of a spectacular landscape that has inspired generations of painters. These days, they are popularly known as the 'Avatar Mountains' and one, the 3,544-foot-high Southern Sky Pillar, was officially renamed as 'Avatar Hallelujah Mountain' in 2010, the year after the blockbuster movie was released.
+> 
+> The spires sit within the wider Wulingyuan Scenic and Historic Interest Area, a UNESCO World Heritage Site, and attract millions of tourists each year who come to marvel at their otherworldly beauty. The park is dotted with numerous hiking trails and glass-bottomed skywalks, allowing visitors to enjoy panoramic views of this natural wonder.
+> 
+> 
+
+</details>
+
+| !['Avatar Mountains,' Zhangjiajie National Forest Park, China](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | !['Avatar Mountains,' Zhangjiajie National Forest Park, China](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_1080x1920.jpg) |
+
 ### 20230817
 
 > Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![World Elephant Day](https://cn.bing.com/th?id=OHR.ThreeElephants_EN-US3930300492_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Elephant Day](https://cn.bing.com/th?id=OHR.ThreeElephants_EN-US3930300492_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThreeElephants_EN-US3930300492_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThreeElephants_EN-US3930300492_1080x1920.jpg) |
-
-### 20230811
-
-> 'Gateway Pool' art installation at Jupiter Artland sculpture park, Edinburgh, Scotland (© Owen Humphreys/PA Images/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> It might look futuristic, but this stunning pool was created a few years ago at the Jupiter Artland sculpture garden near Edinburgh, for the Scottish city's annual art festival. Nearly 30 feet wide, 'Gateway' is both a landscape sculpture and a functioning swimming pool. It was made by the artist Joana Vasconcelos from over 11,000 hand-painted tiles, produced in a traditional ceramic workshop in Portugal.
-> 
-> Today is the first day of this year's Edinburgh Art Festival, which runs for two weeks and features events and exhibitions by both established artists and emerging talents. August is festival season in Scotland's capital city, which is also hosting its international festival, the famous Edinburgh Festival Fringe, the Royal Edinburgh Military Tattoo, and the city's international book and film festivals.
-> 
-> 
-
-</details>
-
-| ![Edinburgh Art Festival](https://cn.bing.com/th?id=OHR.JupiterArtland_EN-US8317170258_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Edinburgh Art Festival](https://cn.bing.com/th?id=OHR.JupiterArtland_EN-US8317170258_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JupiterArtland_EN-US8317170258_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JupiterArtland_EN-US8317170258_1080x1920.jpg) |w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_1080x1920.jpg) |wnload landscape 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |m/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThreeElephants_EN-US3930300492_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThreeElephants_EN-US3930300492_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_1080x1920.jpg) |wnload landscape 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |m/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
