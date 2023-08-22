@@ -1,51 +1,89 @@
 ## bing wallpaper
 
-### 20230819
+### 20230821
 
-> Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)
+> 翡翠湖，加拿大育空地区 (© artherng/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> On August 19, 1839, French artist and photographer Louis-Jacques-Mandé Daguerre made public his invention that created an image using a silver-plated copper sheet and mercury vapor. The daguerreotype process became the first publicly available photographic process and was used throughout the 1840s and 1850s.
+> 发现日是加拿大育空地区的一个年度节日，用来纪念1896年在富矿溪发现金矿，这个发现开启了克朗代克淘金热，进而推动了育空领地的建立。淘金热吸引了数以千计的淘金者来此寻找财富，推动了重大的经济和社会变革。
 > 
-> Today, August 19 is World Photography Day, promoting the art as a means of storytelling, creative expression, and cultural preservation. The world of photography is vast and captures many subjects and styles on camera, from abstract and fashion photography to landscapes and wildlife, like this cheeky squirrel here. Some seek to keep the charm and artistry of old-fashioned photography alive, though digital cameras and smartphones give everyone the opportunity to capture great photos, sometimes in unexpected places.
+> 发现日是一个纪念和回顾育空地区丰富的遗产、历史和自然资源的好机会，我们今天在照片中看到的美丽的翡翠湖就是其中之一。发现日也是一个用来纪念参与了克朗代克淘金热的淘金者们的冒险精神和坚毅品格的日子。整个育空地区会在这天举办各式节庆活动，包括游行、历史情景重现、淘金比赛、演唱会等等。政府办公室、学校和很多商业机构也会在这一天关闭，以便居民们可以参与到节日活动中来。
 > 
 > 
 
 </details>
 
-| ![World Photography Day](https://cn.bing.com/th?id=OHR.CameraSquirrel_EN-US0174540169_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Photography Day](https://cn.bing.com/th?id=OHR.CameraSquirrel_EN-US0174540169_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![加拿大的发现日](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![加拿大的发现日](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CameraSquirrel_EN-US0174540169_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CameraSquirrel_EN-US0174540169_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1080x1920.jpg) |
+
+### 20230820
+
+> 起点灯塔，德文郡，英国 (© Guy Edwardes/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> 每年8月的第三个周末，世界各地的灯塔爱好者和航海历史爱好者都会聚在一起庆祝国际灯塔周，纪念这些标志性建筑的悠久历史和关键作用。人们可以走进这些灯塔，亲眼见证这些巨大的灯塔通过将灯光、仪器和精密的工程技术巧妙地结合在一起来发挥作用。
+> 
+> 起点灯塔就是这些灯塔中的一座，它高高地矗立在英国德文郡崎岖的悬崖上，俯瞰着英吉利海峡。这座优雅的灯塔建于1836年，由英国土木工程师詹姆斯·沃克设计，其明亮的光束指引着船只安全通行。这个日子也提醒着我们，灯塔在航海历史中起到的重要作用。
+> 
+> 
+
+</details>
+
+| ![国际灯塔周](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际灯塔周](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1080x1920.jpg) |
+
+### 20230819
+
+> 看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 1839年的8月19日，法国画家达盖尔公布了其发明的达盖尔摄影法，即银版摄影法，这被认为是最早的具有实用价值的摄影法。因此每年的8月19日被定位世界摄影日。摄影的世界是广阔的，专业人士和业余爱好者所涉足的摄影主题和风格也是多种多样的。无论是抽象还是时尚，抑或是风景和野生动物，都可以成为摄影的主题。图上这只厚脸皮的松鼠就是一个例子。尽管随着数码相机和智能手机的问世，达盖尔摄影法之类的老式摄影法早已过时，但却仍有一些摄影师还在竭力保持老式摄影的魅力和艺术性。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![世界摄影日](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界摄影日](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_1080x1920.jpg) |
 
 ### 20230818
 
-> 'Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)
+> 哈利路亚山，张家界国家森林公园，中国 (© Amazing Aerial Premium/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> These stunning stone spires, rising from the forest in China's Hunan province, are said to have inspired the floating mountains of the movie 'Avatar.' There are more than 3,000 of these quartz-sandstone pillars in Zhangjiajie National Forest Park, often swathed in mist, part of a spectacular landscape that has inspired generations of painters. These days, they are popularly known as the 'Avatar Mountains' and one, the 3,544-foot-high Southern Sky Pillar, was officially renamed as 'Avatar Hallelujah Mountain' in 2010, the year after the blockbuster movie was released.
+> 哈利路亚山是位于中国湖南省张家界国家森林公园内的一处胜景。这些石柱曾出现在电影《阿凡达》中，那些高耸的石英砂岩峰林正是悬浮山的灵感来源。2010年1月25日，张家界南天一柱被更名为《阿凡达》哈利路亚山。据了解，电影《阿凡达》中“潘多拉星球”中的大量原型来源于张家界群山，其中“南天一柱”图片就成为“哈利路亚山”即悬浮山的原型。1992年，包括“南天一柱”（哈利路亚山）在内的武陵源风景名胜区被联合国教科文组织列为世界遗产。现在，这个地方每年都吸引着数百万的游客前来欣赏该地引入入胜的美景。此外，公园里还分布着许多徒步小径和玻璃悬空栈道，以便游客们欣赏哈利路亚山的全景。
 > 
-> The spires sit within the wider Wulingyuan Scenic and Historic Interest Area, a UNESCO World Heritage Site, and attract millions of tourists each year who come to marvel at their otherworldly beauty. The park is dotted with numerous hiking trails and glass-bottomed skywalks, allowing visitors to enjoy panoramic views of this natural wonder.
+> 
 > 
 > 
 
 </details>
 
-| !['Avatar Mountains,' Zhangjiajie National Forest Park, China](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | !['Avatar Mountains,' Zhangjiajie National Forest Park, China](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![哈利路亚山，张家界国家森林公园，中国](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![哈利路亚山，张家界国家森林公园，中国](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_1080x1920.jpg) |
 
 ### 20230817
 
-> Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)
+> 罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省 (© Laurens Verhoeven/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> We're looking at sequoia trees in Sequoia and Kings Canyon National Parks, California—the two parks border each other in the Sierra Nevada range in Central California. These giant sequoias can grow nearly 300 feet tall and some specimens have lived more than 3,000 years. Their longevity—even in areas prone to wildfires—is helped by thick bark that's full of fire-resistant tannins.
+> 罕肯瀑布 (Helmcken Falls) 坐落在威尔斯格雷省立公园 (Wells Gray Province Park) 内，是一处令人惊叹的自然奇观。 威尔斯格雷省立公园就是为了保护这座优美的瀑布而建立的。为政府工作的土地测量员罗伯特·亨利·李发现了这处大自然带给我们的天然珍宝。这座雄伟的瀑布是加拿大第五高的瀑布，从陡峭的大约有141米的高度火山岩悬崖上倾泻而下，释放出飘逸的雾气，在阳光下翩翩起舞，也形成了彩虹与瀑布相互映衬的绝美景观。
 > 
 > 
 > 
@@ -53,83 +91,47 @@
 
 </details>
 
-| ![Things are looking up](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Things are looking up](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![罕肯瀑布,威尔斯格雷省立公园](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![罕肯瀑布,威尔斯格雷省立公园](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1080x1920.jpg) |
 
 ### 20230816
 
-> Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)
+> 基韦斯特的七英里大桥，佛罗里达州，美国 (© Evgeny Vasenev/Cavan Images)
 
 <details>
 <summary>Description</summary>
 
-> Once upon a time, there lived a wealthy industrialist, Henry Flagler, who embarked on the herculean task of creating an overseas railway connecting mainland Florida to Key West. When it opened in 1912, it was dubbed the Eighth Wonder of the World. However, the triumph was short-lived. It was hit by a hurricane on Labor Day, 1935 and the railroad discontinued operations. The railway was sold to the US government and rebuilt as an automobile highway, opening in 1938.
+> 很久很久以前，佛罗里达州住着一位富有的实业家，名叫亨利·弗拉格勒。他启动了一项艰巨的工程：修建一条连接佛罗里达大陆和基韦斯特的跨海铁路。最终，七英里桥于1912年正式落成，被称为世界第八大奇迹。然而，奇迹并不长久，1935年，这座大桥遭遇飓风从而停止了运营。后来，这座桥被卖给了美国政府，经历重建后摇身一变，成了一条汽车高速公路，于1938年重新开放。
 > 
-> These days, the Overseas Highway still stretches about 113 miles through the Florida Keys over 42 bridges, which jump from island to island over the Atlantic Ocean, Florida Bay, and the Gulf of Mexico. Many of the original bridges were replaced in 1982, including the longest, the Seven Mile Bridge pictured in the distance in our homepage image. Drivers crossing the Overseas Highway can still see remnants of some of the old bridges running alongside their replacements, including the Old Seven Mile Bridge, a section of which was renovated for cyclists and pedestrians. An engineering marvel, the ‘highway that goes to sea' has also featured in blockbusters like 'License to Kill' and 'True Lies.'
+> 如今，你若到访这座久负盛名的七英里桥，你会发现两座桥：一座是老七英里桥，仅对行人和骑自行车的人开放，另一座是于1982年建成的新七英里桥，用于车辆通行。好莱坞大片《杀人执照》和《真实的谎言》中都曾出现过这座桥的身影。
 > 
 > 
 
 </details>
 
-| ![Overseas Highway, Florida Keys](https://cn.bing.com/th?id=OHR.KeyWestBridge_EN-US9752501933_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Overseas Highway, Florida Keys](https://cn.bing.com/th?id=OHR.KeyWestBridge_EN-US9752501933_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![七英里大桥，佛罗里达州，美国](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![七英里大桥，佛罗里达州，美国](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KeyWestBridge_EN-US9752501933_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KeyWestBridge_EN-US9752501933_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1080x1920.jpg) |
 
 ### 20230815
 
-> Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)
+> 四月九日广场，陶尔米纳，西西里岛，意大利 (© rudi1976/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> Welcome to Taormina, an historic Italian resort built into a hillside high above the Ionian Sea on the coast of Sicily. From here you can take in panoramic views of the coast of Calabria, on the Italian mainland, the city of Syracuse, and Mount Etna, roughly 20 miles away.
+> 陶尔米纳，一颗镶嵌在西西里岛上的美丽明珠，毗邻古希腊殖民地纳克索斯，被爱奥尼亚海和风景如画的伊索拉贝拉岛所环绕。自19世纪以来，这个美丽的小镇一直是旅游胜地。
 > 
-> Our homepage image shows the town's main square, the Piazza IX Aprile, with a Baroque church and bell tower, the Chiesa di San Giuseppe, and an historic clock tower. The square is seen as an elegant 'public living room' with many outdoor bars and artists waiting to paint your portrait.
+> 陶尔米纳的中心便是四月九日广场，广场四周布满各种风格的咖啡馆、小酒吧以及正在为游客画像的浪漫艺术家。你可以坐下来喝杯卡布奇诺，享受陶尔米纳的轻松度假氛围，也可以站在阳台上可以远眺埃特纳山、陶尔米纳古剧场遗址和纳克索斯湾的壮丽景色。
 > 
 > 
 
 </details>
 
-| ![Piazza IX Aprile, Taormina, Sicily, Italy](https://cn.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Piazza IX Aprile, Taormina, Sicily, Italy](https://cn.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![四月九日广场，陶尔米纳，意大利](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![四月九日广场，陶尔米纳，意大利](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_1080x1920.jpg) |
-
-### 20230814
-
-> Tiny gecko on a leaf (© Darren Greenwood/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> When trying to draw attention to World Lizard Day, you don't want to lead off with a scary Gila monster or monitor lizard. Nope, what you want front and center is a cute little gecko like the one we see here. Geckos come in varying sizes across 1,500 species and are unique among lizards for their vocalizations for mating, distress, and social interactions.
-> 
-> World Lizard Day might not be a big event for most of us, but it is important: These reptiles are threatened worldwide, and as both predators and prey, they are a critical part of ecosystems. So today let's think about our scaled friends, and if you're thinking about getting a pet, why not a lizard? Leopard geckos and bearded dragons are among the most beginner-friendly lizards to own.
-> 
-> 
-
-</details>
-
-| ![World Lizard Day](https://cn.bing.com/th?id=OHR.GeckoLeaf_EN-US4138920498_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lizard Day](https://cn.bing.com/th?id=OHR.GeckoLeaf_EN-US4138920498_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GeckoLeaf_EN-US4138920498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GeckoLeaf_EN-US4138920498_1080x1920.jpg) |
-
-### 20230813
-
-> Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> What must our ancestors have thought when they saw meteors light up the night sky? Was it terrifying or an event of wonder? Thankfully, we now know that this celestial cascade is a harmless annual event. The Perseid meteor shower thrills stargazers from mid-July to late August and is due to peak today. The Perseids are caused by Earth passing through debris left behind by the Comet Swift-Tuttle. When the cosmic debris hits our atmosphere, it disintegrates in a colorful, fiery light display. It's a good night to catch the Perseids if you can—the moon is projected to only be 10% illuminated, so the meteors should really stand out against the dark sky.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Perseid meteor shower over Oregon](https://cn.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Perseid meteor shower over Oregon](https://cn.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1080x1920.jpg) |=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_1080x1920.jpg) |th?id=OHR.WorldLionDay_EN-US3311213683_1080x1920.jpg) |wnload landscape 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |m/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
