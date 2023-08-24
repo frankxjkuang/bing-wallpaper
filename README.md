@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230823
+
+> 斯科加瀑布，冰岛 (© Maridav/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> 今天照片里的是冰岛的斯科加瀑布，它是冰岛最大的瀑布之一，有82英尺宽，垂直落差约200英尺。游客经常能在这里看到彩虹，甚至是双彩虹。传说，第一个踏足冰岛的维京人曾把一个宝箱藏在了斯科加瀑布后面，这又为这个瀑布增添了一丝神秘色彩。
+> 
+> 这个瀑布在很多热门影视作品中都出现过，比如《雷神：黑暗世界》《慷慨的心》《权力的游戏》等等。瀑布附近还有一个斯科加博物馆，可以让人们了解冰岛的文化遗产。
+> 
+> 
+
+</details>
+
+| ![斯科加瀑布，冰岛](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![斯科加瀑布，冰岛](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1080x1920.jpg) |
+
 ### 20230822
 
 > 埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![罕肯瀑布,威尔斯格雷省立公园](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![罕肯瀑布,威尔斯格雷省立公园](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1080x1920.jpg) |
-
-### 20230816
-
-> 基韦斯特的七英里大桥，佛罗里达州，美国 (© Evgeny Vasenev/Cavan Images)
-
-<details>
-<summary>Description</summary>
-
-> 很久很久以前，佛罗里达州住着一位富有的实业家，名叫亨利·弗拉格勒。他启动了一项艰巨的工程：修建一条连接佛罗里达大陆和基韦斯特的跨海铁路。最终，七英里桥于1912年正式落成，被称为世界第八大奇迹。然而，奇迹并不长久，1935年，这座大桥遭遇飓风从而停止了运营。后来，这座桥被卖给了美国政府，经历重建后摇身一变，成了一条汽车高速公路，于1938年重新开放。
-> 
-> 如今，你若到访这座久负盛名的七英里桥，你会发现两座桥：一座是老七英里桥，仅对行人和骑自行车的人开放，另一座是于1982年建成的新七英里桥，用于车辆通行。好莱坞大片《杀人执照》和《真实的谎言》中都曾出现过这座桥的身影。
-> 
-> 
-
-</details>
-
-| ![七英里大桥，佛罗里达州，美国](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![七英里大桥，佛罗里达州，美国](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1080x1920.jpg) |ing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1080x1920.jpg) |cn.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_1080x1920.jpg) |th?id=OHR.WorldLionDay_EN-US3311213683_1080x1920.jpg) |wnload landscape 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |m/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
