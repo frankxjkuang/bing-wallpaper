@@ -2,126 +2,126 @@
 
 ### 20230823
 
-> 斯科加瀑布，冰岛 (© Maridav/Shutterstock)
+> Skógafoss waterfall, Iceland (© Maridav/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 今天照片里的是冰岛的斯科加瀑布，它是冰岛最大的瀑布之一，有82英尺宽，垂直落差约200英尺。游客经常能在这里看到彩虹，甚至是双彩虹。传说，第一个踏足冰岛的维京人曾把一个宝箱藏在了斯科加瀑布后面，这又为这个瀑布增添了一丝神秘色彩。
+> Behold Skógafoss, one of Iceland’s largest waterfalls. This powerful cascade measures 82 feet across and drops 200 feet over what were once the sea cliffs of the country’s southern coast. The coastline receded seaward, but the cliffs remained, leaving behind this natural wonder, powered by water from two glaciers. Skógafoss, which translates as 'forest waterfall,' is frequently graced with single or double rainbows, formed by the refraction of sunlight through the mist. Legend has it that a treasure chest is hidden behind Skógafoss, left there by a Viking settler named Prasi Porolfsson.
 > 
-> 这个瀑布在很多热门影视作品中都出现过，比如《雷神：黑暗世界》《慷慨的心》《权力的游戏》等等。瀑布附近还有一个斯科加博物馆，可以让人们了解冰岛的文化遗产。
+> The waterfall has appeared on the big screen, in 'Thor: The Dark World' and the Bollywood movie 'Dilwale,' as well as on TV in the final season of 'Game of Thrones.' The Skógar Museum, which offers insights into Iceland's cultural heritage, sits near the waterfall in Skógar village.
 > 
 > 
 
 </details>
 
-| ![斯科加瀑布，冰岛](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![斯科加瀑布，冰岛](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Skógafoss waterfall, Iceland](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_EN-US0919190171_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Skógafoss waterfall, Iceland](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_EN-US0919190171_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_EN-US0919190171_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_EN-US0919190171_1080x1920.jpg) |
 
 ### 20230822
 
-> 埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images)
+> Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 埃尔杰姆露天剧场位于突尼斯东部小城镇艾尔杰姆，始建于公元3世纪的罗马帝国时期，以其令人惊叹的建筑设计闻名。它由巨石砌成，可以容纳35000名观众，至今仍然是世界上最大的露天剧场之一。这座露天剧场自1979年就被列为联合国教科文组织世界遗产地，被认为是世界上保存最完好的罗马建筑之一，在体量和设计上几乎可以和罗马竞技场比肩。
+> This impressive structure is the Amphitheatre of El Jem, in the Tunisian town of the same name. Made entirely from stone blocks, it was built in the 3rd century CE, when this area was Thysdrus, a city of ancient Rome. Once capable of seating up to 35,000 spectators, it is the largest colosseum in North Africa and one of the largest in the world. A UNESCO World Heritage Site since 1979, it is one of the best-preserved Roman amphitheatres, almost equal in grandeur to the Colosseum in Rome.
 > 
-> 剧场地下有着复杂的隧道系统，对游客开放参观。尽管历史悠久，剧场的地面仍然保存完好，游客还可以在上面行走，代入一下古代表演者的体验。
+> Beneath the arena, there is an extensive underground network of tunnels and chambers, which are open to visitors. Despite its age, the arena floor is still preserved, and visitors can walk on it, following in the footsteps of gladiators and others who stepped out before huge crowds, nearly 2,000 years ago.
 > 
 > 
 
 </details>
 
-| ![埃尔杰姆露天剧场，突尼斯](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![埃尔杰姆露天剧场，突尼斯](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Amphitheatre of El Jem, Tunisia](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-US0644159608_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Amphitheatre of El Jem, Tunisia](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-US0644159608_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-US0644159608_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-US0644159608_1080x1920.jpg) |
 
 ### 20230821
 
-> 翡翠湖，加拿大育空地区 (© artherng/Getty Images)
+> Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 发现日是加拿大育空地区的一个年度节日，用来纪念1896年在富矿溪发现金矿，这个发现开启了克朗代克淘金热，进而推动了育空领地的建立。淘金热吸引了数以千计的淘金者来此寻找财富，推动了重大的经济和社会变革。
+> It's Discovery Day in Yukon, Canada, a day to commemorate the 1896 discovery of gold at Bonanza Creek. The event set off the Klondike Gold Rush, which attracted thousands of prospectors to the region in search of gold, leading to significant economic and social changes. The population increase led to Yukon separating from the Northwest Territories and the formation of Yukon Territory in 1898.
 > 
-> 发现日是一个纪念和回顾育空地区丰富的遗产、历史和自然资源的好机会，我们今天在照片中看到的美丽的翡翠湖就是其中之一。发现日也是一个用来纪念参与了克朗代克淘金热的淘金者们的冒险精神和坚毅品格的日子。整个育空地区会在这天举办各式节庆活动，包括游行、历史情景重现、淘金比赛、演唱会等等。政府办公室、学校和很多商业机构也会在这一天关闭，以便居民们可以参与到节日活动中来。
+> Discovery Day celebrates Yukon's rich heritage, history, and natural resources—like Emerald Lake, seen in today's image, known for its deep green hues. You'll find it on the Klondike Highway, which roughly follows the route used by the prospectors more than a century ago. It is also a day to honor the spirit of adventure exhibited during the gold rush. Government offices, schools, and many businesses close to allow people to participate in the festivities, including parades, historical reenactments, gold panning competitions, and concerts.
 > 
 > 
 
 </details>
 
-| ![加拿大的发现日](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![加拿大的发现日](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Discovery Day in Yukon, Canada](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_EN-US0522450551_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Discovery Day in Yukon, Canada](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_EN-US0522450551_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_EN-US0522450551_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_EN-US0522450551_1080x1920.jpg) |
 
 ### 20230820
 
-> 起点灯塔，德文郡，英国 (© Guy Edwardes/Minden Pictures)
+> Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 每年8月的第三个周末，世界各地的灯塔爱好者和航海历史爱好者都会聚在一起庆祝国际灯塔周，纪念这些标志性建筑的悠久历史和关键作用。人们可以走进这些灯塔，亲眼见证这些巨大的灯塔通过将灯光、仪器和精密的工程技术巧妙地结合在一起来发挥作用。
+> To mark International Lighthouse Weekend, we're on England's southwest coast, where Start Point Lighthouse looks out over the turbulent waters of the English Channel. The lighthouse is perched upon a rugged cliff on one of the country's most exposed peninsulas, which stretches nearly a mile into the sea in the county of Devon. Built in 1836, the elegant lighthouse was designed by civil engineer James Walker in the Gothic style, as seen in its castle-like parapet. It has undergone many changes since then and more accommodation was added in the 1870s, but no lighthouse keepers live there now—it has been automated since 1993.
 > 
-> 起点灯塔就是这些灯塔中的一座，它高高地矗立在英国德文郡崎岖的悬崖上，俯瞰着英吉利海峡。这座优雅的灯塔建于1836年，由英国土木工程师詹姆斯·沃克设计，其明亮的光束指引着船只安全通行。这个日子也提醒着我们，灯塔在航海历史中起到的重要作用。
+> 
 > 
 > 
 
 </details>
 
-| ![国际灯塔周](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际灯塔周](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Lighthouse Weekend](https://cn.bing.com/th?id=OHR.StartPointLight_EN-US0323042936_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Lighthouse Weekend](https://cn.bing.com/th?id=OHR.StartPointLight_EN-US0323042936_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StartPointLight_EN-US0323042936_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StartPointLight_EN-US0323042936_1080x1920.jpg) |
 
 ### 20230819
 
-> 看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images)
+> Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 1839年的8月19日，法国画家达盖尔公布了其发明的达盖尔摄影法，即银版摄影法，这被认为是最早的具有实用价值的摄影法。因此每年的8月19日被定位世界摄影日。摄影的世界是广阔的，专业人士和业余爱好者所涉足的摄影主题和风格也是多种多样的。无论是抽象还是时尚，抑或是风景和野生动物，都可以成为摄影的主题。图上这只厚脸皮的松鼠就是一个例子。尽管随着数码相机和智能手机的问世，达盖尔摄影法之类的老式摄影法早已过时，但却仍有一些摄影师还在竭力保持老式摄影的魅力和艺术性。
+> On August 19, 1839, French artist and photographer Louis-Jacques-Mandé Daguerre made public his invention that created an image using a silver-plated copper sheet and mercury vapor. The daguerreotype process became the first publicly available photographic process and was used throughout the 1840s and 1850s.
 > 
-> 
+> Today, August 19 is World Photography Day, promoting the art as a means of storytelling, creative expression, and cultural preservation. The world of photography is vast and captures many subjects and styles on camera, from abstract and fashion photography to landscapes and wildlife, like this cheeky squirrel here. Some seek to keep the charm and artistry of old-fashioned photography alive, though digital cameras and smartphones give everyone the opportunity to capture great photos, sometimes in unexpected places.
 > 
 > 
 
 </details>
 
-| ![世界摄影日](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界摄影日](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Photography Day](https://cn.bing.com/th?id=OHR.CameraSquirrel_EN-US0174540169_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Photography Day](https://cn.bing.com/th?id=OHR.CameraSquirrel_EN-US0174540169_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CameraSquirrel_EN-US0174540169_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CameraSquirrel_EN-US0174540169_1080x1920.jpg) |
 
 ### 20230818
 
-> 哈利路亚山，张家界国家森林公园，中国 (© Amazing Aerial Premium/Shutterstock)
+> 'Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 哈利路亚山是位于中国湖南省张家界国家森林公园内的一处胜景。这些石柱曾出现在电影《阿凡达》中，那些高耸的石英砂岩峰林正是悬浮山的灵感来源。2010年1月25日，张家界南天一柱被更名为《阿凡达》哈利路亚山。据了解，电影《阿凡达》中“潘多拉星球”中的大量原型来源于张家界群山，其中“南天一柱”图片就成为“哈利路亚山”即悬浮山的原型。1992年，包括“南天一柱”（哈利路亚山）在内的武陵源风景名胜区被联合国教科文组织列为世界遗产。现在，这个地方每年都吸引着数百万的游客前来欣赏该地引入入胜的美景。此外，公园里还分布着许多徒步小径和玻璃悬空栈道，以便游客们欣赏哈利路亚山的全景。
+> These stunning stone spires, rising from the forest in China's Hunan province, are said to have inspired the floating mountains of the movie 'Avatar.' There are more than 3,000 of these quartz-sandstone pillars in Zhangjiajie National Forest Park, often swathed in mist, part of a spectacular landscape that has inspired generations of painters. These days, they are popularly known as the 'Avatar Mountains' and one, the 3,544-foot-high Southern Sky Pillar, was officially renamed as 'Avatar Hallelujah Mountain' in 2010, the year after the blockbuster movie was released.
 > 
-> 
+> The spires sit within the wider Wulingyuan Scenic and Historic Interest Area, a UNESCO World Heritage Site, and attract millions of tourists each year who come to marvel at their otherworldly beauty. The park is dotted with numerous hiking trails and glass-bottomed skywalks, allowing visitors to enjoy panoramic views of this natural wonder.
 > 
 > 
 
 </details>
 
-| ![哈利路亚山，张家界国家森林公园，中国](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![哈利路亚山，张家界国家森林公园，中国](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| !['Avatar Mountains,' Zhangjiajie National Forest Park, China](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | !['Avatar Mountains,' Zhangjiajie National Forest Park, China](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_1080x1920.jpg) |
 
 ### 20230817
 
-> 罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省 (© Laurens Verhoeven/Getty Images)
+> Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 罕肯瀑布 (Helmcken Falls) 坐落在威尔斯格雷省立公园 (Wells Gray Province Park) 内，是一处令人惊叹的自然奇观。 威尔斯格雷省立公园就是为了保护这座优美的瀑布而建立的。为政府工作的土地测量员罗伯特·亨利·李发现了这处大自然带给我们的天然珍宝。这座雄伟的瀑布是加拿大第五高的瀑布，从陡峭的大约有141米的高度火山岩悬崖上倾泻而下，释放出飘逸的雾气，在阳光下翩翩起舞，也形成了彩虹与瀑布相互映衬的绝美景观。
+> We're looking at sequoia trees in Sequoia and Kings Canyon National Parks, California—the two parks border each other in the Sierra Nevada range in Central California. These giant sequoias can grow nearly 300 feet tall and some specimens have lived more than 3,000 years. Their longevity—even in areas prone to wildfires—is helped by thick bark that's full of fire-resistant tannins.
 > 
 > 
 > 
@@ -129,11 +129,9 @@
 
 </details>
 
-| ![罕肯瀑布,威尔斯格雷省立公园](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![罕肯瀑布,威尔斯格雷省立公园](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Things are looking up](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Things are looking up](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1080x1920.jpg) |ing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1080x1920.jpg) |cn.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_1080x1920.jpg) |th?id=OHR.WorldLionDay_EN-US3311213683_1080x1920.jpg) |wnload landscape 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |m/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_1080x1920.jpg) |/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |m/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
