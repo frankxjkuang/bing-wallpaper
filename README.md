@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230824
+
+> Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Shark Fin Cove, also known as Shark Tooth Beach, is nestled in a cove in the tiny town of Davenport on California's Central Coast. The cove is a coastal gem known for its stunning sea stack—a vertical rock formation that resembles a shark's fin. The fin used to be connected to the mudstone cliff that surrounds the beach. Over time, the relentless crashing waves and strong winds slowly eroded the rock formation. Shark Fin Cove is visible from Highway 1, where travelers can stop and look at the expansive Pacific Ocean views.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Shark Fin Cove, California](https://cn.bing.com/th?id=OHR.SharkFinCove_EN-US1070740515_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shark Fin Cove, California](https://cn.bing.com/th?id=OHR.SharkFinCove_EN-US1070740515_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SharkFinCove_EN-US1070740515_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SharkFinCove_EN-US1070740515_1080x1920.jpg) |
+
 ### 20230823
 
 > Skógafoss waterfall, Iceland (© Maridav/Shutterstock)
@@ -112,26 +131,7 @@
 
 | !['Avatar Mountains,' Zhangjiajie National Forest Park, China](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | !['Avatar Mountains,' Zhangjiajie National Forest Park, China](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_1080x1920.jpg) |
-
-### 20230817
-
-> Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> We're looking at sequoia trees in Sequoia and Kings Canyon National Parks, California—the two parks border each other in the Sierra Nevada range in Central California. These giant sequoias can grow nearly 300 feet tall and some specimens have lived more than 3,000 years. Their longevity—even in areas prone to wildfires—is helped by thick bark that's full of fire-resistant tannins.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Things are looking up](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Things are looking up](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_1080x1920.jpg) |/th?id=OHR.InfinityTaipei_EN-US3008697284_1080x1920.jpg) |m/th?id=OHR.BodieNC_EN-US2693689463_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_1080x1920.jpg) |jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
