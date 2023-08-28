@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230826
+
+> Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> As the summer is fading away, we find ourselves reminiscing about vacations and long hours of lively evenings. But let's not bury the picnic days just yet! There is plenty to look forward to, especially if you are in Berlin. The Long Night of Museums only happens once a year—on the last Saturday of August since 1997—but it shakes up Museum Island and the rest of the German capital. The event series is more than a peaceful appreciation of artifacts—quite the opposite—you can expect music, talks, workshops, cocktails, dance, and more from 6 PM into the small hours of the morning. Featured in today's image, Museum Island—embraced by the Spree River—is listed as a UNESCO World Heritage Site, and it is home to a museum quintet: Altes, Bode, Pergamon, and Neues Museums, and Alte Nationalgalerie.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Museum Night in Berlin](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Museum Night in Berlin](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |
+
 ### 20230825
 
 > Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![International Lighthouse Weekend](https://cn.bing.com/th?id=OHR.StartPointLight_EN-US0323042936_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Lighthouse Weekend](https://cn.bing.com/th?id=OHR.StartPointLight_EN-US0323042936_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StartPointLight_EN-US0323042936_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StartPointLight_EN-US0323042936_1080x1920.jpg) |
-
-### 20230819
-
-> Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On August 19, 1839, French artist and photographer Louis-Jacques-Mandé Daguerre made public his invention that created an image using a silver-plated copper sheet and mercury vapor. The daguerreotype process became the first publicly available photographic process and was used throughout the 1840s and 1850s.
-> 
-> Today, August 19 is World Photography Day, promoting the art as a means of storytelling, creative expression, and cultural preservation. The world of photography is vast and captures many subjects and styles on camera, from abstract and fashion photography to landscapes and wildlife, like this cheeky squirrel here. Some seek to keep the charm and artistry of old-fashioned photography alive, though digital cameras and smartphones give everyone the opportunity to capture great photos, sometimes in unexpected places.
-> 
-> 
-
-</details>
-
-| ![World Photography Day](https://cn.bing.com/th?id=OHR.CameraSquirrel_EN-US0174540169_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Photography Day](https://cn.bing.com/th?id=OHR.CameraSquirrel_EN-US0174540169_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CameraSquirrel_EN-US0174540169_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CameraSquirrel_EN-US0174540169_1080x1920.jpg) |tain_EN-US0084042494_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_1080x1920.jpg) |jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StartPointLight_EN-US0323042936_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StartPointLight_EN-US0323042936_1080x1920.jpg) |169_1080x1920.jpg) |tain_EN-US0084042494_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_1080x1920.jpg) |jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
