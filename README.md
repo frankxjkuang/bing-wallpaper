@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230828
+
+> Fort Lovrijenac, West Harbor, Dubrovnik, Croatia (© Benny Marty/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Though you might instinctively watch out for invading fleets or dragons overhead, you're more likely to encounter a tourist than a Lannister in the Croatian city of Dubrovnik. As you may know, 'Game of Thrones' filmed here frequently throughout the run of the show, and you can scarcely blame them; Dubrovnik's Old Town is one of the best-preserved medieval cities in the world. For centuries it flourished as the Republic of Ragusa, maintaining independence through diplomacy and robust trade networks. This 'Pearl of the Adriatic' has withstood military bombardments and devastating earthquakes, yet the city has always rebuilt and persevered. While pop culture, history, and UNESCO World Heritage Site status are all big draws, they might be too effective: A recent report estimated that in 2019 there were 36 tourists for every resident.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Dubrovnik, Croatia](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dubrovnik, Croatia](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_1080x1920.jpg) |
+
 ### 20230827
 
 > Seongsan Ilchulbong, a tuff cone on Jeju Island, South Korea (© Quynh Anh Nguyen/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Amphitheatre of El Jem, Tunisia](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-US0644159608_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Amphitheatre of El Jem, Tunisia](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-US0644159608_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-US0644159608_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-US0644159608_1080x1920.jpg) |
-
-### 20230821
-
-> Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It's Discovery Day in Yukon, Canada, a day to commemorate the 1896 discovery of gold at Bonanza Creek. The event set off the Klondike Gold Rush, which attracted thousands of prospectors to the region in search of gold, leading to significant economic and social changes. The population increase led to Yukon separating from the Northwest Territories and the formation of Yukon Territory in 1898.
-> 
-> Discovery Day celebrates Yukon's rich heritage, history, and natural resources—like Emerald Lake, seen in today's image, known for its deep green hues. You'll find it on the Klondike Highway, which roughly follows the route used by the prospectors more than a century ago. It is also a day to honor the spirit of adventure exhibited during the gold rush. Government offices, schools, and many businesses close to allow people to participate in the festivities, including parades, historical reenactments, gold panning competitions, and concerts.
-> 
-> 
-
-</details>
-
-| ![Discovery Day in Yukon, Canada](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_EN-US0522450551_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Discovery Day in Yukon, Canada](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_EN-US0522450551_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_EN-US0522450551_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_EN-US0522450551_1080x1920.jpg) |jpg) |169_1080x1920.jpg) |tain_EN-US0084042494_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_1080x1920.jpg) |jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-US0644159608_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-US0644159608_1080x1920.jpg) |EN-US0522450551_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_EN-US0522450551_1080x1920.jpg) |jpg) |169_1080x1920.jpg) |tain_EN-US0084042494_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_1080x1920.jpg) |jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_1080x1920.jpg) |080x1920.jpg) |94011_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
