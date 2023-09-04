@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230902
+
+> Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> It's National Hummingbird Day, a day to celebrate these tiny wonders. Their colorful plumage and ability to hover mid-air make them particularly eye-catching. The rapid flapping of their wings—an average of 53 times a second—creates their trademark humming sound and works up quite an appetite: These little birdies can feed every 10–15 minutes! Today's homepage star is an Allen's hummingbird, which grows to about 3.5 inches in length and is found along the west coast of North America, most commonly in California. National Hummingbird Day aims to boost the preservation of these mini marvels, by protecting them and their habitat.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.TinyHummer_EN-US3171586787_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.TinyHummer_EN-US3171586787_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TinyHummer_EN-US3171586787_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TinyHummer_EN-US3171586787_1080x1920.jpg) |
+
 ### 20230901
 
 > Turkey tail mushroom, Brevard, North Carolina (© Bill Gozansky/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Jeju Island, South Korea](https://cn.bing.com/th?id=OHR.JejuIsland_EN-US2402698261_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Jeju Island, South Korea](https://cn.bing.com/th?id=OHR.JejuIsland_EN-US2402698261_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JejuIsland_EN-US2402698261_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JejuIsland_EN-US2402698261_1080x1920.jpg) |
-
-### 20230826
-
-> Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> As the summer is fading away, we find ourselves reminiscing about vacations and long hours of lively evenings. But let's not bury the picnic days just yet! There is plenty to look forward to, especially if you are in Berlin. The Long Night of Museums only happens once a year—on the last Saturday of August since 1997—but it shakes up Museum Island and the rest of the German capital. The event series is more than a peaceful appreciation of artifacts—quite the opposite—you can expect music, talks, workshops, cocktails, dance, and more from 6 PM into the small hours of the morning. Featured in today's image, Museum Island—embraced by the Spree River—is listed as a UNESCO World Heritage Site, and it is home to a museum quintet: Altes, Bode, Pergamon, and Neues Museums, and Alte Nationalgalerie.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Museum Night in Berlin](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Museum Night in Berlin](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JejuIsland_EN-US2402698261_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JejuIsland_EN-US2402698261_1080x1920.jpg) |ad landscape 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
