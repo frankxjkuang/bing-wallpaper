@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230904
+
+> Construction workers on scaffolding (© Bits and Splits/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Labor Day is a well-earned day of rest for many workers across America. The food we eat, the shelter over our heads, and the transportation that moves us around all exist thanks to our collective labor. Organized labor movements grew in the 19th century, along with calls for a day to honor workers' contributions. The first Labor Day was celebrated with a parade in New York City in September 1882 and similar events spread throughout the country. In 1894, President Grover Cleveland signed a bill declaring the first Monday in September as Labor Day. Today, Labor Day marks the unofficial end of summer, but let's not forget to take a moment to give thanks for the work we all put in to take care of our communities, our families, and ourselves.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Labor Day](https://cn.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Labor Day](https://cn.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_1080x1920.jpg) |
+
 ### 20230903
 
 > Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![American bison, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![American bison, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg) |
-
-### 20230828
-
-> Fort Lovrijenac, West Harbor, Dubrovnik, Croatia (© Benny Marty/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Though you might instinctively watch out for invading fleets or dragons overhead, you're more likely to encounter a tourist than a Lannister in the Croatian city of Dubrovnik. As you may know, 'Game of Thrones' filmed here frequently throughout the run of the show, and you can scarcely blame them; Dubrovnik's Old Town is one of the best-preserved medieval cities in the world. For centuries it flourished as the Republic of Ragusa, maintaining independence through diplomacy and robust trade networks. This 'Pearl of the Adriatic' has withstood military bombardments and devastating earthquakes, yet the city has always rebuilt and persevered. While pop culture, history, and UNESCO World Heritage Site status are all big draws, they might be too effective: A recent report estimated that in 2019 there were 36 tourists for every resident.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Dubrovnik, Croatia](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dubrovnik, Croatia](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_1080x1920.jpg) |cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg) |98064362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_1080x1920.jpg) |cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
