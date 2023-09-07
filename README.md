@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230905
+
+> Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> A beautiful island popularly known as 'Norway in miniature,' Senja's diverse landscape boasts mountainous terrain as well as lush greenery. At 600 square miles, it is Norway's second-largest island, connected to the mainland by the Gisund Bridge. The most notable spot on Senja is pictured today, Mount Segla, a magnificent peak that is visited frequently in summer, with a trail starting in Fjordgård, a fishing village in the north of Senja. It's a tough hike to the top, more than 2,000 feet above sea level. Other tourist attractions include Ånderdalen National Park and Tranøya, an island off the south coast of Senja known for its tranquility.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Mount Segla, Senja Island, Norway](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Segla, Senja Island, Norway](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1080x1920.jpg) |
+
 ### 20230904
 
 > Construction workers on scaffolding (© Bits and Splits/Shutterstock)
@@ -112,24 +131,7 @@
 
 | ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_1080x1920.jpg) |
-
-### 20230829
-
-> American bison in Grand Teton National Park, Wyoming (© Enrique Aguirre Aves/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The bison is a majestic, massive creature, a true emblem of the American frontier spirit. These sturdy animals roamed North America's prairies for thousands of years in numbers estimated to be as high as 60 million. But settlement of the American West caused habitat loss, and that, combined with overhunting, nearly wiped out the species altogether by the end of the 19th century. Ranchers, conservationists, Native American tribes, and politicians worked to save the bison and today, nearly 500,000 bison can be found in North America. About 15,000 animals are in free-roaming herds that graze on US public lands, like the bison in today's image, shown at Grand Teton National Park in Wyoming.
-> 
-> For such large animals, bison are surprisingly agile. They're nearly 7 feet tall at their hump and weigh up to 2,000 pounds, but they can run up to 35 miles per hour, jump high fences, and are strong swimmers. In 2016, President Barack Obama paid tribute to these proud beasts by signing the Bison Legacy Act, naming bison the national mammal of the United States.
-> 
-> 
-
-</details>
-
-| ![American bison, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![American bison, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_1080x1920.jpg) |TetonBison_EN-US5358590688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![American bison, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg) |98064362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_1080x1920.jpg) |cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
