@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230907
+
+> Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Desert-dwelling camels have been central to lives in the United Arab Emirates for thousands of years. A key mode of transportation for Bedouins, camels long helped them traverse the sweltering sands in search of water and supplies. These dromedaries were also used as currency to fulfill obligations such as dowries or zakat, an annual charitable fee in Muslim communities. Camel milk is a valuable and nutritious ingredient in many recipes in the region, while camel racing keeps people entertained to this day, illustrating the versatility of these hardy creatures.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Camels in the desert, United Arab Emirates](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Camels in the desert, United Arab Emirates](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_1080x1920.jpg) |
+
 ### 20230906
 
 > Old Venetian harbor, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![National Mushroom Month](https://cn.bing.com/th?id=OHR.TurkeyTailMush_EN-US2958542405_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Mushroom Month](https://cn.bing.com/th?id=OHR.TurkeyTailMush_EN-US2958542405_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TurkeyTailMush_EN-US2958542405_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TurkeyTailMush_EN-US2958542405_1080x1920.jpg) |
-
-### 20230831
-
-> Saguaro cacti, Ironwood National Monument, Arizona (© Jack Dykinga/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Massive succulents against a mountainous backdrop, underneath the sun-kissed Arizona sky—it's prickly perfection. Pictured here are saguaro (pronounced 'sah-wah-roh') cacti at the Ironwood Forest National Monument in the Sonoran Desert. Even if you haven't seen one in person, when you hear the word cactus, you're probably thinking of saguaro—tall, green, cylindrical, with arms pointing upward. From tattoos to coffee cups, you'll find this iconic symbol of Arizona on almost everything. Though they are slow growers, these plants have been known to live over 200 years and reach enormous heights, with a 78-footer setting the record. Another cactus, known as 'Grandaddy,' survived in the sweltering desert for about 300 years, eventually succumbing to old age in the early 1990s. Cacti may not be for everyone, but they tend to grow on you (figuratively, of course)!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Saguaro cacti, Ironwood Forest National Monument, Arizona](https://cn.bing.com/th?id=OHR.IronwoodCactus_EN-US2823371711_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Saguaro cacti, Ironwood Forest National Monument, Arizona](https://cn.bing.com/th?id=OHR.IronwoodCactus_EN-US2823371711_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TurkeyTailMush_EN-US2958542405_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TurkeyTailMush_EN-US2958542405_1080x1920.jpg) |Monument, Arizona](https://cn.bing.com/th?id=OHR.IronwoodCactus_EN-US2823371711_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.IronwoodCactus_EN-US2823371711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IronwoodCactus_EN-US2823371711_1080x1920.jpg) |w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
