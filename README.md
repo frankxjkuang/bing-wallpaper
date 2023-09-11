@@ -1,32 +1,70 @@
 ## bing wallpaper
 
-### 20230908
+### 20230910
 
-> The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)
+> 斯瓦尔巴群岛海上的一对海象，挪威 (© Mark Smith/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Jane Austen, author of 'Pride and Prejudice,' is one of the best-known writers in English literature, so it's not a surprise that there are multiple festivals honoring her legacy. The largest is held here, in the English city of Bath, where Austen lived from 1801 to 1806. On September 8, International Literacy Day, the city begins its annual 10-day Jane Austen Festival with hundreds of Austen fans walking the streets dressed in costumes from Britain's Regency era, in the early 19th century.
+> 今天是祖父母节，你有没有给奶奶爷爷打个电话呢？自1978年以来，祖父母节成为了美国的全国性节日，旨在让人们表达对祖父母的敬意，唤起晚辈对长者的重视。祖父母们人生经验丰富，总是在家庭中扮演着智者的角色。提及智者，人们脑中通常会浮现一个留着长胡须的老人。在许多文化中，胡须也代表着智慧。今天照片里的海象也长着胡须，不过比起“象征智慧”，海象的胡须倒是有更实际的用处——寻找食物。
 > 
-> International Literacy Day has been celebrated since 1967 and aims to highlight the importance of literacy to individuals and society. A global conference is held in Paris, France, including the awards ceremony of UNESCO's International Literacy Prizes.
+> 
 > 
 > 
 
 </details>
 
-| ![International Literacy Day](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Literacy Day](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![祖父母节](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![祖父母节](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1080x1920.jpg) |
+
+### 20230909
+
+> 大城府历史公园的柴瓦塔那兰寺，泰国 (© Weerasak Saeku/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 当夕阳西下，泰国的夜幕降临，大城府历史公园里的柴瓦塔那兰寺灯火通明，迎接着夜晚的到来。虽然这座寺庙并非世界遗产大城府遗址的一部分，但它也有着丰富的历史和建筑底蕴。14世纪至18世纪，暹罗大城王朝统治东南亚，国王巴萨通建造了这座圣殿，象征着宇宙的中心。从佛寺出发，可以坐船或乘车到达历史名城大城府。如今，大城府已成为历史废墟，但曾经这里是重要的商业和外交中心，周围环绕的河流是其天然的防御屏障。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![大城府历史公园，泰国](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大城府历史公园，泰国](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1080x1920.jpg) |
+
+### 20230908
+
+> 巴斯圆形广场，萨默塞特 ，英国 (© Gavin Hellier/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 《傲慢与偏见》的作者简·奥斯汀是世界知名的作家之一，一年一度的文化盛事简·奥斯汀节就是为了纪念这位伟大的女作家而举办的。1801年至1806年间，简·奥斯汀居住于英国巴斯，因此这个节日就在此举行。今年的简·奥斯汀节于9月8日拉开帷幕（这一天恰好也是国际扫盲日），届时，人们会穿着18世纪的英国服装在巴斯的街道上游行。
+> 
+> 自1967年以来，每年庆祝一次的国际扫盲日不仅仅是为了纪念文学，更是为了动员世界各国以及相关国际机构重视文盲现象，提高全球的识字率与教育质量。今年的国际扫盲日的挑战是“促进正在转型的世界的扫盲：为可持续和平社会奠定基础”，届时一场全球会议将在法国巴黎举行，联合国教科文组织还将颁发国际扫盲奖。
+> 
+> 
+
+</details>
+
+| ![国际扫盲日](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际扫盲日](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1080x1920.jpg) |
 
 ### 20230907
 
-> Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)
+> 沙漠中的骆驼，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> Desert-dwelling camels have been central to lives in the United Arab Emirates for thousands of years. A key mode of transportation for Bedouins, camels long helped them traverse the sweltering sands in search of water and supplies. These dromedaries were also used as currency to fulfill obligations such as dowries or zakat, an annual charitable fee in Muslim communities. Camel milk is a valuable and nutritious ingredient in many recipes in the region, while camel racing keeps people entertained to this day, illustrating the versatility of these hardy creatures.
+> 对于阿联酋人来说，沙漠中的骆驼长久以来都是至关紧要的，同时也代表着阿联酋人的文化遗产和习俗。骆驼是贝都因人运输水和物资的关键交通工具，对于穿越炙热的沙漠来说是必不可少的。这些单峰骆驼还曾经被作为货币使用，例如支付嫁妆或者天课（穆斯林每年的慈善课税）。它们还可以提供营养，骆驼奶在很多食谱中都是宝贵且营养的食材。最后，骆驼还可以供人驾骑、提供娱乐。由此可见，这些坚韧的动物实在是用途广泛。
 > 
 > 
 > 
@@ -34,18 +72,18 @@
 
 </details>
 
-| ![Camels in the desert, United Arab Emirates](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Camels in the desert, United Arab Emirates](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![沙漠中的骆驼，阿拉伯联合酋长国](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![沙漠中的骆驼，阿拉伯联合酋长国](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1080x1920.jpg) |
 
 ### 20230906
 
-> Old Venetian harbor, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)
+> 威尼斯旧港，克里特岛，希腊 (© Gatsi/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> The Venetian harbor in the Old Town of Rethymno, on the Greek island of Crete, invites you to time travel through history. Its Egyptian lighthouse and Turkish elements are proof of different nations leaving their mark on Crete's old port. Forged in the 14th century under Venetian rule, this port has long served as a bustling hub for commerce and enterprise. For today's visitors, a replica of an old wooden sailing ship offers a full historic adventure. For a nostalgic inland experience, visit the 16th-century Fortezza, Rethymno's Venetian fortress. The citadel is visible from every corner of the town and offers a panoramic view of Rethymno.
+> 威尼斯港位于古城罗希姆诺。矗立在海港边缘的埃及灯塔以及当地的土耳其风格建筑，是历史上不同民族在这里留下的印记。这个港口于14世纪由威尼斯人建成，曾经在很长的一段时间里都是一个繁忙的商业中心。游客还可以造访始建于16世纪的罗希姆诺城堡，在城堡上俯瞰罗希姆诺的城市全景。
 > 
 > 
 > 
@@ -53,18 +91,18 @@
 
 </details>
 
-| ![Rethymno, Crete, Greece](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rethymno, Crete, Greece](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![罗希姆诺，克里特岛，希腊](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![罗希姆诺，克里特岛，希腊](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1080x1920.jpg) |
 
 ### 20230905
 
-> Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)
+> 塞格拉山，塞尼亚岛，挪威 (© imageBROKER/Moritz Wolf/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> A beautiful island popularly known as 'Norway in miniature,' Senja's diverse landscape boasts mountainous terrain as well as lush greenery. At 600 square miles, it is Norway's second-largest island, connected to the mainland by the Gisund Bridge. The most notable spot on Senja is pictured today, Mount Segla, a magnificent peak that is visited frequently in summer, with a trail starting in Fjordgård, a fishing village in the north of Senja. It's a tough hike to the top, more than 2,000 feet above sea level. Other tourist attractions include Ånderdalen National Park and Tranøya, an island off the south coast of Senja known for its tranquility.
+> 塞尼亚岛是一座美丽的岛屿，被称为“挪威缩影”，也是挪威的第二大岛，岛屿的西边是各式各样的山峰，东边则是郁郁葱葱的绿地。吉松德大桥把这座岛屿和挪威本土城市芬斯内斯连接起来。今天照片里的是塞尼亚岛上最有名的景点塞格拉山。夏天时，游客可以沿着陡峭的小径攀登至600多米高的峰顶。塞尼亚岛的景点还有安德达伦国家公园和特拉恩岛——一座位于塞尼亚岛南边的岛屿，以其宁静的氛围而出名。
 > 
 > 
 > 
@@ -72,56 +110,28 @@
 
 </details>
 
-| ![Mount Segla, Senja Island, Norway](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Segla, Senja Island, Norway](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![塞格拉山，塞尼亚岛，挪威](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![塞格拉山，塞尼亚岛，挪威](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_1080x1920.jpg) |
 
 ### 20230904
 
-> Construction workers on scaffolding (© Bits and Splits/Shutterstock)
+> 布尔日的沼泽，法国 (© Tuul & Bruno Morandi/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Labor Day is a well-earned day of rest for many workers across America. The food we eat, the shelter over our heads, and the transportation that moves us around all exist thanks to our collective labor. Organized labor movements grew in the 19th century, along with calls for a day to honor workers' contributions. The first Labor Day was celebrated with a parade in New York City in September 1882 and similar events spread throughout the country. In 1894, President Grover Cleveland signed a bill declaring the first Monday in September as Labor Day. Today, Labor Day marks the unofficial end of summer, but let's not forget to take a moment to give thanks for the work we all put in to take care of our communities, our families, and ourselves.
+> 布尔日沼泽位于布尔日城市的中心，占地135公顷，为人们提供了一个放松和探索的空间。在中世纪时期，这片沼泽地曾是抵御入侵的城市保护带。
 > 
-> 
+> 今天，这些沼泽已经被分门别类地保护了起来，是法国仅存的商品蔬菜栽培沼泽之一。每年9月初这里会举行沼泽节日，届时会有彩灯花船游行和水上市场，为这里增添了节日气氛。这个神奇的地方会随着季节的变化而变化，吸引着无数的游客，无论是步行还是骑车，都可以一探这里独特的城市生态系统。
 > 
 > 
 
 </details>
 
-| ![Labor Day](https://cn.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Labor Day](https://cn.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![布尔日沼泽，法国](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![布尔日沼泽，法国](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_1080x1920.jpg) |
-
-### 20230903
-
-> Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Skyscraper Day pays tribute to the towering architectural wonders that dominate our city skylines. Observed on September 3, it also marks the birthday of Louis Henry Sullivan, a pioneer of modern architecture who is often called the 'father of skyscrapers.' Found in the world's biggest cities, skyscrapers serve as symbols of progress, ambition, and reaching new heights. Manhattan, the dense, vibrant heart of New York City, boasts a mesmerizing skyline with an array of iconic skyscrapers. These structures, like the Empire State Building, One World Trade Center, and the Chrysler Building, define the city's architectural and cultural legacy and captivate millions of visitors every year.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Skyscraper Day](https://cn.bing.com/th?id=OHR.ManhattanAerial_EN-US3290111355_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Skyscraper Day](https://cn.bing.com/th?id=OHR.ManhattanAerial_EN-US3290111355_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManhattanAerial_EN-US3290111355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManhattanAerial_EN-US3290111355_1080x1920.jpg) |
-
-### 20230902
-
-> Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It's National Hummingbird Day, a day to celebrate these tiny wonders. Their colorful plumage and ability to hover mid-air make them particularly eye-catching. The rapid flapping of their wings—an average of 53 times a second—creates their trademark humming sound and works up quite an appetite: These little birdies can feed every 10–15 minutes! Today's homepage star is an Allen's hummingbird, which grows to about 3.5 inches in length and is found along the west coast of North America, most commonly in California. National Hummingbird Day aims to boost the preservation of these mini marvels, by protecting them and their habitat.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_1080x1920.jpg) |otecting them and their habitat.
 > 
 > 
 > 
