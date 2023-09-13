@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230911
+
+> Brooklyn Bridge with the 'Tribute in Light' installation for 9/11, New York (© ANDREY DENISYUK/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On September 11, Patriot Day is observed as a national day of service and remembrance to honor the 2,977 people who died in the attacks on the United States in 2001. Congress established the day in 2002 with bipartisan support, and ever since, US government buildings, both domestic and abroad, fly the American flag at half-staff. Many citizens and businesses do the same in remembrance. Patriot Day also honors the hard work and sacrifice of the first responders who bravely put themselves in harm's way in the hours and days after the attacks.
+> 
+> Today's image is of the Brooklyn Bridge with 'Tribute in Light' in the background, a display of 88 searchlights arranged in two columns that represent the Twin Towers that fell. Originally a temporary display, the annual installation illuminates the sky with columns of light from dusk until dawn. It is a stark reminder of the lives that were tragically lost in Manhattan, Pennsylvania, and at the Pentagon.
+> 
+> 
+
+</details>
+
+| ![Patriot Day](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |
+
 ### 20230910
 
 > Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Mount Segla, Senja Island, Norway](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Segla, Senja Island, Norway](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1080x1920.jpg) |
-
-### 20230904
-
-> Construction workers on scaffolding (© Bits and Splits/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Labor Day is a well-earned day of rest for many workers across America. The food we eat, the shelter over our heads, and the transportation that moves us around all exist thanks to our collective labor. Organized labor movements grew in the 19th century, along with calls for a day to honor workers' contributions. The first Labor Day was celebrated with a parade in New York City in September 1882 and similar events spread throughout the country. In 1894, President Grover Cleveland signed a bill declaring the first Monday in September as Labor Day. Today, Labor Day marks the unofficial end of summer, but let's not forget to take a moment to give thanks for the work we all put in to take care of our communities, our families, and ourselves.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Labor Day](https://cn.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Labor Day](https://cn.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_1080x1920.jpg) |us_EN-US2823371711_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IronwoodCactus_EN-US2823371711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IronwoodCactus_EN-US2823371711_1080x1920.jpg) |w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1080x1920.jpg) |odCactus_EN-US2823371711_1080x1920.jpg) |w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_1080x1920.jpg) |TetonBison_EN-US5358590688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![American bison, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
