@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230912
+
+> North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The small village of Norddorf is one of the oldest on the island of Amrum, off Germany's North Sea coast. Nestled amidst stunning natural beauty, Amrum is home to around 2,300 people and has a strong maritime heritage. Museums and lighthouses offer a glimpse into the island's past. Tourists can also explore the unique wildlife of the Naturschutzgebiet Amrumer Dünen (Amrum Dunes Nature Reserve), home to various bird species, like the red knot and brent goose, as well as plants like the common sundew and ragged robin.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![North Sea at sunset, Norddorf, Germany](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![North Sea at sunset, Norddorf, Germany](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_1080x1920.jpg) |
+
 ### 20230911
 
 > Brooklyn Bridge with the 'Tribute in Light' installation for 9/11, New York (© ANDREY DENISYUK/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Rethymno, Crete, Greece](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rethymno, Crete, Greece](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_1080x1920.jpg) |
-
-### 20230905
-
-> Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> A beautiful island popularly known as 'Norway in miniature,' Senja's diverse landscape boasts mountainous terrain as well as lush greenery. At 600 square miles, it is Norway's second-largest island, connected to the mainland by the Gisund Bridge. The most notable spot on Senja is pictured today, Mount Segla, a magnificent peak that is visited frequently in summer, with a trail starting in Fjordgård, a fishing village in the north of Senja. It's a tough hike to the top, more than 2,000 feet above sea level. Other tourist attractions include Ånderdalen National Park and Tranøya, an island off the south coast of Senja known for its tranquility.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Mount Segla, Senja Island, Norway](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Segla, Senja Island, Norway](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1080x1920.jpg) |odCactus_EN-US2823371711_1080x1920.jpg) |w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1080x1920.jpg) |odCactus_EN-US2823371711_1080x1920.jpg) |w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_1080x1920.jpg) |TetonBison_EN-US5358590688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![American bison, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
