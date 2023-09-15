@@ -1,13 +1,13 @@
 ## bing wallpaper
 
-### 20230912
+### 20230914
 
-> North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)
+> 普氏野马，哈斯台国家公园，蒙古国 (© Ondrej Prosicky/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> The small village of Norddorf is one of the oldest on the island of Amrum, off Germany's North Sea coast. Nestled amidst stunning natural beauty, Amrum is home to around 2,300 people and has a strong maritime heritage. Museums and lighthouses offer a glimpse into the island's past. Tourists can also explore the unique wildlife of the Naturschutzgebiet Amrumer Dünen (Amrum Dunes Nature Reserve), home to various bird species, like the red knot and brent goose, as well as plants like the common sundew and ragged robin.
+> 蒙古的哈斯台国家公是普氏野马的家园。这种马非常特殊和稀有，被认为是如今仅存的真正的纯种野马。普氏野马有浅黄棕色的皮毛、短而硬的鬃毛和短腿，因此很容易被辨认出来。有趣的是，普氏野马有66条染色体，而家马只有64条染色体。不过，普氏野马可以与家马交配，产生杂交品种。这些杂交马有65条染色体，也可以繁衍后代。
 > 
 > 
 > 
@@ -15,37 +15,75 @@
 
 </details>
 
-| ![North Sea at sunset, Norddorf, Germany](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![North Sea at sunset, Norddorf, Germany](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![普氏野马，哈斯台国家公园，蒙古国](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![普氏野马，哈斯台国家公园，蒙古国](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_1080x1920.jpg) |
+
+### 20230913
+
+> 赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度 (© Images of india/Alamy Stock Photo)
+
+<details>
+<summary>Description</summary>
+
+> 汉皮位于印度卡纳塔克邦，被联合国教科文组织列入世界遗产名录。从14世纪到16世纪，维查耶纳伽尔帝国统治着这片区域。而作为维查耶纳伽尔帝国首都的汉皮，自然留下了许多古迹群，例如古老的寺庙、雄伟的宫殿和满目苍夷的废墟。在克利希那德瓦·拉亚国王的统治期间（1509年至1529年），这座城市经历了大幅扩张，新建了很多具有艺术气息的建筑，吸引着来自世界各地的游客和商人。然而，1565年，维查耶纳伽尔帝国在塔利科塔战役中战败，汉皮也随之衰落。
+> 
+> 如今，汉皮拥有约1000座古迹，现代背包客的到来让这座失落的城市重获新生。赫马库塔山是汉皮游客最多的地方之一，那里有许多保存完好的寺庙和神社。在山上游览时，游客们还可以顺便在湿婆神的维鲁帕克沙神庙停下来祈祷。
+> 
+> 
+
+</details>
+
+| ![赫马库塔山，汉皮，印度](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![赫马库塔山，汉皮，印度](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_1080x1920.jpg) |
+
+### 20230912
+
+> 北海日落，诺德多夫，德国 (© Frederick Doerschem/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 诺德多夫是位于德国北部海岸阿姆鲁姆岛上的一个小村庄，也是岛上最古老的村庄之一。阿姆鲁姆约有2300名居民，岛上还有许多像诺德多夫这样的渔村。坐落在北海海岸迷人风景中的诺德多夫以其丰富的海洋文化遗产而闻名。透过博物馆和灯塔，我们可以窥见这座岛屿的过去。此外，游客们还可以探索阿姆鲁姆沙丘自然保护区，这里有许多独特的野生动植物：红腹滨鹬、黑雁、知更草和茅膏菜等等。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![北海日落，诺德多夫，德国](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![北海日落，诺德多夫，德国](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_1080x1920.jpg) |
 
 ### 20230911
 
-> Brooklyn Bridge with the 'Tribute in Light' installation for 9/11, New York (© ANDREY DENISYUK/Getty Images)
+> 波尔多葡萄园的日出，法国 (© Esperanza33/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> On September 11, Patriot Day is observed as a national day of service and remembrance to honor the 2,977 people who died in the attacks on the United States in 2001. Congress established the day in 2002 with bipartisan support, and ever since, US government buildings, both domestic and abroad, fly the American flag at half-staff. Many citizens and businesses do the same in remembrance. Patriot Day also honors the hard work and sacrifice of the first responders who bravely put themselves in harm's way in the hours and days after the attacks.
+> 在波尔多地区，幅员辽阔的梅多克葡萄园盛产优质葡萄酒。九月是葡萄的丰收季，玛歌、波雅克、圣朱利安、圣埃斯特夫等知名产区都保留着古老的酿酒传统。
 > 
-> Today's image is of the Brooklyn Bridge with 'Tribute in Light' in the background, a display of 88 searchlights arranged in two columns that represent the Twin Towers that fell. Originally a temporary display, the annual installation illuminates the sky with columns of light from dusk until dawn. It is a stark reminder of the lives that were tragically lost in Manhattan, Pennsylvania, and at the Pentagon.
+> 人们可以从当地建筑一窥波尔多悠久的历史，古老宏伟的城堡点缀着风景，依然可见昔日的富丽堂皇。赫赫有名的玛歌酒庄和拉菲·罗斯柴尔德酒庄，展示着该地区丰富的文化遗产。
 > 
-> 
+> 独特的梅多克马拉松赛也在这片古老的土地上举办。该赛事始于1985年，每年九月举行，途经大大小小的葡萄园和酒庄，补给站还提供红酒和美食。参赛者穿着主题服装，一路吃吃喝喝跑跑，对于许多参赛者来说，参加这个马拉松不是为了赢，只是为了享用美酒。
 
 </details>
 
-| ![Patriot Day](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![梅多克的葡萄丰收和马拉松赛](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![梅多克的葡萄丰收和马拉松赛](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_1080x1920.jpg) |
 
 ### 20230910
 
-> Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)
+> 斯瓦尔巴群岛海上的一对海象，挪威 (© Mark Smith/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Have you called your nana, abuela, pop-pop or lolo lately? No matter what you call them, there's no better time to pick up the phone than Grandparents' Day, held on the Sunday after Labor Day. Grandparents play a special role in our lives, helping to raise new generations, passing down family history and sharing the wisdom of their experience. Wisdom is not always indicated by a thick Wilford-Brimley-esque mustache, but whiskers do lend a certain esteemed quality. Perhaps that's why these Atlantic walruses look like they're about to tell you why they voted for Hubert Humphrey.
+> 今天是祖父母节，你有没有给奶奶爷爷打个电话呢？自1978年以来，祖父母节成为了美国的全国性节日，旨在让人们表达对祖父母的敬意，唤起晚辈对长者的重视。祖父母们人生经验丰富，总是在家庭中扮演着智者的角色。提及智者，人们脑中通常会浮现一个留着长胡须的老人。在许多文化中，胡须也代表着智慧。今天照片里的海象也长着胡须，不过比起“象征智慧”，海象的胡须倒是有更实际的用处——寻找食物。
 > 
 > 
 > 
@@ -53,85 +91,47 @@
 
 </details>
 
-| ![Grandparents' Day](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grandparents' Day](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![祖父母节](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![祖父母节](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1080x1920.jpg) |
 
 ### 20230909
 
-> Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)
+> 大城府历史公园的柴瓦塔那兰寺，泰国 (© Weerasak Saeku/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> When the sun sets over Thailand, the Wat Chaiwatthanaram Buddhist temple lights up to welcome the night at the Ayutthaya Historical Park. These ruins are evidence of the area's rich history as the capital of the Ayutthaya Kingdom, which grew in power between the 14th and 18th centuries to rule Siam, or present-day Thailand. Around 1630, Wat Chaiwatthanaram was built on the orders of the dynasty's King Prasat Thong, to symbolize the center of the universe and connote his aspiration to become the future Buddha.
+> 当夕阳西下，泰国的夜幕降临，大城府历史公园里的柴瓦塔那兰寺灯火通明，迎接着夜晚的到来。虽然这座寺庙并非世界遗产大城府遗址的一部分，但它也有着丰富的历史和建筑底蕴。14世纪至18世纪，暹罗大城王朝统治东南亚，国王巴萨通建造了这座圣殿，象征着宇宙的中心。从佛寺出发，可以坐船或乘车到达历史名城大城府。如今，大城府已成为历史废墟，但曾经这里是重要的商业和外交中心，周围环绕的河流是其天然的防御屏障。
 > 
-> From the temple, the Historic City of Ayutthaya, a UNESCO World Heritage site, can be reached by boat or road. Three rivers link the once-metropolitan city to the sea. Now a historical ruin, Ayutthaya was an important point of commerce and diplomacy, with its surrounding rivers serving as a natural defense.
+> 
 > 
 > 
 
 </details>
 
-| ![Ayutthaya Historical Park, Thailand](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ayutthaya Historical Park, Thailand](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![大城府历史公园，泰国](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大城府历史公园，泰国](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1080x1920.jpg) |
 
 ### 20230908
 
-> The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)
+> 巴斯圆形广场，萨默塞特 ，英国 (© Gavin Hellier/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Jane Austen, author of 'Pride and Prejudice,' is one of the best-known writers in English literature, so it's not a surprise that there are multiple festivals honoring her legacy. The largest is held here, in the English city of Bath, where Austen lived from 1801 to 1806. On September 8, International Literacy Day, the city begins its annual 10-day Jane Austen Festival with hundreds of Austen fans walking the streets dressed in costumes from Britain's Regency era, in the early 19th century.
+> 《傲慢与偏见》的作者简·奥斯汀是世界知名的作家之一，一年一度的文化盛事简·奥斯汀节就是为了纪念这位伟大的女作家而举办的。1801年至1806年间，简·奥斯汀居住于英国巴斯，因此这个节日就在此举行。今年的简·奥斯汀节于9月8日拉开帷幕（这一天恰好也是国际扫盲日），届时，人们会穿着18世纪的英国服装在巴斯的街道上游行。
 > 
-> International Literacy Day has been celebrated since 1967 and aims to highlight the importance of literacy to individuals and society. A global conference is held in Paris, France, including the awards ceremony of UNESCO's International Literacy Prizes.
+> 自1967年以来，每年庆祝一次的国际扫盲日不仅仅是为了纪念文学，更是为了动员世界各国以及相关国际机构重视文盲现象，提高全球的识字率与教育质量。今年的国际扫盲日的挑战是“促进正在转型的世界的扫盲：为可持续和平社会奠定基础”，届时一场全球会议将在法国巴黎举行，联合国教科文组织还将颁发国际扫盲奖。
 > 
 > 
 
 </details>
 
-| ![International Literacy Day](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Literacy Day](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![国际扫盲日](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际扫盲日](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_1080x1920.jpg) |
-
-### 20230907
-
-> Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Desert-dwelling camels have been central to lives in the United Arab Emirates for thousands of years. A key mode of transportation for Bedouins, camels long helped them traverse the sweltering sands in search of water and supplies. These dromedaries were also used as currency to fulfill obligations such as dowries or zakat, an annual charitable fee in Muslim communities. Camel milk is a valuable and nutritious ingredient in many recipes in the region, while camel racing keeps people entertained to this day, illustrating the versatility of these hardy creatures.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Camels in the desert, United Arab Emirates](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Camels in the desert, United Arab Emirates](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_1080x1920.jpg) |
-
-### 20230906
-
-> Old Venetian harbor, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The Venetian harbor in the Old Town of Rethymno, on the Greek island of Crete, invites you to time travel through history. Its Egyptian lighthouse and Turkish elements are proof of different nations leaving their mark on Crete's old port. Forged in the 14th century under Venetian rule, this port has long served as a bustling hub for commerce and enterprise. For today's visitors, a replica of an old wooden sailing ship offers a full historic adventure. For a nostalgic inland experience, visit the 16th-century Fortezza, Rethymno's Venetian fortress. The citadel is visible from every corner of the town and offers a panoramic view of Rethymno.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Rethymno, Crete, Greece](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rethymno, Crete, Greece](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1080x1920.jpg) |odCactus_EN-US2823371711_1080x1920.jpg) |w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1080x1920.jpg) |or_EN-US3759550362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1080x1920.jpg) |odCactus_EN-US2823371711_1080x1920.jpg) |w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_1080x1920.jpg) |TetonBison_EN-US5358590688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![American bison, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
