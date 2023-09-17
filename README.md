@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230915
+
+> Mission church ruins at Quarai, Salinas Pueblo Missions National Monument, New Mexico (© Thomas Roche/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> From early Spanish colonialism to modern day civil rights struggles, the timeline of Hispanic and Latino history in the US is a rich one. Hispanic Heritage Month—September 15 to October 15—is dedicated to the history, culture, and heritage grounded in Latin America. It began as Hispanic Week in 1968 and has since evolved into a 30-day celebration. Why does it start in the middle of the month? September 15 sees the first of a series of independence days in several Latin American countries—El Salvador, Honduras, Guatemala, Nicaragua, and Costa Rica. They are followed by Mexico, Chile, and Belize, which mark theirs on September 16, 18, and 21, respectively.
+> 
+> Pictured here are the ruins of the mission church at Quarai in New Mexico, completed in 1632 under the direction of Spanish Franciscan friars. It is one of the three Spanish mission sites that form the Salinas Pueblo Missions National Monument. Visiting the ruins is a great way to participate in Hispanic Heritage Month.
+> 
+> 
+
+</details>
+
+| ![National Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_1080x1920.jpg) |
+
 ### 20230914
 
 > Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![Ayutthaya Historical Park, Thailand](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ayutthaya Historical Park, Thailand](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_1080x1920.jpg) |
-
-### 20230908
-
-> The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Jane Austen, author of 'Pride and Prejudice,' is one of the best-known writers in English literature, so it's not a surprise that there are multiple festivals honoring her legacy. The largest is held here, in the English city of Bath, where Austen lived from 1801 to 1806. On September 8, International Literacy Day, the city begins its annual 10-day Jane Austen Festival with hundreds of Austen fans walking the streets dressed in costumes from Britain's Regency era, in the early 19th century.
-> 
-> International Literacy Day has been celebrated since 1967 and aims to highlight the importance of literacy to individuals and society. A global conference is held in Paris, France, including the awards ceremony of UNESCO's International Literacy Prizes.
-> 
-> 
-
-</details>
-
-| ![International Literacy Day](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Literacy Day](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_1080x1920.jpg) |rs=1&c=4) | ![American bison, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg) |98064362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_1080x1920.jpg) |cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg) |98064362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_1080x1920.jpg) |cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
