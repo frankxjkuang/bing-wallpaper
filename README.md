@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230916
+
+> A beer tent at Oktoberfest in Theresienwiese, Munich, Germany (© Peter Kneffel/picture alliance via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to Oktoberfest, the world's biggest beer festival, held each year in the German city of Munich. Dating back all the way to 1810, it began with the wedding of Crown Prince Ludwig, later Ludwig I of Bavaria, and Princess Therese von Sachsen-Hildburghausen. The celebrations took place on the fields in front of the city gates, which were named Theresienwiese, or Theresa's Meadow, in honor of the bride. The festivities lasted for five days, filled with exciting activities such as parades and horse races. It was so popular that Oktoberfest became an annual event that now draws more than 6 million people. This year's festival starts today and lasts 18 days. Beyond Munich, it has become a popular celebration in multiple countries, and cities inside and outside of Germany imitate the festival and cherish its German traditions.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Oktoberfest begins](https://cn.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest begins](https://cn.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_1080x1920.jpg) |
+
 ### 20230915
 
 > Mission church ruins at Quarai, Salinas Pueblo Missions National Monument, New Mexico (© Thomas Roche/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Grandparents' Day](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grandparents' Day](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_1080x1920.jpg) |
-
-### 20230909
-
-> Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> When the sun sets over Thailand, the Wat Chaiwatthanaram Buddhist temple lights up to welcome the night at the Ayutthaya Historical Park. These ruins are evidence of the area's rich history as the capital of the Ayutthaya Kingdom, which grew in power between the 14th and 18th centuries to rule Siam, or present-day Thailand. Around 1630, Wat Chaiwatthanaram was built on the orders of the dynasty's King Prasat Thong, to symbolize the center of the universe and connote his aspiration to become the future Buddha.
-> 
-> From the temple, the Historic City of Ayutthaya, a UNESCO World Heritage site, can be reached by boat or road. Three rivers link the once-metropolitan city to the sea. Now a historical ruin, Ayutthaya was an important point of commerce and diplomacy, with its surrounding rivers serving as a natural defense.
-> 
-> 
-
-</details>
-
-| ![Ayutthaya Historical Park, Thailand](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ayutthaya Historical Park, Thailand](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg) |98064362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_1080x1920.jpg) |cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg) |98064362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_1080x1920.jpg) |cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
