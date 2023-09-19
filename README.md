@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230917
+
+> Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> The tiny Cuban tody can only be found on Cuba and its neighboring islands. Despite their colorful plumage, including that sparkling green head, their size can make them hard to spot. However, they are easy to hear. The soft sound of 'pprreeee-pprreeee' or a short 'tot-tot-tot-tot' will tell you there's a tody somewhere nearby.
+> 
+> The species are found around forests, coasts, dry lowlands, and rivers. The Cuban tody on our homepage is in Alejandro de Humboldt National Park, the Caribbean's biggest and best-preserved forested landscape. The park is also one of the most biologically varied tropical island locations on Earth, with a wide range of endemic plants and animals, so our colorful feathered friend is in good company.
+> 
+> 
+
+</details>
+
+| ![Cuban tody, Alejandro de Humboldt National Park, Cuba](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cuban tody, Alejandro de Humboldt National Park, Cuba](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_1080x1920.jpg) |
+
 ### 20230916
 
 > A beer tent at Oktoberfest in Theresienwiese, Munich, Germany (© Peter Kneffel/picture alliance via Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Patriot Day](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |
-
-### 20230910
-
-> Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Have you called your nana, abuela, pop-pop or lolo lately? No matter what you call them, there's no better time to pick up the phone than Grandparents' Day, held on the Sunday after Labor Day. Grandparents play a special role in our lives, helping to raise new generations, passing down family history and sharing the wisdom of their experience. Wisdom is not always indicated by a thick Wilford-Brimley-esque mustache, but whiskers do lend a certain esteemed quality. Perhaps that's why these Atlantic walruses look like they're about to tell you why they voted for Hubert Humphrey.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Grandparents' Day](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grandparents' Day](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1080x1920.jpg) |98064362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_1080x1920.jpg) |cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
