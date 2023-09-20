@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230918
+
+> Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The Milky Way has billions of stars; among them, our own sun finds its place. The galaxy's name is derived from the radiant, pale appearance of the band of stars and gas clouds that graces Earth's sky. Methodical observations of the night sky started with early civilizations but astronomy, the oldest natural science, remains a source of fascination today. It's what brings stargazers to Portugal's Southwest Alentejo and Vicentine Coast Natural Park, a site free from heavy light pollution. Now's a good time to seek out your own celestial spectacle, as it is Astronomy Week and the main event, Saturday's Fall Astronomy Day, this year coincides with the autumnal equinox.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Fall Astronomy Week](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fall Astronomy Week](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_1080x1920.jpg) |
+
 ### 20230917
 
 > Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)
@@ -112,24 +131,7 @@
 
 | ![North Sea at sunset, Norddorf, Germany](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![North Sea at sunset, Norddorf, Germany](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_1080x1920.jpg) |
-
-### 20230911
-
-> Brooklyn Bridge with the 'Tribute in Light' installation for 9/11, New York (© ANDREY DENISYUK/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On September 11, Patriot Day is observed as a national day of service and remembrance to honor the 2,977 people who died in the attacks on the United States in 2001. Congress established the day in 2002 with bipartisan support, and ever since, US government buildings, both domestic and abroad, fly the American flag at half-staff. Many citizens and businesses do the same in remembrance. Patriot Day also honors the hard work and sacrifice of the first responders who bravely put themselves in harm's way in the hours and days after the attacks.
-> 
-> Today's image is of the Brooklyn Bridge with 'Tribute in Light' in the background, a display of 88 searchlights arranged in two columns that represent the Twin Towers that fell. Originally a temporary display, the annual installation illuminates the sky with columns of light from dusk until dawn. It is a stark reminder of the lives that were tragically lost in Manhattan, Pennsylvania, and at the Pentagon.
-> 
-> 
-
-</details>
-
-| ![Patriot Day](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_1080x1920.jpg) |&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
