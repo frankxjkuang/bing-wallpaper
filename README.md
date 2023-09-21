@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230919
+
+> Splügen Pass, Graubünden, Switzerland (© Roberto Moiola/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> With their twists and turns, record heights, and breathtaking vistas, mountain roads are not for the fainthearted. Pictured here is the historic Splügen Pass, which winds its way through the Lepontine Alps, on the border of Switzerland and Italy. Although its modern version was built between 1818-1823, the Splügen Pass existed in some form as far back as Roman times. At 6,936 feet high, it is one of the highest paved roads in Europe, with 51 marked hairpin bends. It is closed in winter but, if spectacular mountainside views and picturesque lakes tickle your fancy, you can enjoy this ascent between June and mid-October. Have we 'peaked' your interest yet?
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Splügen Pass, Switzerland](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Splügen Pass, Switzerland](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_1080x1920.jpg) |
+
 ### 20230918
 
 > Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Hemakuta Hill, Hampi, India](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hemakuta Hill, Hampi, India](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_1080x1920.jpg) |
-
-### 20230912
-
-> North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The small village of Norddorf is one of the oldest on the island of Amrum, off Germany's North Sea coast. Nestled amidst stunning natural beauty, Amrum is home to around 2,300 people and has a strong maritime heritage. Museums and lighthouses offer a glimpse into the island's past. Tourists can also explore the unique wildlife of the Naturschutzgebiet Amrumer Dünen (Amrum Dunes Nature Reserve), home to various bird species, like the red knot and brent goose, as well as plants like the common sundew and ragged robin.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![North Sea at sunset, Norddorf, Germany](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![North Sea at sunset, Norddorf, Germany](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_1080x1920.jpg) |&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
