@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230921
+
+> Inside the Nobel Peace Center, Oslo, Norway (© Ilyas Ayub/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Every year on September 21, the United Nations celebrates the International Day of Peace, or World Peace Day. Established in 1981 by the United Nations General Assembly, the day begins with the Peace Bell Ceremony held at the UN headquarters in New York City. The bell was a gift from the United Nations Association of Japan and is inscribed with a message of hope: 'Long live absolute world peace.'
+> 
+> Our homepage image was taken inside the lobby of the Nobel Peace Center, in Norway's bustling capital city Oslo. The center highlights the triumphs of Nobel Peace Prize laureates and shares the legacy of Alfred Nobel, the creator of the prize. By showcasing inspiring exhibits and insightful conversations, the center sheds light on the impact of the prize, awarded to those 'who, during the preceding year, have conferred the greatest benefit to humankind.'
+> 
+> 
+
+</details>
+
+| ![International Day of Peace](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Peace](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_1080x1920.jpg) |
+
 ### 20230920
 
 > Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_1080x1920.jpg) |
-
-### 20230914
-
-> Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Hustai National Park in Mongolia is home to a very special and rare breed, the Przewalski's horse. Regarded by some as the only truly pure wild horse today, it is easily recognized by its pale yellowish-brown coat, a short, stiff mane, and short legs. The Przewalski's horse, also called the 'takhi' in Mongolia, was once extinct in the wild but has been successfully reintroduced through conservation efforts in the 1990s. An interesting fact about these horses is that they have 66 chromosomes, compared with 64 in domestic horses. Remarkably, Przewalski's horses can mate with domestic horses to produce hybrids. These hybrids have 65 chromosomes and can breed and have their own offspring.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Przewalski's horses, Hustai National Park, Mongolia](https://cn.bing.com/th?id=OHR.MongoliaHorses_EN-US2400199558_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Przewalski's horses, Hustai National Park, Mongolia](https://cn.bing.com/th?id=OHR.MongoliaHorses_EN-US2400199558_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MongoliaHorses_EN-US2400199558_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MongoliaHorses_EN-US2400199558_1080x1920.jpg) |24&rs=1&c=4) | ![Hemakuta Hill, Hampi, India](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_1080x1920.jpg) |taHill_EN-US2233323383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
