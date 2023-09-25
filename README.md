@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230923
+
+> Cottonwood trees and red sandstone in Coyote Gulch, Glen Canyon National Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Autumn has officially begun! In the Northern Hemisphere, the autumnal equinox falls on September 23 this year, marking the beginning of autumn. Today is one of the two moments in the year when day and night are equal in length, thanks to the sun's location exactly above the equator. In the Southern Hemisphere, today marks the vernal equinox and they are heading into spring.
+> 
+> Camouflaged in autumn colors, the cottonwood tree in today's image might be playing peek-a-boo among the red sandstones of Coyote Gulch in southern Utah. Here in the Glen Canyon National Recreation Area, the canyon is painted orange by oxidizing water and other fluids, as well as iron-filled minerals.
+> 
+> 
+
+</details>
+
+| ![Autumnal equinox](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_EN-US1573845041_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumnal equinox](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_EN-US1573845041_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_EN-US1573845041_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_EN-US1573845041_1080x1920.jpg) |
+
 ### 20230922
 
 > Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Cuban tody, Alejandro de Humboldt National Park, Cuba](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cuban tody, Alejandro de Humboldt National Park, Cuba](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_1080x1920.jpg) |
-
-### 20230916
-
-> A beer tent at Oktoberfest in Theresienwiese, Munich, Germany (© Peter Kneffel/picture alliance via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to Oktoberfest, the world's biggest beer festival, held each year in the German city of Munich. Dating back all the way to 1810, it began with the wedding of Crown Prince Ludwig, later Ludwig I of Bavaria, and Princess Therese von Sachsen-Hildburghausen. The celebrations took place on the fields in front of the city gates, which were named Theresienwiese, or Theresa's Meadow, in honor of the bride. The festivities lasted for five days, filled with exciting activities such as parades and horse races. It was so popular that Oktoberfest became an annual event that now draws more than 6 million people. This year's festival starts today and lasts 18 days. Beyond Munich, it has become a popular celebration in multiple countries, and cities inside and outside of Germany imitate the festival and cherish its German traditions.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Oktoberfest begins](https://cn.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest begins](https://cn.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_1080x1920.jpg) |=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_1080x1920.jpg) |toberfestWorkers_EN-US5478786117_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_1080x1920.jpg) |=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_1080x1920.jpg) |taHill_EN-US2233323383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
