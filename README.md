@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230924
+
+> The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> If you are a nature enthusiast, or simply enjoy listening to the sound of rumbling rivers, you might like to know that today is World Rivers Day. First held in 2005 during the United Nations' 'Water for Life’ campaign, it was proposed by Canadian river conservationist Mark Angelo, who founded BC Rivers Day in western Canada in 1980. World Rivers Day is held on the fourth Sunday of September to celebrate and raise awareness of the benefits that rivers provide to people and the planet.
+> 
+> The star of today's image, the Fraser River, is the longest river in British Columbia and the 11th longest in Canada. The stream meanders from the Rocky Mountains, traveling more than 850 miles over slopes and flatlands before it merges with the Strait of Georgia, just south of Vancouver.
+> 
+> 
+
+</details>
+
+| ![World Rivers Day](https://cn.bing.com/th?id=OHR.FraserRiverBC_EN-US1696932265_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rivers Day](https://cn.bing.com/th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FraserRiverBC_EN-US1696932265_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |
+
 ### 20230923
 
 > Cottonwood trees and red sandstone in Coyote Gulch, Glen Canyon National Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Fall Astronomy Week](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fall Astronomy Week](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_1080x1920.jpg) |
-
-### 20230917
-
-> Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> The tiny Cuban tody can only be found on Cuba and its neighboring islands. Despite their colorful plumage, including that sparkling green head, their size can make them hard to spot. However, they are easy to hear. The soft sound of 'pprreeee-pprreeee' or a short 'tot-tot-tot-tot' will tell you there's a tody somewhere nearby.
-> 
-> The species are found around forests, coasts, dry lowlands, and rivers. The Cuban tody on our homepage is in Alejandro de Humboldt National Park, the Caribbean's biggest and best-preserved forested landscape. The park is also one of the most biologically varied tropical island locations on Earth, with a wide range of endemic plants and animals, so our colorful feathered friend is in good company.
-> 
-> 
-
-</details>
-
-| ![Cuban tody, Alejandro de Humboldt National Park, Cuba](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cuban tody, Alejandro de Humboldt National Park, Cuba](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_1080x1920.jpg) |toberfestWorkers_EN-US5478786117_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_1080x1920.jpg) |=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_1080x1920.jpg) |pg) |toberfestWorkers_EN-US5478786117_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_1080x1920.jpg) |=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_1080x1920.jpg) |taHill_EN-US2233323383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
