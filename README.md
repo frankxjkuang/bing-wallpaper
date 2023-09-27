@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230925
+
+> Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> It's hard not to smile when you spot a sea otter. Their whiskery faces, busy paws, and thick fur give the impression of a stuffed animal that has come to life and taken to the ocean. The heaviest members of the weasel family, sea otters aren't just cute. They also play a vital role in the underwater kelp forest ecosystem, keeping the destructive sea urchin population in check—by eating them.
+> 
+> Sea Otter Awareness Week aims to help protect their populations, found along the coasts of the north Pacific Ocean. They once numbered 300,000 but they dropped to fewer than 2,000 after widespread hunting. International protections were put into place in 1911 and numbers have rebounded to around 125,000, but they remain endangered. While some habitats never recovered, others have emerged in entirely new locations, such as Glacier Bay National Park and Preserve in Alaska. In 1995, five sea otters were spotted in Glacier Bay. Today, there are more than 8,000 hunting, playing, and raising pups in the kelp-abundant waters.
+> 
+> 
+
+</details>
+
+| ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |
+
 ### 20230924
 
 > The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Splügen Pass, Switzerland](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Splügen Pass, Switzerland](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_1080x1920.jpg) |
-
-### 20230918
-
-> Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The Milky Way has billions of stars; among them, our own sun finds its place. The galaxy's name is derived from the radiant, pale appearance of the band of stars and gas clouds that graces Earth's sky. Methodical observations of the night sky started with early civilizations but astronomy, the oldest natural science, remains a source of fascination today. It's what brings stargazers to Portugal's Southwest Alentejo and Vicentine Coast Natural Park, a site free from heavy light pollution. Now's a good time to seek out your own celestial spectacle, as it is Astronomy Week and the main event, Saturday's Fall Astronomy Day, this year coincides with the autumnal equinox.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Fall Astronomy Week](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fall Astronomy Week](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_1080x1920.jpg) |pg) |toberfestWorkers_EN-US5478786117_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_1080x1920.jpg) |=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MissionRuins_EN-US2486545022_1080x1920.jpg) |taHill_EN-US2233323383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_1080x1920.jpg) |s_EN-US2486545022_1080x1920.jpg) |taHill_EN-US2233323383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
