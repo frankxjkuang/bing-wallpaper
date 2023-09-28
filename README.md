@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230926
+
+> Venice Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to the concrete waves of Venice Beach, California, a skateboarder's paradise. Built next to the beach town's sun-kissed shores, Venice Skatepark stands as a testament to the history of skateboarding in the state.
+> 
+> Opened in 2009, the park was the result of years of efforts by residents, spearheaded by Venice skating legend Jesse Martinez. With a plethora of challenging ramps, bowls, and rails, it has something to keep skaters of all skill levels entertained. Its oceanfront setting also makes it a popular spot for spectators to stop by and watch gravity-defying tricks from backside tailslides and 360 pop shove-its, to skaters dropping into a bowl to nail an eggplant. And if you're not sure what any of those things are, there's also a great view of the beach.
+> 
+> 
+
+</details>
+
+| ![Venice Skatepark, Los Angeles, California](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Venice Skatepark, Los Angeles, California](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |
+
 ### 20230925
 
 > Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)
@@ -112,28 +131,7 @@
 
 | ![Aqueduct, Arkadia Park, Poland](https://cn.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aqueduct, Arkadia Park, Poland](https://cn.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_1080x1920.jpg) |
-
-### 20230919
-
-> Splügen Pass, Graubünden, Switzerland (© Roberto Moiola/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> With their twists and turns, record heights, and breathtaking vistas, mountain roads are not for the fainthearted. Pictured here is the historic Splügen Pass, which winds its way through the Lepontine Alps, on the border of Switzerland and Italy. Although its modern version was built between 1818-1823, the Splügen Pass existed in some form as far back as Roman times. At 6,936 feet high, it is one of the highest paved roads in Europe, with 51 marked hairpin bends. It is closed in winter but, if spectacular mountainside views and picturesque lakes tickle your fancy, you can enjoy this ascent between June and mid-October. Have we 'peaked' your interest yet?
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Splügen Pass, Switzerland](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Splügen Pass, Switzerland](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_1080x1920.jpg) |s_EN-US2486545022_1080x1920.jpg) |taHill_EN-US2233323383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_1080x1920.jpg) |/th?id=OHR.HemakutaHill_EN-US2233323383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
