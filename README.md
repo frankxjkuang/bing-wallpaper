@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230927
+
+> The Via Krupp footpath on Capri island, Italy (© Mikolaj Niemczewski/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Via Krupp is a cliffside pathway on the Italian island of Capri, renowned for its dramatic serpentine design. Built between 1900 and 1902 by the German industrialist Friedrich Alfred Krupp, the footpath connects the town of Capri to Marina Piccola beach, and  allowed Krupp to access his properties. The pathway's intricate layout, with its sharp turns and steep inclines, was an engineering marvel of its time. Via Krupp's panoramic vistas of the Tyrrhenian Sea, the Faraglioni rock formations, and the lush landscape of the island have drawn admiration for generations. Due to concerns over preservation and safety, because of falling rocks, the pathway has faced intermittent closures, though it reopened in June this year for the first time in nine years.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Via Krupp, Capri, Italy](https://cn.bing.com/th?id=OHR.CapriKrupp_EN-US2044781395_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Via Krupp, Capri, Italy](https://cn.bing.com/th?id=OHR.CapriKrupp_EN-US2044781395_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapriKrupp_EN-US2044781395_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapriKrupp_EN-US2044781395_1080x1920.jpg) |
+
 ### 20230926
 
 > Venice Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Day of Peace](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Peace](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_1080x1920.jpg) |
-
-### 20230920
-
-> Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Founded in 1778 by aristocrat Helena Radziwiłłowa, Arkadia Park is an English-style landscape park in central Poland. The park displays architecture and landscapes that evoke ancient and medieval eras, like this recreation of a Roman-style aqueduct. These features are brought to life by the garden's lush greenery, tranquil water, and intricately crafted sculptures throughout the grounds, which illustrate the beauty of intermingled nature and art. Today, Arkadia Park stands as a testament to Helena Radziwiłłowa's lasting vision and creative legacy.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Aqueduct, Arkadia Park, Poland](https://cn.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aqueduct, Arkadia Park, Poland](https://cn.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_1080x1920.jpg) |/th?id=OHR.HemakutaHill_EN-US2233323383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_1080x1920.jpg) |1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
