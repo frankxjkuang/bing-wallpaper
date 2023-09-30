@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20230928
+
+> Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The sea is a tough workplace, and a busy one—the shipping industry is the backbone of the global economy, transporting more than 80% of the world’s trade. On World Maritime Day, shipping professionals and leaders gather to raise awareness about maritime safety, sustainable shipping practices, and pollution. Organized by the International Maritime Organization, a UN agency, the day also honors maritime workers. These unsung heroes work long hours and spend months away from family to keep our trade flowing.
+> 
+> This year's theme focuses on the 50th anniversary of MARPOL 73/78, an international law that regulates emissions and aims to minimize pollution in our ocean waters. While the ocean plays a vital global role in trade, the survival of many species on Earth, including our own, depends on it remaining a healthy place.
+> 
+> 
+
+</details>
+
+| ![World Maritime Day](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Maritime Day](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |
+
 ### 20230927
 
 > The Via Krupp footpath on Capri island, Italy (© Mikolaj Niemczewski/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![World Rhinoceros Day](https://cn.bing.com/th?id=OHR.ShamwariRhino_EN-US1414731584_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rhinoceros Day](https://cn.bing.com/th?id=OHR.ShamwariRhino_EN-US1414731584_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShamwariRhino_EN-US1414731584_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShamwariRhino_EN-US1414731584_1080x1920.jpg) |
-
-### 20230921
-
-> Inside the Nobel Peace Center, Oslo, Norway (© Ilyas Ayub/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Every year on September 21, the United Nations celebrates the International Day of Peace, or World Peace Day. Established in 1981 by the United Nations General Assembly, the day begins with the Peace Bell Ceremony held at the UN headquarters in New York City. The bell was a gift from the United Nations Association of Japan and is inscribed with a message of hope: 'Long live absolute world peace.'
-> 
-> Our homepage image was taken inside the lobby of the Nobel Peace Center, in Norway's bustling capital city Oslo. The center highlights the triumphs of Nobel Peace Prize laureates and shares the legacy of Alfred Nobel, the creator of the prize. By showcasing inspiring exhibits and insightful conversations, the center sheds light on the impact of the prize, awarded to those 'who, during the preceding year, have conferred the greatest benefit to humankind.'
-> 
-> 
-
-</details>
-
-| ![International Day of Peace](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Peace](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_1080x1920.jpg) |1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShamwariRhino_EN-US1414731584_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShamwariRhino_EN-US1414731584_1080x1920.jpg) |57_1080x1920.jpg) |1953692613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1080x1920.jpg) |.MuseumIsland_EN-US2197808554_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
