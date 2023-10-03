@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231001
+
+> Lake Bled at sunrise, Slovenia (© Rasica/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Nestled amidst the Julian Alps, Slovenia's Lake Bled invites you to step into a storybook setting. The star of the show? The tiny Bled Island, which beckons with the promise of legends and 'rowmance.' Make your way there on a traditional, flat-bottomed pletna boat, piloted by oarsmen whose skills have been handed down through generations since 1740. The island is home to the 17th-century Assumption of Mary Church, with its special bell that, legend says, will make wishes come true. If you look to the shore directly above the island in our image, you can spot Bled Castle overlooking the lake's expanse. The castle—one of the oldest in Slovenia—is positioned on a precipice above the town of Bled on the northwestern shore of the lake.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Lake Bled, Slovenia](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Bled, Slovenia](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_1080x1920.jpg) |
+
 ### 20230930
 
 > Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |
-
-### 20230924
-
-> The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> If you are a nature enthusiast, or simply enjoy listening to the sound of rumbling rivers, you might like to know that today is World Rivers Day. First held in 2005 during the United Nations' 'Water for Life’ campaign, it was proposed by Canadian river conservationist Mark Angelo, who founded BC Rivers Day in western Canada in 1980. World Rivers Day is held on the fourth Sunday of September to celebrate and raise awareness of the benefits that rivers provide to people and the planet.
-> 
-> The star of today's image, the Fraser River, is the longest river in British Columbia and the 11th longest in Canada. The stream meanders from the Rocky Mountains, traveling more than 850 miles over slopes and flatlands before it merges with the Strait of Georgia, just south of Vancouver.
-> 
-> 
-
-</details>
-
-| ![World Rivers Day](https://cn.bing.com/th?id=OHR.FraserRiverBC_EN-US1696932265_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rivers Day](https://cn.bing.com/th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FraserRiverBC_EN-US1696932265_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
