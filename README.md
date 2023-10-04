@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231002
+
+> Louis Vuitton Foundation in the Bois de Boulogne, Paris, France (© Atlantide Phototravel/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Did you know that the name Louis Vuitton is linked with more than just fashion? The eye-catching structure in today's image is the Louis Vuitton Foundation, an art museum and cultural center in Paris, France. The extravagant building opened in 2014, the result of a collaboration between the luxury goods company's CEO, Bernard Arnault, and renowned architect Frank Gehry. Gehry drew inspiration from iconic Parisian buildings, including the glass-roofed 19th-century Grand Palais exhibition hall, and applied concepts from 19th-century English landscape gardens.
+> 
+> But architecture isn't just about stunning grand structures like this one. World Architecture Day was established in 1985 by the International Union of Architects to align with UN World Habitat Day. On the first Monday of October, both reflect on the basic rights of everyone to housing and shelter, and the responsibilities of those who shape towns and cities.
+> 
+> 
+
+</details>
+
+| ![World Architecture Day](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Architecture Day](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_1080x1920.jpg) |
+
 ### 20231001
 
 > Lake Bled at sunrise, Slovenia (© Rasica/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Venice Skatepark, Los Angeles, California](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Venice Skatepark, Los Angeles, California](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |
-
-### 20230925
-
-> Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> It's hard not to smile when you spot a sea otter. Their whiskery faces, busy paws, and thick fur give the impression of a stuffed animal that has come to life and taken to the ocean. The heaviest members of the weasel family, sea otters aren't just cute. They also play a vital role in the underwater kelp forest ecosystem, keeping the destructive sea urchin population in check—by eating them.
-> 
-> Sea Otter Awareness Week aims to help protect their populations, found along the coasts of the north Pacific Ocean. They once numbered 300,000 but they dropped to fewer than 2,000 after widespread hunting. International protections were put into place in 1911 and numbers have rebounded to around 125,000, but they remain endangered. While some habitats never recovered, others have emerged in entirely new locations, such as Glacier Bay National Park and Preserve in Alaska. In 1995, five sea otters were spotted in Glacier Bay. Today, there are more than 8,000 hunting, playing, and raising pups in the kelp-abundant waters.
-> 
-> 
-
-</details>
-
-| ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
