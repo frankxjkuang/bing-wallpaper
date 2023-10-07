@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231005
+
+> Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> It's World Teachers' Day, time to celebrate those who dedicate their lives to transmitting knowledge, skills, and experience. Just as teachers shape minds and futures, nature too offers its own ways of passing knowledge. Nestled in the rocky landscapes of the Antarctic Peninsula and Antarctic islands, gentoo penguin hatchlings, born in pairs, benefit from dedicated parental support. The father and mother raise them in a bonded, monogamous pair, bringing food back to the stony nest they have built together. After being fed and raised for 30 days, the chicks join a larger flock known as a crèche or nursery for safety and to learn social behavior. Penguin parents and their community pass on their wisdom through the language of survival.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![World Teachers' Day](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_1080x1920.jpg) |
+
 ### 20231004
 
 > Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)
@@ -112,26 +131,7 @@
 
 | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_1080x1920.jpg) |
-
-### 20230928
-
-> Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The sea is a tough workplace, and a busy one—the shipping industry is the backbone of the global economy, transporting more than 80% of the world’s trade. On World Maritime Day, shipping professionals and leaders gather to raise awareness about maritime safety, sustainable shipping practices, and pollution. Organized by the International Maritime Organization, a UN agency, the day also honors maritime workers. These unsung heroes work long hours and spend months away from family to keep our trade flowing.
-> 
-> This year's theme focuses on the 50th anniversary of MARPOL 73/78, an international law that regulates emissions and aims to minimize pollution in our ocean waters. While the ocean plays a vital global role in trade, the survival of many species on Earth, including our own, depends on it remaining a healthy place.
-> 
-> 
-
-</details>
-
-| ![World Maritime Day](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Maritime Day](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_1080x1920.jpg) |-US2262770680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
