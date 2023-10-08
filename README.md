@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231006
+
+> Taughannock Falls State Park in Trumansburg, New York (© Paul Massie Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Taughannock Falls State Park, in New York's scenic Finger Lakes area, is home to this magnificent waterfall of the same name, which plunges 215 feet over the cliffs into the gorge below. The park also boasts stunning pathways, unique rock formations, and numerous wild animals. It's not certain where the name Taughannock came from, though a leading theory says it is a combination of Iroquois and Algonquin terms, roughly translating to 'great fall in the woods.' The park, which was founded in 1924, guarantees visitors memorable adventures, whether you hike the rim paths for panoramic views of the falls and rock formations, take a plunge in Cayuga Lake, or bring a pair of binoculars for birding. A keen eye can spot winged locals such as turkey vultures, common loons, and great horned owls.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Taughannock Falls State Park](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Taughannock Falls State Park](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_1080x1920.jpg) |
+
 ### 20231005
 
 > Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Shenandoah National Park, Virginia](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_EN-US9719781431_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shenandoah National Park, Virginia](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_EN-US9719781431_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_EN-US9719781431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_EN-US9719781431_1080x1920.jpg) |
-
-### 20230929
-
-> Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As summer's warmth gently yields to autumn's cool embrace, the Mid-Autumn Festival lights up the Chinese city of Guiyang, celebrating the full moon and the autumn harvest. Also known as the Moon Festival, it takes place on the 15th day of the year's eighth lunar month in the Chinese calendar.
-> 
-> The harvest has been celebrated around the autumn full moon since China's Shang dynasty, more than 3,000 years ago. During the festival, families reunite to enjoy delectable mooncakes, admire the beauty of the moon, express gratitude, and tell tales of Chang'e, the Chinese goddess of the moon, and her husband Hou Yi, a legendary archer.
-> 
-> Similar festivals are celebrated in Japan, Vietnam, South Korea, and other countries in East and Southeast Asia. Jiaxiu Tower, pictured on our homepage, was built in 1598, so it has witnessed many Mid-Autumn Festivals. Under the moonlit sky, lanterns adorn the tower, illuminating the streets, symbolizing hope, good fortune, and unity.
-
-</details>
-
-| ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_1080x1920.jpg) |-US2262770680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_EN-US9719781431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_EN-US9719781431_1080x1920.jpg) |gMoon_EN-US2407385108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_1080x1920.jpg) |-US2262770680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
