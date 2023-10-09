@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231007
+
+> Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Are you ready for winter? These brown bears of Katmai National Park sure are, and their efforts won't go unrewarded. Each year, park rangers organize a bracketed tournament to crown one ravenous contender as the fattest bear. Webcams are set up so anyone can join the crowds watching these bears chow down on sockeye salmon, as the fish return to the park to spawn. Once you've witnessed the feast, you can vote for which bear you think should win the title. New generations will bring new competitors, but they have big paw prints to fill. Bears such as Beadnose and 747—each animal has an ID number and several have names—are repeat champions but fat bear Otis reigns supreme, with four titles to his name. This year's Fat Bear Week finishes on Tuesday, October 10.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Fat Bear Week](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fat Bear Week](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_1080x1920.jpg) |
+
 ### 20231006
 
 > Taughannock Falls State Park in Trumansburg, New York (© Paul Massie Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Lake Bled, Slovenia](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Bled, Slovenia](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_1080x1920.jpg) |
-
-### 20230930
-
-> Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 'Oak'tober is upon us and that means it's time to turn over a new leaf! Nestled in the heart of the Blue Ridge Mountains, Shenandoah National Park spans over 200,000 acres. As summer bids farewell, the park undergoes a transformation, unveiling its most enchanting chapter: the fall season. The leaves put on their fanciest outfits—reds, oranges, and golds—creating an amazing show you won't want to miss.
-> 
-> The Skyline Drive, a 105-mile route, offers a front-row seat, with more than 75 overlooks. And there are more than 300 species of trees, vines, and shrubs to see here. The sugar maples, hickories, and oaks are the rock stars of the color-changing game. So, whether you're an avid hiker, a nature photographer, or simply seeking a tranquil escape, this park has it all.
-> 
-> 
-
-</details>
-
-| ![Shenandoah National Park, Virginia](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_EN-US9719781431_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shenandoah National Park, Virginia](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_EN-US9719781431_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_EN-US9719781431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_EN-US9719781431_1080x1920.jpg) |gMoon_EN-US2407385108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_1080x1920.jpg) |-US2262770680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_1080x1920.jpg) |ndoahFoliage_EN-US9719781431_1080x1920.jpg) |gMoon_EN-US2407385108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_1080x1920.jpg) |-US2262770680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
