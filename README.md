@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231008
+
+> Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> What exactly are we looking at here? The veined octopus, also known as the coconut octopus, is one of the smartest animals on Earth, building shelters from seashells and coconut shells. If you peek inside, you may spot those telltale suction cups that cover the creature's eight limbs. These arms contain clusters of neurons, which make them particularly sensitive, and each arm can be used separately to perform complex tasks. Octopuses can also match the color—sometimes even the texture—of their environment, making them even more difficult to spot. There's lots more to learn about these fascinating animals, and World Octopus Day is a great day to do it. You could always start with the Academy Award-winning documentary 'My Octopus Teacher.'
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![World Octopus Day](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Octopus Day](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_1080x1920.jpg) |
+
 ### 20231007
 
 > Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![World Architecture Day](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Architecture Day](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_1080x1920.jpg) |
-
-### 20231001
-
-> Lake Bled at sunrise, Slovenia (© Rasica/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Nestled amidst the Julian Alps, Slovenia's Lake Bled invites you to step into a storybook setting. The star of the show? The tiny Bled Island, which beckons with the promise of legends and 'rowmance.' Make your way there on a traditional, flat-bottomed pletna boat, piloted by oarsmen whose skills have been handed down through generations since 1740. The island is home to the 17th-century Assumption of Mary Church, with its special bell that, legend says, will make wishes come true. If you look to the shore directly above the island in our image, you can spot Bled Castle overlooking the lake's expanse. The castle—one of the oldest in Slovenia—is positioned on a precipice above the town of Bled on the northwestern shore of the lake.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Lake Bled, Slovenia](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Bled, Slovenia](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeBledSunrise_EN-US2708574517_1080x1920.jpg) |ndoahFoliage_EN-US9719781431_1080x1920.jpg) |gMoon_EN-US2407385108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_1080x1920.jpg) |-US2262770680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_1080x1920.jpg) |-US9719781431_1080x1920.jpg) |gMoon_EN-US2407385108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_1080x1920.jpg) |-US2262770680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
