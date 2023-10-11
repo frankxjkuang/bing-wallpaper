@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231009
+
+> Fremont Indian petroglyphs, Dinosaur National Monument, Jensen, Utah (© Dan Leeth/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Our homepage today celebrates Indigenous Peoples' Day. In the US, the second Monday in October is dedicated to the enduring cultures that have shaped the nation. Among them are the Fremont people, who lived in and around what is now Utah, for more than 1,000 years up to 1300 CE. This broad group of communities left a lasting mark on their region with their distinctive petroglyphs, a form of ancient art chipped or carved into rock. Today, many Americans participate in Indigenous Day celebrations such as art exhibitions, traditional music, and storytelling. Locations such as Dinosaur National Monument, Fremont Indian State Park, and McKee Spring provide insights into the history of this ancient culture that lived here for centuries.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_1080x1920.jpg) |
+
 ### 20231008
 
 > Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Whitehaven Beach, Whitsunday Island, Australia](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_EN-US2946291997_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Whitehaven Beach, Whitsunday Island, Australia](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_EN-US2946291997_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_EN-US2946291997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_EN-US2946291997_1080x1920.jpg) |
-
-### 20231002
-
-> Louis Vuitton Foundation in the Bois de Boulogne, Paris, France (© Atlantide Phototravel/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Did you know that the name Louis Vuitton is linked with more than just fashion? The eye-catching structure in today's image is the Louis Vuitton Foundation, an art museum and cultural center in Paris, France. The extravagant building opened in 2014, the result of a collaboration between the luxury goods company's CEO, Bernard Arnault, and renowned architect Frank Gehry. Gehry drew inspiration from iconic Parisian buildings, including the glass-roofed 19th-century Grand Palais exhibition hall, and applied concepts from 19th-century English landscape gardens.
-> 
-> But architecture isn't just about stunning grand structures like this one. World Architecture Day was established in 1985 by the International Union of Architects to align with UN World Habitat Day. On the first Monday of October, both reflect on the basic rights of everyone to housing and shelter, and the responsibilities of those who shape towns and cities.
-> 
-> 
-
-</details>
-
-| ![World Architecture Day](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Architecture Day](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_1080x1920.jpg) |-US9719781431_1080x1920.jpg) |gMoon_EN-US2407385108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_1080x1920.jpg) |-US2262770680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_EN-US2946291997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_EN-US2946291997_1080x1920.jpg) |oad landscape 4K](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_1080x1920.jpg) |-US9719781431_1080x1920.jpg) |gMoon_EN-US2407385108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_1080x1920.jpg) |-US2262770680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
