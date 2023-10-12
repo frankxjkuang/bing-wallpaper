@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231010
+
+> Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> The rising sun hits the twin peaks of Mount Sopris in this autumnal scene, in Colorado's Elk Mountains, in the Rockies. Known as East Sopris and West Sopris, the two summits are both 12,965 feet in elevation, towering over the town of Carbondale, in the Roaring Fork Valley. It's a common misconception that Mount Sopris was a volcano but, although magma built up beneath its surface, it never erupted. Instead, it crystallized about 10,000 feet beneath the Earth's surface, creating a massive rock-covered dome. Erosion by rain, melting snow and glacial ice then shaped it into this twin-peaked giant over tens of millions of years.
+> 
+> Mount Sopris was a hallowed site for Indigenous peoples, including the Ute tribes who have historically inhabited the region. The Roaring Fork and Crystal Valleys served as seasonal dwellings and hunting territories for the Parianuche and Yampa bands of the Ute people. The mountain continues to be a beloved emblem of the Colorado Rocky Mountains, drawing in visitors and adventurers alike.
+> 
+> 
+
+</details>
+
+| ![Mount Sopris, Colorado](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Sopris, Colorado](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_1080x1920.jpg) |
+
 ### 20231009
 
 > Fremont Indian petroglyphs, Dinosaur National Monument, Jensen, Utah (© Dan Leeth/Alamy)
@@ -112,26 +131,7 @@
 
 | ![World Space Week](https://cn.bing.com/th?id=OHR.TarantulaNebula_EN-US3085335513_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Space Week](https://cn.bing.com/th?id=OHR.TarantulaNebula_EN-US3085335513_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TarantulaNebula_EN-US3085335513_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TarantulaNebula_EN-US3085335513_1080x1920.jpg) |
-
-### 20231003
-
-> Whitehaven Beach, Whitsunday Island, Queensland, Australia (© Coral Brunner/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Sun, sand, and sea come together to create the stunning beaches of the Whitsunday Islands, made up of 74 islands off the coast of Queensland, Australia. The Great Barrier Reef Marine Park surrounds and protects the islands, once home to the Ngaro people of Australia, an Aboriginal group known as the 'canoe people' due to their seafaring lifestyle. Today, the island's primary visitors are travelers, divers, campers, and adventure seekers. So, pack your sunscreen and explore the pristine white sand beaches on your next vacation down under!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Whitehaven Beach, Whitsunday Island, Australia](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_EN-US2946291997_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Whitehaven Beach, Whitsunday Island, Australia](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_EN-US2946291997_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_EN-US2946291997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_EN-US2946291997_1080x1920.jpg) |oad landscape 4K](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VuittonFoundation_EN-US2808914200_1080x1920.jpg) |-US9719781431_1080x1920.jpg) |gMoon_EN-US2407385108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_1080x1920.jpg) |-US2262770680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TarantulaNebula_EN-US3085335513_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TarantulaNebula_EN-US3085335513_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
