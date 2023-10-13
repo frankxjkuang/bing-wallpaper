@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231011
+
+> The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> For National Fossil Day, we're looking at the mesmerizing Painted Hills, found in the John Day Fossil Beds National Monument in Oregon. Those stripes of red, tan, orange, and black were formed over tens of millions of years, the different layers in the claystone hills reflecting changes in the climate over that period. The monument itself is divided into three units, Painted Hills, Clarno, and Sheep Rock. In the latter, you'll find the Thomas Condon Visitor Center with a paleontology lab and a museum displaying hundreds of fossils. In the fossil beds, the remains of more than 100 species of mammals have been found, including saber-toothed tigers, turtles, and opossums, as well as many fossilized plant species. While the landscape might sometimes look otherworldly, it offers us a peek into Earth's dynamic and fascinating history.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![National Fossil Day](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Fossil Day](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_1080x1920.jpg) |
+
 ### 20231010
 
 > Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)
@@ -112,28 +131,7 @@
 
 | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_1080x1920.jpg) |
-
-### 20231004
-
-> Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)
-
-<details>
-<summary>Description</summary>
-
-> It's World Space Week, an opportunity to celebrate humanity's extraterrestrial achievements, as well as the benefits that come from space exploration and technology. The star of our homepage is actually a star-forming region known as the Tarantula Nebula, found in the same group of galaxies as our Milky Way. This detailed image was captured by the powerful James Webb Space Telescope and shows thousands of never-before-seen stars, previously obscured by cosmic dust. The nebula's colossal size and dynamic energy offer plenty of compelling material for astronomers and stargazers of all stripes.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![World Space Week](https://cn.bing.com/th?id=OHR.TarantulaNebula_EN-US3085335513_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Space Week](https://cn.bing.com/th?id=OHR.TarantulaNebula_EN-US3085335513_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TarantulaNebula_EN-US3085335513_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TarantulaNebula_EN-US3085335513_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_1080x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
