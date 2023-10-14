@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231012
+
+> Old barn and canola field, Palouse region, Washington (© Terry Eggers/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Come and gather around, folks! It's time to express our gratitude toward the harvesting heroes, the guardians of crops: farmers. Farmer's Day is a celebration of determination and a deep-rooted relationship with the land. From dusk to dawn throughout the seasons, farmers work tirelessly to ensure that produce shelves stay stocked. The interior northwest's Palouse region is one of the country's most fertile farming regions, with rolling hills of wheat, legumes, and canola, as seen here today. Old barns with rusty roofs and weathered wood tell tales of harvests and hardships faced by generations of farmers. So, when you eat your next meal, we encourage you to take a moment and think of the workers who produced that food from the land.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Farmer's Day](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Farmer's Day](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_1080x1920.jpg) |
+
 ### 20231011
 
 > The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Taughannock Falls State Park](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Taughannock Falls State Park](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_1080x1920.jpg) |
-
-### 20231005
-
-> Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It's World Teachers' Day, time to celebrate those who dedicate their lives to transmitting knowledge, skills, and experience. Just as teachers shape minds and futures, nature too offers its own ways of passing knowledge. Nestled in the rocky landscapes of the Antarctic Peninsula and Antarctic islands, gentoo penguin hatchlings, born in pairs, benefit from dedicated parental support. The father and mother raise them in a bonded, monogamous pair, bringing food back to the stony nest they have built together. After being fed and raised for 30 days, the chicks join a larger flock known as a crèche or nursery for safety and to learn social behavior. Penguin parents and their community pass on their wisdom through the language of survival.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![World Teachers' Day](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GentooJump_EN-US3267430533_1080x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
