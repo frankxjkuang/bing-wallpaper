@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231013
+
+> Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Vieste is a picturesque town on the eastern coast of Italy. With origins dating back thousands of years, its history is a tapestry woven by various civilizations, including the Normans, Byzantines, and Romans. The town's historic center is filled with charming narrow streets, ancient architecture, and a medieval Swabian castle overlooking the Adriatic Sea. Perched on dramatic limestone cliffs, its stunning natural landscape also boasts pristine beaches and clear waters that have Blue Flag certification for their quality. The famous Pizzomunno rock formation has various legends associated with it, often about a young man of the same name and his lover Cristalda. With its blend of history, natural wonders, and leisure pursuits, Vieste remains a captivating destination for those seeking an authentic Italian experience.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Vieste, Apulia, Italy](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vieste, Apulia, Italy](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |
+
 ### 20231012
 
 > Old barn and canola field, Palouse region, Washington (© Terry Eggers/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Fat Bear Week](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fat Bear Week](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_1080x1920.jpg) |
-
-### 20231006
-
-> Taughannock Falls State Park in Trumansburg, New York (© Paul Massie Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Taughannock Falls State Park, in New York's scenic Finger Lakes area, is home to this magnificent waterfall of the same name, which plunges 215 feet over the cliffs into the gorge below. The park also boasts stunning pathways, unique rock formations, and numerous wild animals. It's not certain where the name Taughannock came from, though a leading theory says it is a combination of Iroquois and Algonquin terms, roughly translating to 'great fall in the woods.' The park, which was founded in 1924, guarantees visitors memorable adventures, whether you hike the rim paths for panoramic views of the falls and rock formations, take a plunge in Cayuga Lake, or bring a pair of binoculars for birding. A keen eye can spot winged locals such as turkey vultures, common loons, and great horned owls.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Taughannock Falls State Park](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Taughannock Falls State Park](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TaughannockFalls_EN-US8509030625_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_1080x1920.jpg) |509030625_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
