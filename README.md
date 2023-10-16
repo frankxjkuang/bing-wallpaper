@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231014
+
+> 'Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Sky gazers have been counting down to today: a 'ring of fire' annular solar eclipse is here to darken the skies over the Americas! Solar eclipses happen when the moon passes between the sun and Earth, casting parts of Earth into shadow. In an annular solar eclipse, a halo effect is created when the moon blocks out most but not all, of the sun's light. An annulus—or ring—of light remains visible. Seen here from Doha, Qatar, in 2019, the phenomenon will appear today over the United States—traveling from Oregon to Texas before continuing to Central America and ending in South America. While the 'ring of fire' is visible only in certain areas, partial eclipses will grace parts of all 50 states.
+> 
+> For those fortunate enough to live on the path of this cosmic show, be cautious. Do not look directly at the eclipse without specialized eye protection. Don't hesitate to make travel plans to see it, as the US will have to wait until 2039 for the next such event.
+> 
+> 
+
+</details>
+
+| !['Ring of fire' solar eclipse](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | !['Ring of fire' solar eclipse](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |
+
 ### 20231013
 
 > Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Octopus Day](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Octopus Day](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_1080x1920.jpg) |
-
-### 20231007
-
-> Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Are you ready for winter? These brown bears of Katmai National Park sure are, and their efforts won't go unrewarded. Each year, park rangers organize a bracketed tournament to crown one ravenous contender as the fattest bear. Webcams are set up so anyone can join the crowds watching these bears chow down on sockeye salmon, as the fish return to the park to spawn. Once you've witnessed the feast, you can vote for which bear you think should win the title. New generations will bring new competitors, but they have big paw prints to fill. Bears such as Beadnose and 747—each animal has an ID number and several have names—are repeat champions but fat bear Otis reigns supreme, with four titles to his name. This year's Fat Bear Week finishes on Tuesday, October 10.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Fat Bear Week](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fat Bear Week](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrizzlyFalls_EN-US9219501224_1080x1920.jpg) |509030625_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_1080x1920.jpg) |x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
