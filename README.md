@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231015
+
+> European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Brown, round, tiny, and spiny—say hello to the European hedgehog. Our image was taken in Sussex, England, but you'll find these prickly creatures in gardens, parks, and woodland throughout Europe. Mostly nocturnal, they are welcomed by gardeners as they snack on snails and slugs. With leaves turning gold and the air getting chilly, our homepage hedgehog is all set to gain some weight for the winter.
+> 
+> Hedgehogs cozy up in their nests of logs and leaves and sleep away the winter blues. They slow down their heartbeats to conserve energy, helping them to survive on fat reserves until spring. Hedgehogs depend on their spines for defense against predators like foxes, badgers, and birds of prey. There are no native hedgehogs living in North America, but 17 species can be found across Europe, Asia, Africa, and New Zealand, snoozing the day away beneath bushes, leaves, and rocks and snuffling around by night.
+> 
+> 
+
+</details>
+
+| ![European hedgehog](https://cn.bing.com/th?id=OHR.AutumnHedgehog_EN-US1171311197_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European hedgehog](https://cn.bing.com/th?id=OHR.AutumnHedgehog_EN-US1171311197_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnHedgehog_EN-US1171311197_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnHedgehog_EN-US1171311197_1080x1920.jpg) |
+
 ### 20231014
 
 > 'Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_1080x1920.jpg) |
-
-### 20231008
-
-> Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> What exactly are we looking at here? The veined octopus, also known as the coconut octopus, is one of the smartest animals on Earth, building shelters from seashells and coconut shells. If you peek inside, you may spot those telltale suction cups that cover the creature's eight limbs. These arms contain clusters of neurons, which make them particularly sensitive, and each arm can be used separately to perform complex tasks. Octopuses can also match the color—sometimes even the texture—of their environment, making them even more difficult to spot. There's lots more to learn about these fascinating animals, and World Octopus Day is a great day to do it. You could always start with the Academy Award-winning documentary 'My Octopus Teacher.'
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![World Octopus Day](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Octopus Day](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OctoClam_EN-US9467607669_1080x1920.jpg) |x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_1080x1920.jpg) |th?id=OHR.FraserRiverBC_EN-US1696932265_1080x1920.jpg) |7808554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_1080x1920.jpg) |554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
