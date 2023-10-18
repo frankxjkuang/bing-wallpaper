@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231016
+
+> Golden larches and Prusik Peak, the Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> That jagged granite summit is Prusik Peak, an icon of Washington state's Enchantments region, high in the Cascade Mountain range. Getting here means a long, strenuous hike, and for much of the year it is covered in snow. But from midsummer through the fall, hikers and climbers arrive here as the larch trees turn golden. The granite peaks and autumnal colors are not the only attractions. The Enchantments boasts more than 700 alpine lakes and ponds, as well as herds of grazing mountain goats that roam this corner of the scenic Alpine Lakes Wilderness.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Golden larches and Prusik Peak, the Enchantments, Washington](https://cn.bing.com/th?id=OHR.GoldenEnchantments_EN-US1308880623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Golden larches and Prusik Peak, the Enchantments, Washington](https://cn.bing.com/th?id=OHR.GoldenEnchantments_EN-US1308880623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenEnchantments_EN-US1308880623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenEnchantments_EN-US1308880623_1080x1920.jpg) |
+
 ### 20231015
 
 > European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Mount Sopris, Colorado](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Sopris, Colorado](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_1080x1920.jpg) |
-
-### 20231009
-
-> Fremont Indian petroglyphs, Dinosaur National Monument, Jensen, Utah (© Dan Leeth/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Our homepage today celebrates Indigenous Peoples' Day. In the US, the second Monday in October is dedicated to the enduring cultures that have shaped the nation. Among them are the Fremont people, who lived in and around what is now Utah, for more than 1,000 years up to 1300 CE. This broad group of communities left a lasting mark on their region with their distinctive petroglyphs, a form of ancient art chipped or carved into rock. Today, many Americans participate in Indigenous Day celebrations such as art exhibitions, traditional music, and storytelling. Locations such as Dinosaur National Monument, Fremont Indian State Park, and McKee Spring provide insights into the history of this ancient culture that lived here for centuries.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_1080x1920.jpg) |554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_1080x1920.jpg) |554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
