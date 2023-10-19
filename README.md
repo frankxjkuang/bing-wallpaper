@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231017
+
+> Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Happy Spreadsheet Day! Be they a pivot table pro or an entry-level novice, spreadsheet users worldwide have one person to thank: Dan Bricklin released the first electronic spreadsheet program on this day in 1979. The day celebrates the sophisticated grids that have reshaped businesses from accounting and engineering to project management. But data handling did not begin in the digital age. Ancient civilizations had their own ways of recording and tracking the world around them, as seen in our homepage image.
+> 
+> Cuneiform, a script characterized by wedge-shaped symbols, was used to transcribe languages of the ancient Near East, a region roughly corresponding to today's Middle East. First developed around 3500 BCE, it was used for thousands of years, until the 1st century CE. In the early 17th century, the publication of Achaemenid royal inscriptions at Persepolis—in modern-day Iran—shed light again on cuneiform. These inscriptions had a mix of languages and were finally deciphered in the 19th century.
+> 
+> 
+
+</details>
+
+| ![Spreadsheet Day](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spreadsheet Day](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_1080x1920.jpg) |
+
 ### 20231016
 
 > Golden larches and Prusik Peak, the Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![National Fossil Day](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Fossil Day](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_1080x1920.jpg) |
-
-### 20231010
-
-> Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> The rising sun hits the twin peaks of Mount Sopris in this autumnal scene, in Colorado's Elk Mountains, in the Rockies. Known as East Sopris and West Sopris, the two summits are both 12,965 feet in elevation, towering over the town of Carbondale, in the Roaring Fork Valley. It's a common misconception that Mount Sopris was a volcano but, although magma built up beneath its surface, it never erupted. Instead, it crystallized about 10,000 feet beneath the Earth's surface, creating a massive rock-covered dome. Erosion by rain, melting snow and glacial ice then shaped it into this twin-peaked giant over tens of millions of years.
-> 
-> Mount Sopris was a hallowed site for Indigenous peoples, including the Ute tribes who have historically inhabited the region. The Roaring Fork and Crystal Valleys served as seasonal dwellings and hunting territories for the Parianuche and Yampa bands of the Ute people. The mountain continues to be a beloved emblem of the Colorado Rocky Mountains, drawing in visitors and adventurers alike.
-> 
-> 
-
-</details>
-
-| ![Mount Sopris, Colorado](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Sopris, Colorado](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_1080x1920.jpg) |554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_1080x1920.jpg) |46_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_1080x1920.jpg) |554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
