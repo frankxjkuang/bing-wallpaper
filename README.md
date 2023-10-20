@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231018
+
+> Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> On October 18, 1867, the Russian Empire transferred the territory of Alaska to the United States following negotiations by US Secretary of State William Seward. The US paid $7.2 million, or about 2 cents per acre, for the land, adding more than 586,0000 square miles to its territory. Today the date is known as Alaska Day and honors the history, untamed wilderness, and unwavering resilience of the state.
+> 
+> To mark the day, we are in the Kodiak National Wildlife Refuge, spread over several islands in the Kodiak Archipelago in southwestern Alaska. Our homepage image shows Kodiak Island, whose landscape includes hundreds of miles of shoreline as well as lakes, marshes, bogs, and meadows. Its towering mountains are home to fjord inlets and lush vegetation, including sedges, alders, spruces, wildflowers, and berries. A wild inhabitant of the islands, the Kodiak bear, the largest subspecies of brown bear, is named after the archipelago.
+> 
+> 
+
+</details>
+
+| ![Alaska Day](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska Day](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_1080x1920.jpg) |
+
 ### 20231017
 
 > Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Farmer's Day](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Farmer's Day](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_1080x1920.jpg) |
-
-### 20231011
-
-> The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> For National Fossil Day, we're looking at the mesmerizing Painted Hills, found in the John Day Fossil Beds National Monument in Oregon. Those stripes of red, tan, orange, and black were formed over tens of millions of years, the different layers in the claystone hills reflecting changes in the climate over that period. The monument itself is divided into three units, Painted Hills, Clarno, and Sheep Rock. In the latter, you'll find the Thomas Condon Visitor Center with a paleontology lab and a museum displaying hundreds of fossils. In the fossil beds, the remains of more than 100 species of mammals have been found, including saber-toothed tigers, turtles, and opossums, as well as many fossilized plant species. While the landscape might sometimes look otherworldly, it offers us a peek into Earth's dynamic and fascinating history.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![National Fossil Day](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Fossil Day](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_1080x1920.jpg) |46_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_1080x1920.jpg) |554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_1080x1920.jpg) |FremontPetroglyph_EN-US9601526664_1080x1920.jpg) |554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
