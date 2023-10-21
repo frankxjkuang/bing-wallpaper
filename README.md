@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231019
+
+> Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> In southern Vietnam, where emerald rice fields stretch to the horizon and the Mekong River flows with life-giving waters, the annual water lily harvest looks from above like a well-choreographed dance with nature.
+> 
+> When the river floods, it becomes a photographer's paradise, awash with flowering lilies. These farmers in Long An province are pictured wading in waist-deep to harvest the long-stemmed plants, which will be bundled up for sale. The lilies contribute to the local economy as the stems are edible and the plant can be brewed into tea or used for decoration. Here flooding is a part of life, bringing nutrients from upstream which enrich fields and help these flowers to grow, painting the Mekong River in stunning shades of pink and white.
+> 
+> 
+
+</details>
+
+| ![Mekong River Delta, Long An, Vietnam](https://cn.bing.com/th?id=OHR.WaterLilyVietnam_EN-US1552107370_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mekong River Delta, Long An, Vietnam](https://cn.bing.com/th?id=OHR.WaterLilyVietnam_EN-US1552107370_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WaterLilyVietnam_EN-US1552107370_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WaterLilyVietnam_EN-US1552107370_1080x1920.jpg) |
+
 ### 20231018
 
 > Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Vieste, Apulia, Italy](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vieste, Apulia, Italy](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |
-
-### 20231012
-
-> Old barn and canola field, Palouse region, Washington (© Terry Eggers/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Come and gather around, folks! It's time to express our gratitude toward the harvesting heroes, the guardians of crops: farmers. Farmer's Day is a celebration of determination and a deep-rooted relationship with the land. From dusk to dawn throughout the seasons, farmers work tirelessly to ensure that produce shelves stay stocked. The interior northwest's Palouse region is one of the country's most fertile farming regions, with rolling hills of wheat, legumes, and canola, as seen here today. Old barns with rusty roofs and weathered wood tell tales of harvests and hardships faced by generations of farmers. So, when you eat your next meal, we encourage you to take a moment and think of the workers who produced that food from the land.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Farmer's Day](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Farmer's Day](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_1080x1920.jpg) |FremontPetroglyph_EN-US9601526664_1080x1920.jpg) |554_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
