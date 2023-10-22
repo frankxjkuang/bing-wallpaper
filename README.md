@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231020
+
+> Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Let's all slow down to celebrate International Sloth Day, the perfect time to take things easy. With that friendly smile, you might think this pygmy three-toed sloth is inviting you to hang out, but these animals are not easy to find. Also known as the monk sloth or dwarf sloth, the species lives exclusively on a small island off Panama's coast, Isla Escudo de Veraguas. Pygmy three-toed sloths are much smaller than other kinds of sloths, at about 20 inches long, and they weigh less than 8 pounds. Sadly, this species is classified as critically endangered. International Sloth Day aims to raise awareness of the planet's slowest mammal and help them to survive and thrive in the wild, at their own pace.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![International Sloth Day](https://cn.bing.com/th?id=OHR.PygmySloth_EN-US9345280015_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Sloth Day](https://cn.bing.com/th?id=OHR.PygmySloth_EN-US9345280015_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PygmySloth_EN-US9345280015_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PygmySloth_EN-US9345280015_1080x1920.jpg) |
+
 ### 20231019
 
 > Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)
@@ -112,26 +131,7 @@
 
 | !['Ring of fire' solar eclipse](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | !['Ring of fire' solar eclipse](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |
-
-### 20231013
-
-> Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Vieste is a picturesque town on the eastern coast of Italy. With origins dating back thousands of years, its history is a tapestry woven by various civilizations, including the Normans, Byzantines, and Romans. The town's historic center is filled with charming narrow streets, ancient architecture, and a medieval Swabian castle overlooking the Adriatic Sea. Perched on dramatic limestone cliffs, its stunning natural landscape also boasts pristine beaches and clear waters that have Blue Flag certification for their quality. The famous Pizzomunno rock formation has various legends associated with it, often about a young man of the same name and his lover Cristalda. With its blend of history, natural wonders, and leisure pursuits, Vieste remains a captivating destination for those seeking an authentic Italian experience.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Vieste, Apulia, Italy](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vieste, Apulia, Italy](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
