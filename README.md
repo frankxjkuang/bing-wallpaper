@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231022
+
+> Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Imagine traveling for nearly two years across plains, mountains, and forests and finally arriving at this setting, where the mighty Columbia River empties into the Pacific near present-day Astoria, Oregon. That is the sight that greeted explorers Meriwether Lewis and William Clark in 1805 at the halfway point of their legendary 8,000-mile North American expedition that originated near St. Louis.
+> 
+> The expedition's success opened the way for further exploration and development of the Pacific Northwest and by 1811, Fort Astoria, the first US-owned settlement on the West Coast, was established. Oregon became the 33rd state in 1859. The Astoria-Megler Bridge opened in 1966, the final piece connecting Los Angeles to Olympia, Washington, via US Route 101.
+> 
+> Water from seven states and two Canadian provinces flows through the Columbia, passing under the 4-mile structure, the longest continuous truss bridge in North America.
+
+</details>
+
+| ![Astoria-Megler Bridge, Oregon](https://cn.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Astoria-Megler Bridge, Oregon](https://cn.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_1080x1920.jpg) |
+
 ### 20231021
 
 > Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Golden larches and Prusik Peak, the Enchantments, Washington](https://cn.bing.com/th?id=OHR.GoldenEnchantments_EN-US1308880623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Golden larches and Prusik Peak, the Enchantments, Washington](https://cn.bing.com/th?id=OHR.GoldenEnchantments_EN-US1308880623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenEnchantments_EN-US1308880623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenEnchantments_EN-US1308880623_1080x1920.jpg) |
-
-### 20231015
-
-> European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Brown, round, tiny, and spiny—say hello to the European hedgehog. Our image was taken in Sussex, England, but you'll find these prickly creatures in gardens, parks, and woodland throughout Europe. Mostly nocturnal, they are welcomed by gardeners as they snack on snails and slugs. With leaves turning gold and the air getting chilly, our homepage hedgehog is all set to gain some weight for the winter.
-> 
-> Hedgehogs cozy up in their nests of logs and leaves and sleep away the winter blues. They slow down their heartbeats to conserve energy, helping them to survive on fat reserves until spring. Hedgehogs depend on their spines for defense against predators like foxes, badgers, and birds of prey. There are no native hedgehogs living in North America, but 17 species can be found across Europe, Asia, Africa, and New Zealand, snoozing the day away beneath bushes, leaves, and rocks and snuffling around by night.
-> 
-> 
-
-</details>
-
-| ![European hedgehog](https://cn.bing.com/th?id=OHR.AutumnHedgehog_EN-US1171311197_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European hedgehog](https://cn.bing.com/th?id=OHR.AutumnHedgehog_EN-US1171311197_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnHedgehog_EN-US1171311197_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnHedgehog_EN-US1171311197_1080x1920.jpg) |/th?id=OHR.RingEclipse_EN-US1077107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenEnchantments_EN-US1308880623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenEnchantments_EN-US1308880623_1080x1920.jpg) |77107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
