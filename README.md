@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231024
+
+> Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Hungary is a country blessed with stunning landscapes and a host of historic castles. From the opulent Buda Castle in Budapest, with its commanding views of the Danube, to Eger Castle, renowned for its heroic defense against the Turks, each site has a story to tell.
+> 
+> Our homepage image shows one such stronghold, Füzér Castle, which crowns the Zemplén Mountains near Hungary's northern border and dates back to the 13th century. Perched at an elevation of over 1,800 feet above sea level, this castle stands on a mountain of volcanic origin. Here, within its ancient stone walls, the crown of Hungary was hidden following the country's defeat by the Ottoman Empire in the 1526 Battle of Mohács. After years of ruin, the castle's chapel was restored in 2016, and the keep was rebuilt to its former glory.
+> 
+> 
+
+</details>
+
+| ![Füzér Castle in the Zemplén Mountains, Hungary](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Füzér Castle in the Zemplén Mountains, Hungary](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |
+
 ### 20231023
 
 > Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Alaska Day](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska Day](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_1080x1920.jpg) |
-
-### 20231017
-
-> Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Happy Spreadsheet Day! Be they a pivot table pro or an entry-level novice, spreadsheet users worldwide have one person to thank: Dan Bricklin released the first electronic spreadsheet program on this day in 1979. The day celebrates the sophisticated grids that have reshaped businesses from accounting and engineering to project management. But data handling did not begin in the digital age. Ancient civilizations had their own ways of recording and tracking the world around them, as seen in our homepage image.
-> 
-> Cuneiform, a script characterized by wedge-shaped symbols, was used to transcribe languages of the ancient Near East, a region roughly corresponding to today's Middle East. First developed around 3500 BCE, it was used for thousands of years, until the 1st century CE. In the early 17th century, the publication of Achaemenid royal inscriptions at Persepolis—in modern-day Iran—shed light again on cuneiform. These inscriptions had a mix of languages and were finally deciphered in the 19th century.
-> 
-> 
-
-</details>
-
-| ![Spreadsheet Day](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spreadsheet Day](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_1080x1920.jpg) |R.GoldenEnchantments_EN-US1308880623_1080x1920.jpg) |77107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_1080x1920.jpg) |R.SpreadsheetDay_EN-US1385391820_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_1080x1920.jpg) |R.GoldenEnchantments_EN-US1308880623_1080x1920.jpg) |77107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
