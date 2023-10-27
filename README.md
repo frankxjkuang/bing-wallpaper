@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231025
+
+> Cottonwood trees in Grand Staircase-Escalante National Monument, Utah (© Jeff Foott/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> The Grand Staircase–Escalante National Monument is an untamed wilderness of cliffs and canyons in the heart of southern Utah. The Grand Staircase is a sequence of five majestic sandstone cliffs, rising approximately 5,500 feet across the expanse of the monument. Each step records a different era in Earth's geological history, a vast showcase of changes over 200 million years. Archaeologists have found prehistoric artifacts, petrified wood, and dinosaur fossils which are over 75 million years old. In human history, the Ancestral Puebloan and Fremont people mastered the art of farming in this challenging terrain. They constructed granaries to store and preserve their harvests. Today, it is a popular getaway for nature enthusiasts and travelers seeking adventure.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Grand Staircase-Escalante National Monument, Utah](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grand Staircase-Escalante National Monument, Utah](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_1080x1920.jpg) |
+
 ### 20231024
 
 > Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Mekong River Delta, Long An, Vietnam](https://cn.bing.com/th?id=OHR.WaterLilyVietnam_EN-US1552107370_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mekong River Delta, Long An, Vietnam](https://cn.bing.com/th?id=OHR.WaterLilyVietnam_EN-US1552107370_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WaterLilyVietnam_EN-US1552107370_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WaterLilyVietnam_EN-US1552107370_1080x1920.jpg) |
-
-### 20231018
-
-> Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> On October 18, 1867, the Russian Empire transferred the territory of Alaska to the United States following negotiations by US Secretary of State William Seward. The US paid $7.2 million, or about 2 cents per acre, for the land, adding more than 586,0000 square miles to its territory. Today the date is known as Alaska Day and honors the history, untamed wilderness, and unwavering resilience of the state.
-> 
-> To mark the day, we are in the Kodiak National Wildlife Refuge, spread over several islands in the Kodiak Archipelago in southwestern Alaska. Our homepage image shows Kodiak Island, whose landscape includes hundreds of miles of shoreline as well as lakes, marshes, bogs, and meadows. Its towering mountains are home to fjord inlets and lush vegetation, including sedges, alders, spruces, wildflowers, and berries. A wild inhabitant of the islands, the Kodiak bear, the largest subspecies of brown bear, is named after the archipelago.
-> 
-> 
-
-</details>
-
-| ![Alaska Day](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska Day](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_1080x1920.jpg) |R.SpreadsheetDay_EN-US1385391820_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_1080x1920.jpg) |R.GoldenEnchantments_EN-US1308880623_1080x1920.jpg) |77107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WaterLilyVietnam_EN-US1552107370_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WaterLilyVietnam_EN-US1552107370_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_1080x1920.jpg) |R.SpreadsheetDay_EN-US1385391820_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_1080x1920.jpg) |R.GoldenEnchantments_EN-US1308880623_1080x1920.jpg) |77107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
