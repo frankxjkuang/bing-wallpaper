@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231027
+
+> Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> The enchanting Isle of Skye in Scotland is home to the Sligachan Old Bridge, built by Thomas Telford, a prolific Scottish civil engineer, in the early 1800s. The bridge arches over a river of the same name, and carries only cyclists and pedestrians, while a modern bridge downstream serves cars. From atop the bridge's weathered, mossy stones, travelers can take in the majestic Cuillin Mountains in the distance. According to local tradition, the Sligachan River's water contains a mysterious blessing provided by fairies. Those who dare to immerse their faces in these waters are said to be gifted with timeless beauty.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Sligachan Old Bridge, Isle of Skye, Scotland](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sligachan Old Bridge, Isle of Skye, Scotland](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_1080x1920.jpg) |
+
 ### 20231026
 
 > Autumn foliage in Schönbrunn Palace Park, Vienna, Austria (© rusm/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_1080x1920.jpg) |
-
-### 20231020
-
-> Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Let's all slow down to celebrate International Sloth Day, the perfect time to take things easy. With that friendly smile, you might think this pygmy three-toed sloth is inviting you to hang out, but these animals are not easy to find. Also known as the monk sloth or dwarf sloth, the species lives exclusively on a small island off Panama's coast, Isla Escudo de Veraguas. Pygmy three-toed sloths are much smaller than other kinds of sloths, at about 20 inches long, and they weigh less than 8 pounds. Sadly, this species is classified as critically endangered. International Sloth Day aims to raise awareness of the planet's slowest mammal and help them to survive and thrive in the wild, at their own pace.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![International Sloth Day](https://cn.bing.com/th?id=OHR.PygmySloth_EN-US9345280015_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Sloth Day](https://cn.bing.com/th?id=OHR.PygmySloth_EN-US9345280015_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PygmySloth_EN-US9345280015_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PygmySloth_EN-US9345280015_1080x1920.jpg) |1552107370_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_1080x1920.jpg) |R.SpreadsheetDay_EN-US1385391820_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_1080x1920.jpg) |R.GoldenEnchantments_EN-US1308880623_1080x1920.jpg) |77107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_1080x1920.jpg) |mySloth_EN-US9345280015_1080x1920.jpg) |1552107370_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_1080x1920.jpg) |R.SpreadsheetDay_EN-US1385391820_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_1080x1920.jpg) |R.GoldenEnchantments_EN-US1308880623_1080x1920.jpg) |77107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
