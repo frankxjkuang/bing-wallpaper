@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231028
+
+> Windmills in Castilla-La Mancha, Spain (© Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In the Spanish town of Consuegra, echoes linger of the adventures of Don Quixote, the hero of Miguel de Cervantes' epic novel. This tourist destination in Castilla-La Mancha is famous for its rocky ridge, known as Cerro Calderico, crowned with 12 white windmills. The windmills are thought to have inspired Cervantes to write the famous scene in which Don Quixote mistakes them for an army of giants. With their stone walls and wooden blades, some date back to the 16th century, when they were built to grind grain.
+> 
+> Castilla-La Mancha is the third-largest region—after Castile y León and Andalusia—in Spain but one of the least densely populated. The regional capital city, Toledo, has a significant architectural and cultural legacy—including Old Town and the Catedral de Toledo—that led to its designation as a UNESCO World Heritage site in 1986. So, for your next quest, let the windmills of Castilla-La Mancha whisper their timeless tales in your ear.
+> 
+> 
+
+</details>
+
+| ![Castilla-La Mancha, Spain](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castilla-La Mancha, Spain](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_1080x1920.jpg) |
+
 ### 20231027
 
 > Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Astoria-Megler Bridge, Oregon](https://cn.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Astoria-Megler Bridge, Oregon](https://cn.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_1080x1920.jpg) |
-
-### 20231021
-
-> Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It's International Archaeology Day, an opportunity to discover more about our past and different societies through ancient sites and artifacts. Across the world, events such as scavenger hunts, lectures, and interactive workshops will be held to mark the day and awaken your inner Indiana Jones.
-> 
-> Persepolis, whose ruins are in modern-day Iran, is an ancient archaeological site that once served as the ceremonial capital of the mighty Achaemenid Empire (c. 550–330 BCE). This UNESCO World Heritage Site is legendary for its magnificent ruins and Achaemenid architecture, including grand palaces, intricate carvings, and towering columns. Visitors can wander through the ruins to get a glimpse of its majestic past, when it was at the heart of what was then the largest empire of the ancient world.
-> 
-> 
-
-</details>
-
-| ![International Archaeology Day](https://cn.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_1080x1920.jpg) |mySloth_EN-US9345280015_1080x1920.jpg) |1552107370_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.KodiakAlaska_EN-US1478138954_1080x1920.jpg) |R.SpreadsheetDay_EN-US1385391820_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_1080x1920.jpg) |R.GoldenEnchantments_EN-US1308880623_1080x1920.jpg) |77107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_1080x1920.jpg) |ska_EN-US1478138954_1080x1920.jpg) |R.SpreadsheetDay_EN-US1385391820_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_1080x1920.jpg) |R.GoldenEnchantments_EN-US1308880623_1080x1920.jpg) |77107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
