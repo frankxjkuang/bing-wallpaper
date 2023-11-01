@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231030
+
+> Common raven sitting on a branch (© WildMedia/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> The common raven is an intelligent and adaptable bird known for its striking appearance and remarkable behaviors. This elegant bird is easily identified by its characteristic wedge-shaped tail and glossy black feathers. Their keen eyesight and agile flight make them proficient hunters, often scavenging for prey or stealing from other predators. Ravens are known for their playful behavior and their omnivorous diet, feeding on a wide variety of foods, including carrion, insects, and small mammals.
+> 
+> Revered across various cultures, ravens have frequently appeared in literature and legends. In Edgar Allan Poe's famous poem, 'The Raven,' this bird serves as a symbol of death and melancholy, haunting the protagonist with its ominous refrain of 'nevermore.' Native American folklore often portrays the raven as a cunning and mystical trickster, with some tribes believing it possessed the power to shape-shift. Ravens also feature prominently in Norse mythology where they were considered to be wise messengers of the god Odin.
+> 
+> 
+
+</details>
+
+| ![Common raven](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Common raven](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_1080x1920.jpg) |
+
 ### 20231029
 
 > Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Füzér Castle in the Zemplén Mountains, Hungary](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Füzér Castle in the Zemplén Mountains, Hungary](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |
-
-### 20231023
-
-> Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> All hail Mazezilla, a massive maze of corn found in the Poconos region of Pennsylvania. Spread over 11 acres, there is a different one to solve every year, making it a popular attraction each September and October for those who enjoy perplexing challenges on a giant scale.
-> 
-> Corn mazes have been a fall tradition in the US since 1993. Farmers meticulously plan their maze production, design, and marketing strategies. The designs come in many forms, including complex geometric shapes, fictional characters, and spooky imagery. So, how do you prefer your corn? Grilled, boiled, or as a bewildering labyrinth?
-> 
-> 
-
-</details>
-
-| ![Corn maze in Saylorsburg, Pennsylvania](https://cn.bing.com/th?id=OHR.PoconosMaze_EN-US4210947594_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Corn maze in Saylorsburg, Pennsylvania](https://cn.bing.com/th?id=OHR.PoconosMaze_EN-US4210947594_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PoconosMaze_EN-US4210947594_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PoconosMaze_EN-US4210947594_1080x1920.jpg) |aBridge_EN-US9518437970_1080x1920.jpg) |ska_EN-US1478138954_1080x1920.jpg) |R.SpreadsheetDay_EN-US1385391820_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpreadsheetDay_EN-US1385391820_1080x1920.jpg) |R.GoldenEnchantments_EN-US1308880623_1080x1920.jpg) |77107553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
