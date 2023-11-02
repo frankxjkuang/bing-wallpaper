@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231031
+
+> Halloween jack-o'-lanterns on a porch (© Bing Image Creator)
+
+<details>
+<summary>Description</summary>
+
+> Halloween is here! A night when glowing jack-o'-lanterns decorate doorsteps across the country. The custom has its roots in 19th-century Ireland, where turnips and potatoes were sculpted into scary faces. When Irish immigrants arrived in the US, they found pumpkins much easier to carve and a new tradition was born. The digital age has made things easier still, for those whose carving skills are not up to scratch. This image was created with Bing Image Creator (now even better with DALL·E 3)—create your own jack-o'-lantern with the power of AI.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Halloween](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Halloween](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_1080x1920.jpg) |
+
 ### 20231030
 
 > Common raven sitting on a branch (© WildMedia/Shutterstock)
@@ -112,24 +131,7 @@
 
 | ![Grand Staircase-Escalante National Monument, Utah](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grand Staircase-Escalante National Monument, Utah](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_1080x1920.jpg) |
-
-### 20231024
-
-> Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Hungary is a country blessed with stunning landscapes and a host of historic castles. From the opulent Buda Castle in Budapest, with its commanding views of the Danube, to Eger Castle, renowned for its heroic defense against the Turks, each site has a story to tell.
-> 
-> Our homepage image shows one such stronghold, Füzér Castle, which crowns the Zemplén Mountains near Hungary's northern border and dates back to the 13th century. Perched at an elevation of over 1,800 feet above sea level, this castle stands on a mountain of volcanic origin. Here, within its ancient stone walls, the crown of Hungary was hidden following the country's defeat by the Ottoman Empire in the 1526 Battle of Mohács. After years of ruin, the castle's chapel was restored in 2016, and the keep was rebuilt to its former glory.
-> 
-> 
-
-</details>
-
-| ![Füzér Castle in the Zemplén Mountains, Hungary](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Füzér Castle in the Zemplén Mountains, Hungary](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_1080x1920.jpg) |gary](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
