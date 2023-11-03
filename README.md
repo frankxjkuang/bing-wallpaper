@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231101
+
+> Mummy Cave ruins, Canyon de Chelly National Monument, Arizona (© Cindy Miller Hopkins/Danita Delimont)
+
+<details>
+<summary>Description</summary>
+
+> November is National Native American Heritage Month, a commemoration that invites us to delve into Native peoples' traditions, languages, and art forms. There are millions of Native Americans across the US, with hundreds of tribes and groups, each with their own culture. In Arizona, Canyon de Chelly National Monument preserves the ruins of Indigenous tribes that have lived here over the past 5,000 years, including Ancestral Puebloans, who built the ancient village in our homepage image, and the Navajo, who arrived here around 1700. Carved by the relentless forces of nature, the canyon is owned by the Navajo people who manage it in cooperation with the National Park Service. Some Navajo families still live here, keeping traditions alive in one of North America's longest continuously inhabited landscapes.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.MummyCaveRuins_EN-US0871963100_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.MummyCaveRuins_EN-US0871963100_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MummyCaveRuins_EN-US0871963100_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MummyCaveRuins_EN-US0871963100_1080x1920.jpg) |
+
 ### 20231031
 
 > Halloween jack-o'-lanterns on a porch (© Bing Image Creator)
@@ -112,26 +131,7 @@
 
 | ![Schönbrunn Palace Park, Vienna, Austria](https://cn.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Schönbrunn Palace Park, Vienna, Austria](https://cn.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_1080x1920.jpg) |
-
-### 20231025
-
-> Cottonwood trees in Grand Staircase-Escalante National Monument, Utah (© Jeff Foott/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> The Grand Staircase–Escalante National Monument is an untamed wilderness of cliffs and canyons in the heart of southern Utah. The Grand Staircase is a sequence of five majestic sandstone cliffs, rising approximately 5,500 feet across the expanse of the monument. Each step records a different era in Earth's geological history, a vast showcase of changes over 200 million years. Archaeologists have found prehistoric artifacts, petrified wood, and dinosaur fossils which are over 75 million years old. In human history, the Ancestral Puebloan and Fremont people mastered the art of farming in this challenging terrain. They constructed granaries to store and preserve their harvests. Today, it is a popular getaway for nature enthusiasts and travelers seeking adventure.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Grand Staircase-Escalante National Monument, Utah](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grand Staircase-Escalante National Monument, Utah](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_1080x1920.jpg) |gary](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
