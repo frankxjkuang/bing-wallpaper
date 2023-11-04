@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231102
+
+> Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Stretching for miles below the desert sun, the salt flats of Badwater Basin shine in Death Valley National Park, California. This sweltering spot is the lowest point of elevation in North America, 282 feet below sea level. In this otherworldly landscape, the hardened mineral surface glistens like a mirror as the scorching heat dances upon it, creating rippling waves in the air. Composed of sodium chloride, borax, and other minerals, the flats' brittle crust conceals a treacherous mud layer beneath. For those who venture beyond the flats and up a mountainside, Dante's View reveals a panoramic view of Badwater Basin from a height of nearly 5,500 feet. With its surreal landscapes, Death Valley National Park serves up unique beauty in the harshest of conditions.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Death Valley National Park, California](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Death Valley National Park, California](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |
+
 ### 20231101
 
 > Mummy Cave ruins, Canyon de Chelly National Monument, Arizona (© Cindy Miller Hopkins/Danita Delimont)
@@ -112,26 +131,7 @@
 
 | ![Sligachan Old Bridge, Isle of Skye, Scotland](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sligachan Old Bridge, Isle of Skye, Scotland](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_1080x1920.jpg) |
-
-### 20231026
-
-> Autumn foliage in Schönbrunn Palace Park, Vienna, Austria (© rusm/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This autumnal scene can be found on the grounds of Schönbrunn Palace, in the Austrian capital, Vienna. It was the summer residence of the ruling Habsburg emperors from the 18th century to 1918, having been redeveloped by Empress Maria Theresa in the 1740s. Complemented by its lush gardens, which house the world's oldest existing public zoo, the palace itself is a gem of Europe's opulent Baroque era. Schönbrunn Palace Park has been open to the public since 1779 and both it and the palace, now under the ownership of the Austrian government, are listed as a UNESCO World Heritage Site. This leaf-strewn path offers an escape from the bustling city. So, take a stroll on this enchanting estate and let yourself be transported to centuries past.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Schönbrunn Palace Park, Vienna, Austria](https://cn.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Schönbrunn Palace Park, Vienna, Austria](https://cn.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_1080x1920.jpg) |_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
