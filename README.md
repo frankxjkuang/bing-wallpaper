@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231103
+
+> Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Drifting along our shores and into our calendar, it's World Jellyfish Day! Jellyfish can be found in all the world's oceans, in all shapes and sizes. There are about 2,000 species, all lacking hearts, bones, and brains. Pacific sea nettle jellyfish, seen here, have vibrant golden-brown coloring and long tentacles and inhabit the coastal waters of California and Oregon. Moon jellyfish are pale with short tentacles, and, in an appropriate twist, went into orbit aboard the space shuttle Columbia in 1991, to help scientists study their unique biology. Jellyfish play a vital role in the ocean's food chain, as the main food source for many animals, including sea turtles. Their numbers are impacted by climate change, marine pollution, and overfishing, and in turn have reverberating effects on sea life around them.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_1080x1920.jpg) |
+
 ### 20231102
 
 > Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)
@@ -112,28 +131,7 @@
 
 | ![Castilla-La Mancha, Spain](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castilla-La Mancha, Spain](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_1080x1920.jpg) |
-
-### 20231027
-
-> Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> The enchanting Isle of Skye in Scotland is home to the Sligachan Old Bridge, built by Thomas Telford, a prolific Scottish civil engineer, in the early 1800s. The bridge arches over a river of the same name, and carries only cyclists and pedestrians, while a modern bridge downstream serves cars. From atop the bridge's weathered, mossy stones, travelers can take in the majestic Cuillin Mountains in the distance. According to local tradition, the Sligachan River's water contains a mysterious blessing provided by fairies. Those who dare to immerse their faces in these waters are said to be gifted with timeless beauty.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Sligachan Old Bridge, Isle of Skye, Scotland](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sligachan Old Bridge, Isle of Skye, Scotland](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_1080x1920.jpg) |_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_1080x1920.jpg) |US9918819618_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
