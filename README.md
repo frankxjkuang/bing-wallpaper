@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231104
+
+> American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> When temperatures plunge, the American bison couldn't care less. These burly mammals are ready for snow with their shaggy coats and massive bodies weighing up to 2,000 pounds. Our homepage bison are pictured in Yellowstone National Park in Wyoming, home to one of the largest and oldest herds in the country. Bison have roamed here since prehistoric times.
+> 
+> Wildlife conservationists, Native American tribes, and ranchers have campaigned to establish National Bison Day a federally recognized holiday on the first Saturday in November. In 2016, President Barack Obama signed a law making the American bison as the national mammal of the United States. The US has come a long way in the protection of this grand animal, which was on the verge of extinction just over a century ago. The establishment of the American Bison Society in 1905, of which President Theodore Roosevelt was a founder, helped spearhead conservation efforts and bring these giants back from the brink.
+> 
+> 
+
+</details>
+
+| ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |
+
 ### 20231103
 
 > Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Bonaventure Cemetery, Savannah, Georgia](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bonaventure Cemetery, Savannah, Georgia](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_1080x1920.jpg) |
-
-### 20231028
-
-> Windmills in Castilla-La Mancha, Spain (© Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In the Spanish town of Consuegra, echoes linger of the adventures of Don Quixote, the hero of Miguel de Cervantes' epic novel. This tourist destination in Castilla-La Mancha is famous for its rocky ridge, known as Cerro Calderico, crowned with 12 white windmills. The windmills are thought to have inspired Cervantes to write the famous scene in which Don Quixote mistakes them for an army of giants. With their stone walls and wooden blades, some date back to the 16th century, when they were built to grind grain.
-> 
-> Castilla-La Mancha is the third-largest region—after Castile y León and Andalusia—in Spain but one of the least densely populated. The regional capital city, Toledo, has a significant architectural and cultural legacy—including Old Town and the Catedral de Toledo—that led to its designation as a UNESCO World Heritage site in 1986. So, for your next quest, let the windmills of Castilla-La Mancha whisper their timeless tales in your ear.
-> 
-> 
-
-</details>
-
-| ![Castilla-La Mancha, Spain](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castilla-La Mancha, Spain](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_1080x1920.jpg) |US9918819618_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
