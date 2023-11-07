@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231105
+
+> Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Spain's Asturias region, known for its greenery, artistic legacy, and excellent food, has many hidden gems. Our homepage image shows Playa del Silencio, or Beach of Silence, a shell-shaped cove with a natural rock amphitheater. Far away from urban areas and noisy crowds, the beach enjoys a sense of isolation and solitude. Rugged cliffs surround golden sands perfect for soaking up its peaceful vibes, while nearby caves and water activities provide exciting adventures for those who crave them.
+> 
+> The rocky shoreline seen here is made of quartzite, formed over millions of years. This spectacular display was created when quartz grains gradually replaced the original rock while maintaining its texture. With their intricate patterns and colors, some of these rocks resemble ancient wood.
+> 
+> 
+
+</details>
+
+| ![Playa del Silencio, Spain](https://cn.bing.com/th?id=OHR.SilencioSpain_EN-US6874925537_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Playa del Silencio, Spain](https://cn.bing.com/th?id=OHR.SilencioSpain_EN-US6874925537_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SilencioSpain_EN-US6874925537_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SilencioSpain_EN-US6874925537_1080x1920.jpg) |
+
 ### 20231104
 
 > American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Common raven](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Common raven](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_1080x1920.jpg) |
-
-### 20231029
-
-> Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Cemeteries are not usually tourist attractions but Bonaventure Cemetery in Savannah, Georgia, defies expectations. The city is often referred to as the most haunted in America, so devotees to all things spooky head here to test their nerves. A cemetery since 1846, the 160-acre site is perched on a bluff overlooking the Wilmington River. Its oak trees, dripping with Spanish moss, loom over walkways, monuments, and elaborate burial vaults. If it sounds like stepping into a southern Gothic novel, you're on the right track: The cemetery featured in John Berendt's 1994 bestseller 'Midnight in the Garden of Good and Evil.' Among the famous figures resting here is poet Conrad Aiken, whose grave is mentioned in the novel. His tombstone is a bench, said to have been designed to allow poetry lovers somewhere to sit to enjoy a drink in these soul-stirring surroundings.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Bonaventure Cemetery, Savannah, Georgia](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bonaventure Cemetery, Savannah, Georgia](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
