@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231106
+
+> Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Turquoise waters surrounded by jagged peaks and lush forests—that's Lake Pehoé for you. Nestled in Torres del Paine National Park, Chile, this glacial lake reflects the towering peaks of the Cuernos del Paine, pictured here bathed in the sun's rays. The lake gets its color from finely ground rock particles and minerals, known as glacial flour, suspended in the water. The word 'paine,' pronounced pie-neh, in the park’s name is believed to have its roots in a Tehuelche word meaning 'blue' while 'torres' means towers. The park is named after three striking granite peaks that reach up to 8,200 feet above sea level but boasts many other spectacular mountains. At 700 square miles, Torres del Paine is a UNESCO Biosphere Reserve with a huge amount to offer visitors, from hiking and kayaking to stargazing. So, pack your sense of adventure and head south to beat the blues.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Lake Pehoé, Torres del Paine National Park, Chile](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Pehoé, Torres del Paine National Park, Chile](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |
+
 ### 20231105
 
 > Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Halloween](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Halloween](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_1080x1920.jpg) |
-
-### 20231030
-
-> Common raven sitting on a branch (© WildMedia/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> The common raven is an intelligent and adaptable bird known for its striking appearance and remarkable behaviors. This elegant bird is easily identified by its characteristic wedge-shaped tail and glossy black feathers. Their keen eyesight and agile flight make them proficient hunters, often scavenging for prey or stealing from other predators. Ravens are known for their playful behavior and their omnivorous diet, feeding on a wide variety of foods, including carrion, insects, and small mammals.
-> 
-> Revered across various cultures, ravens have frequently appeared in literature and legends. In Edgar Allan Poe's famous poem, 'The Raven,' this bird serves as a symbol of death and melancholy, haunting the protagonist with its ominous refrain of 'nevermore.' Native American folklore often portrays the raven as a cunning and mystical trickster, with some tribes believing it possessed the power to shape-shift. Ravens also feature prominently in Norse mythology where they were considered to be wise messengers of the god Odin.
-> 
-> 
-
-</details>
-
-| ![Common raven](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Common raven](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_1080x1920.jpg) |//cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1080x1920.jpg) |-US1077107553_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
