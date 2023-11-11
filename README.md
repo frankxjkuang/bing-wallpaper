@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231109
+
+> Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Surrounded by forests and embraced by fjords, the Norwegian port city of Drammen is a haven for outdoor enthusiasts. Birch trees flourish at high altitudes, making them a natural fit for the mountainous region. When autumn arrives, their leaves transform into a mosaic of gold and crimson, in stark contrast to their pale, slender trunks. Long associated with new beginnings and renewal, birch trees don't just look good, they provide a home and sustenance for wildlife, and can be used for firewood and in construction.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Birch trees, Drammen, Norway](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Birch trees, Drammen, Norway](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_1080x1920.jpg) |
+
 ### 20231108
 
 > West Indian manatee mother and baby, Three Sisters Springs, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)
@@ -112,24 +131,7 @@
 
 | ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_1080x1920.jpg) |
-
-### 20231102
-
-> Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Stretching for miles below the desert sun, the salt flats of Badwater Basin shine in Death Valley National Park, California. This sweltering spot is the lowest point of elevation in North America, 282 feet below sea level. In this otherworldly landscape, the hardened mineral surface glistens like a mirror as the scorching heat dances upon it, creating rippling waves in the air. Composed of sodium chloride, borax, and other minerals, the flats' brittle crust conceals a treacherous mud layer beneath. For those who venture beyond the flats and up a mountainside, Dante's View reveals a panoramic view of Badwater Basin from a height of nearly 5,500 feet. With its surreal landscapes, Death Valley National Park serves up unique beauty in the harshest of conditions.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Death Valley National Park, California](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Death Valley National Park, California](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
