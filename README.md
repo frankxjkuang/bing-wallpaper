@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231110
+
+> Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> The strange stripes in our homepage image reveal tiers of fossil beds in Badlands National Park in South Dakota. Beneath the multicolored surface lies the land's history, including the remains of ancient horses, camels, tigers, and rhinos. The barren landscape, dotted with pinnacles and prairies, was formed by two geological processes: deposition, where the layered rocks were gradually stacked up on top of each other by inland seas, winds, and rivers over millions of years, and erosion, which began about 500,000 years ago. The Red Shirt Table, at 3,340 feet, is the highest point in the park, which was established on this day in 1978. It protects 379 square miles of rocky buttes, pinnacles, and prairies. This inhospitable terrain was called 'Mako Sica,' or 'land bad' by the Oglala Lakota people, who have lived here for hundreds of years. Still thirsty for knowledge? Visit the national park's museum collection. There are over 360,000 objects that have a lot more to reveal!
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Badlands National Park's 45th anniversary](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Badlands National Park's 45th anniversary](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
+
 ### 20231109
 
 > Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |
-
-### 20231103
-
-> Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Drifting along our shores and into our calendar, it's World Jellyfish Day! Jellyfish can be found in all the world's oceans, in all shapes and sizes. There are about 2,000 species, all lacking hearts, bones, and brains. Pacific sea nettle jellyfish, seen here, have vibrant golden-brown coloring and long tentacles and inhabit the coastal waters of California and Oregon. Moon jellyfish are pale with short tentacles, and, in an appropriate twist, went into orbit aboard the space shuttle Columbia in 1991, to help scientists study their unique biology. Jellyfish play a vital role in the ocean's food chain, as the main food source for many animals, including sea turtles. Their numbers are impacted by climate change, marine pollution, and overfishing, and in turn have reverberating effects on sea life around them.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
