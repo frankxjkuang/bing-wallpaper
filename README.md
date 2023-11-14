@@ -2,31 +2,31 @@
 
 ### 20231112
 
-> 秋天池塘里的两只绿头鸭 (© sun ok/Shutterstock)
+> Lamps on the banks of the Sarayu River for Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 绿头鸭，又名野鸭，是世界上分布最广的鸭科动物之一。你知道在20世纪以前，绿头鸭在德国曾被称为三月鸭吗？绿头鸭有着醒目的羽毛，很容易辨认。雄性绿头鸭，被称为公鸭，以其彩色的翅膀和绿色的头部而闻名，而母鸭的颜色则是不起眼的棕色。绿头鸭以植物、昆虫和小鱼为食，并且具有很强的适应性。无论是在城市公园，还是湖泊和河流中，你都能见到它们的身影。而正是这种适应性以及色彩斑斓的羽毛，使得绿头鸭成为一种令人瞩目的鸟类。
+> Diwali, the five-day festival of lights, holds significance in Hinduism, Jainism, and Sikhism. It is celebrated widely both in India, and in countries across the world with an Indian diaspora. The name 'Diwali' comes from the Sanskrit term 'Dipavali,' which means 'row of lights,' and the heart of the festival lies in the oil lamps, or 'diyas,' which illuminate homes and public spaces. They create a dazzling spectacle symbolizing the triumph of knowledge over ignorance and good over evil. The city of Ayodhya in Uttar Pradesh, India, pictured in today's image, hosts one of the world's largest displays of oil lamps. Hundreds of thousands of diyas are lit on the banks of the Sarayu River during Diwali.
 > 
-> 自古以来，鸟类的形象就存在于人类文化的民间传说和神话中。最著名的例子是神话中的凤凰，它最早出现在古埃及，被视为重生的象征。在俄罗斯神话中有火鸟，在希腊神话有鹰身女妖“哈比”。在德国民间传说中也有许多神话生物，它们或为鸟，或为鸟类与其他动物组成的神兽。一个具体的例子是Elwetritsch，这是一种主要出现在德国西南部文化中的鸟类形象。
+> 
 > 
 > 
 
 </details>
 
-| ![两只绿头鸭在水里畅游，秋天，德国](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![两只绿头鸭在水里畅游，秋天，德国](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Diwali](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Diwali](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |
 
 ### 20231111
 
-> 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利 (© Achim Thomae/Getty Images)
+> Sunset at the Washington Monument, Washington, DC (© Joe Daniel Price/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 南蒂罗尔是意大利的一个自治省，该地区以其高品质的生活而闻名。意大利语、德语和拉丁语都是这里的官方语言，每种语言都有自己的传统和文化。此外，这里既有诸如梅拉诺、博尔扎诺以及布雷萨诺内等美丽的城市，也有科尔蒂纳丹佩佐、加迪纳山谷和阿尔塔巴迪亚之类的著名滑雪胜地，还有世界闻名的酒庄。而且不少酒庄还伴有风景如画的湖泊。说起湖泊，就不得不提到卡雷扎湖，该湖泊也被称为彩虹湖或“多洛米蒂的童话湖”，是多洛米蒂最美丽的高山湖泊之一。
+> Today we're at the Washington Monument to pay tribute to those who have served in the US Armed Forces. Over 41 million Americans have been in our military since the US Army was established in 1775, and today, on Veterans Day, we salute their service. Veterans Day started as Armistice Day, a commemoration of the end of combat in World War 1. In 1954, it was renamed Veterans Day, expanding its scope to honor all people who have served. Over 6% of Americans, more than 16 million people, are veterans. Their service will be recognised today at the Veterans Day National Ceremony at Arlington National Cemetery, and in parades and other events across the country.
 > 
 > 
 > 
@@ -34,18 +34,18 @@
 
 </details>
 
-| ![富内斯山谷，南蒂罗尔，意大利](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![富内斯山谷，南蒂罗尔，意大利](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Veterans Day](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Veterans Day](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_1080x1920.jpg) |
 
 ### 20231110
 
-> 恶地国家公园，南达科他州，美国 (© Grant Ordelheide/Tandem Stills + Motion)
+> Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 这张密集分层的图像是不是让你产生屏幕坏掉的错觉？这其实是南达科他州恶地国家公园里迷人的化石层，五彩斑斓的岩石层下隐藏着这片土地的历史，保存着古代马、骆驼、老虎和犀牛等动物的遗骸。这片以崎岖石阵和草原为装饰的不毛之地，主要是由沉积和侵蚀这两种相反的自然力量共同雕琢而成。红衬衫台，海拔3340英尺，是恶地国家公园内的最高点。该公园占地379平方英里，于1978年11月10日被指定为国家公园。如果你还想多方面地了解恶地国家公园，可以参观公园内的博物馆藏品，那里有超过360，000件物品等待你去探索！
+> The strange stripes in our homepage image reveal tiers of fossil beds in Badlands National Park in South Dakota. Beneath the multicolored surface lies the land's history, including the remains of ancient horses, camels, tigers, and rhinos. The barren landscape, dotted with pinnacles and prairies, was formed by two geological processes: deposition, where the layered rocks were gradually stacked up on top of each other by inland seas, winds, and rivers over millions of years, and erosion, which began about 500,000 years ago. The Red Shirt Table, at 3,340 feet, is the highest point in the park, which was established on this day in 1978. It protects 379 square miles of rocky buttes, pinnacles, and prairies. This inhospitable terrain was called 'Mako Sica,' or 'land bad' by the Oglala Lakota people, who have lived here for hundreds of years. Still thirsty for knowledge? Visit the national park's museum collection. There are over 360,000 objects that have a lot more to reveal!
 > 
 > 
 > 
@@ -53,18 +53,18 @@
 
 </details>
 
-| ![恶地国家公园纪念日](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![恶地国家公园纪念日](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Badlands National Park's 45th anniversary](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Badlands National Park's 45th anniversary](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
 
 ### 20231109
 
-> 秋天的白桦树，德拉门，挪威 (© Baac3nes/Getty Images)
+> Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 挪威有许多美丽的自然景观，白桦林就是其中之一。挪威的德拉门市坐落在峡湾之中，被“银色森林”环绕，是户外运动爱好者的天堂。白桦树在高海拔地区生长茂盛，是山区一道独特的风景线。夏去秋来，白桦树的叶子变成了金黄色和深红色，与细长的树干和洁白的树皮形成了鲜明的对比。这种季节变化令人叹为观止，所以白桦树也象征着希望和新生。白桦树不仅具有观赏价值，还为野生动物提供了栖息地和食物，也可以用作柴火和建筑材料。
+> Surrounded by forests and embraced by fjords, the Norwegian port city of Drammen is a haven for outdoor enthusiasts. Birch trees flourish at high altitudes, making them a natural fit for the mountainous region. When autumn arrives, their leaves transform into a mosaic of gold and crimson, in stark contrast to their pale, slender trunks. Long associated with new beginnings and renewal, birch trees don't just look good, they provide a home and sustenance for wildlife, and can be used for firewood and in construction.
 > 
 > 
 > 
@@ -72,37 +72,37 @@
 
 </details>
 
-| ![白桦树，德拉门，挪威](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![白桦树，德拉门，挪威](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Birch trees, Drammen, Norway](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Birch trees, Drammen, Norway](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_1080x1920.jpg) |
 
 ### 20231108
 
-> 黄山的日落，安徽省，中国 (© Nantapon Pattamakijsakul/Getty Images)
+> West Indian manatee mother and baby, Three Sisters Springs, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 立冬是中国二十四节气中的第十九个节气。 这也是冬天的开始。在南方，初冬时节一般都不是很冷。随着时间的推移，冬至后冷空气频繁南下，气温逐渐下降。入冬后，北方大部分地区将出现雨雪降温天气。华北部分地区此时常下初雪。
+> Today we're celebrating the lovely manatee! These marvelous marine mammals have a fascinating history that spans millions of years. They are related to elephants and their ancestors can be traced back to the Eocene era (about 56 to 33.9 million years ago), making them one of the oldest mammals on Earth. These slow-moving herbivores have, over time, adapted to life in warm, coastal waters.
 > 
-> 今天给大家带来的是冬天的黄山。雪后的黄山银装素裹，美丽极了。游客可以欣赏到“玉宇琼塔”、“水晶宫”等美景，这是其他季节难以想象的。此外，黄山的温泉也非常有名，游客可以在这里享受温暖的温泉浴，在寒冷的冬天放松身心。
+> These sleepy creatures are friendly towards humans but boat collisions and habitat loss are among their biggest threats. Our homepage manatees are pictured in Three Sisters Springs, in Florida's Crystal River, where hundreds of manatees arrive to spend the winter months in warmer waters. If you visit the area and come across a West Indian manatee, we encourage you to take a moment to appreciate them, but from a distance.
 > 
 > 
 
 </details>
 
-| ![中国黄山](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![中国黄山](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Manatee Awareness Month](https://cn.bing.com/th?id=OHR.ManateeMama_EN-US7376333243_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Manatee Awareness Month](https://cn.bing.com/th?id=OHR.ManateeMama_EN-US7376333243_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManateeMama_EN-US7376333243_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeMama_EN-US7376333243_1080x1920.jpg) |
 
 ### 20231107
 
-> Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/Shutterstock)
+> Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺，是现代建筑魅力和创意结合的典范。站在瞭望塔上，你可以一览Kirkilai喀斯特湖的美景。Kirkilai喀斯特湖是由可溶性岩石（如石膏和石灰岩）溶解而成的自然奇观。随着时间的推移，这些岩石中的洞穴逐渐被溶蚀、坍塌，形成清澈透亮的洼地积水，最终造就了独特迷人的喀斯特风光。互相连通的湖泊与周围郁郁葱葱的植被相映成趣，为自然爱好者打造了一个绝美的天堂。
+> Curving above the treetops of Biržai Regional Park in northern Lithuania, this unusual structure allows a bird's-eye view of a unique landscape. Built in 2015, the Kirkilai Observation Tower's shape is said to resemble a sinking boat, appropriate in an area dotted with water-filled sink holes. About 30 of these small lakes can be seen from the top of the tower, nearly 100 feet in the air. These lakes can be up to 36 feet deep and are just some of the thousands of sinkholes identified in the park. Water-soluble rocks like gypsum lie under the soil in this area, and over time they gradually erode, forming caves, which then collapse. In some cases, they fill with water, creating this mesmerizing landscape. The interconnected lakes mirror the surrounding greenery, creating a scenic haven for nature enthusiasts.
 > 
 > 
 > 
@@ -110,18 +110,18 @@
 
 </details>
 
-| ![Kirkilai湖泊，比尔扎伊地区公园，立陶宛](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kirkilai湖泊，比尔扎伊地区公园，立陶宛](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Kirkilai lakes, Biržai Regional Park, Lithuania](https://cn.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kirkilai lakes, Biržai Regional Park, Lithuania](https://cn.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_1080x1920.jpg) |
 
 ### 20231106
 
-> 佩霍湖，百内国家公园，智利南部 (© OST/Getty Images)
+> Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 蓝绿色的湖面上倒映着蔚蓝的天空，周围是嶙峋的山峰和郁郁葱葱的森林，这就是佩霍湖。这个冰川湖坐落在智利南部的百内国家公园内，是大自然的杰作。佩霍湖周围那高耸入云的百内犄角山（因形状酷似牛角而得名）和百内山丘也是一道特别的风景线。佩霍湖的湖水呈现出独特的绿松石蓝，是因为水中悬浮着被称为冰川粉或岩粉的细小岩石颗粒和矿物质。据说“Paine”（百内）一词源于特维尔切语，意为“蓝色”。1978年，百内国家公园被联合国教科文组织认定为生物圈保护区，其面积达700平方英里。徒步、划船、观星……公园里有许多精彩的游玩项目，带上你的冒险精神，向南出发，来一段“告别忧郁”之旅吧！
+> Turquoise waters surrounded by jagged peaks and lush forests—that's Lake Pehoé for you. Nestled in Torres del Paine National Park, Chile, this glacial lake reflects the towering peaks of the Cuernos del Paine, pictured here bathed in the sun's rays. The lake gets its color from finely ground rock particles and minerals, known as glacial flour, suspended in the water. The word 'paine,' pronounced pie-neh, in the park’s name is believed to have its roots in a Tehuelche word meaning 'blue' while 'torres' means towers. The park is named after three striking granite peaks that reach up to 8,200 feet above sea level but boasts many other spectacular mountains. At 700 square miles, Torres del Paine is a UNESCO Biosphere Reserve with a huge amount to offer visitors, from hiking and kayaking to stargazing. So, pack your sense of adventure and head south to beat the blues.
 > 
 > 
 > 
@@ -129,15 +129,9 @@
 
 </details>
 
-| ![佩霍湖，百内国家公园，智利南部](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![佩霍湖，百内国家公园，智利南部](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Lake Pehoé, Torres del Paine National Park, Chile](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Pehoé, Torres del Paine National Park, Chile](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_1080x1920.jpg) |tion of this grand animal, which was on the verge of extinction just over a century ago. The establishment of the American Bison Society in 1905, of which President Theodore Roosevelt was a founder, helped spearhead conservation efforts and bring these giants back from the brink.
-> 
-> 
-
-</details>
-
-| ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
