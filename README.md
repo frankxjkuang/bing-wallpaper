@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231113
+
+> Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> They've been growing olives on the Spanish island of Majorca in the western Mediterranean for more than 2,000 years. Early settlers, the Phoenicians and Greeks, introduced the first olive trees but the groves in the Serra de Tramuntana range expanded during Spain's Islamic era, between 709 and 1492. Olive oil became a crucial ingredient in culinary traditions on Majorca, the largest of the Balearic Islands. One ancient tree on the island, Can Det, is estimated to be more than 1,100 years old, and is still producing olives.
+> 
+> In 2011, the Serra de Tramuntana was established as a UNESCO World Heritage Site. Today, tourists from all over the world visit the archipelago to taste history and the 'liquid gold.'
+> 
+> 
+
+</details>
+
+| ![Serra de Tramuntana, Majorca, Spain](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Serra de Tramuntana, Majorca, Spain](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_1080x1920.jpg) |
+
 ### 20231112
 
 > Lamps on the banks of the Sarayu River for Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Kirkilai lakes, Biržai Regional Park, Lithuania](https://cn.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kirkilai lakes, Biržai Regional Park, Lithuania](https://cn.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_1080x1920.jpg) |
-
-### 20231106
-
-> Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Turquoise waters surrounded by jagged peaks and lush forests—that's Lake Pehoé for you. Nestled in Torres del Paine National Park, Chile, this glacial lake reflects the towering peaks of the Cuernos del Paine, pictured here bathed in the sun's rays. The lake gets its color from finely ground rock particles and minerals, known as glacial flour, suspended in the water. The word 'paine,' pronounced pie-neh, in the park’s name is believed to have its roots in a Tehuelche word meaning 'blue' while 'torres' means towers. The park is named after three striking granite peaks that reach up to 8,200 feet above sea level but boasts many other spectacular mountains. At 700 square miles, Torres del Paine is a UNESCO Biosphere Reserve with a huge amount to offer visitors, from hiking and kayaking to stargazing. So, pack your sense of adventure and head south to beat the blues.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Lake Pehoé, Torres del Paine National Park, Chile](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Pehoé, Torres del Paine National Park, Chile](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_1080x1920.jpg) |dscape 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
