@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231116
+
+> View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On World Philosophy Day, we're in Athens, the capital of Greece, the birthplace of Western philosophy and democracy. The iconic Acropolis, the ancient citadel that towers over Athens, and its most famous monument, the Parthenon, remind us of the brilliant minds of Socrates, Plato, and Aristotle. Ancient Greek philosophy focused on critical thinking and questioning and started a revolution of rationale that is still shaping our society today. UNESCO recognizes the profound impact philosophy has on human thought, cultures, and individuals on World Philosophy Day. Take time today to discover the depths of the 'love of wisdom'!
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![World Philosophy Day](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Philosophy Day](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_1080x1920.jpg) |
+
 ### 20231115
 
 > Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)
@@ -113,25 +132,6 @@
 | ![Badlands National Park's 45th anniversary](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Badlands National Park's 45th anniversary](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
-
-### 20231109
-
-> Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Surrounded by forests and embraced by fjords, the Norwegian port city of Drammen is a haven for outdoor enthusiasts. Birch trees flourish at high altitudes, making them a natural fit for the mountainous region. When autumn arrives, their leaves transform into a mosaic of gold and crimson, in stark contrast to their pale, slender trunks. Long associated with new beginnings and renewal, birch trees don't just look good, they provide a home and sustenance for wildlife, and can be used for firewood and in construction.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Birch trees, Drammen, Norway](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Birch trees, Drammen, Norway](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_1080x1920.jpg) |，挪威](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
