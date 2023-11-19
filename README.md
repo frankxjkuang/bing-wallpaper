@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231117
+
+> Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Take a hike, buddy! No, not the 'get out of here' version but the 'get out there' version. It's time to lace up those boots and take advantage of our national trails, which span over 91,000 miles. Back in the 1960s, President Lyndon B. Johnson signed the National Trails System Act into law, to preserve, promote, and develop scenic and historic trails across the country. Can't decide where to start? Our homepage image offers up one option which is awash with fall colors—Copper Falls State Park in Wisconsin. With 17 miles of trails along the Bad River, past waterfalls and ancient lava flows, this park has a lot to offer. Whether it's a rugged mountain path, a serene forest walk, or an oceanside stroll, this country has a trail waiting for you. But remember to respect nature, follow 'leave no trace' principles, and take nothing but photographs. Happy hiking!
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_1080x1920.jpg) |
+
 ### 20231116
 
 > View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Veterans Day](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Veterans Day](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_1080x1920.jpg) |
-
-### 20231110
-
-> Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> The strange stripes in our homepage image reveal tiers of fossil beds in Badlands National Park in South Dakota. Beneath the multicolored surface lies the land's history, including the remains of ancient horses, camels, tigers, and rhinos. The barren landscape, dotted with pinnacles and prairies, was formed by two geological processes: deposition, where the layered rocks were gradually stacked up on top of each other by inland seas, winds, and rivers over millions of years, and erosion, which began about 500,000 years ago. The Red Shirt Table, at 3,340 feet, is the highest point in the park, which was established on this day in 1978. It protects 379 square miles of rocky buttes, pinnacles, and prairies. This inhospitable terrain was called 'Mako Sica,' or 'land bad' by the Oglala Lakota people, who have lived here for hundreds of years. Still thirsty for knowledge? Visit the national park's museum collection. There are over 360,000 objects that have a lot more to reveal!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Badlands National Park's 45th anniversary](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Badlands National Park's 45th anniversary](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
