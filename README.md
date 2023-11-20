@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231118
+
+> Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On the shore of Hudson Bay, the Canadian town of Churchill, Manitoba is remote, but the sights are worth the journey. From beluga whales and northern lights to the shipwreck of the SS Ithaka and the Sea Walls murals, there are many surprises here. Moreover, it is also known as the 'polar bear capital of the world', thanks to its seasonal visitors. From October to November, these white giants pass through, waiting for Hudson Bay to freeze over so they can head out to hunt seals. Tourists can safely watch polar bears from the comfort of custom-built vehicles and a so-called 'polar bear jail' helps to manage bear-human interactions. Are you ready for a wild adventure that'll send chills down your spine, but in a good way?
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Polar bear season in Manitoba](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar bear season in Manitoba](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_1080x1920.jpg) |
+
 ### 20231117
 
 > Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Diwali](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Diwali](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |
-
-### 20231111
-
-> Sunset at the Washington Monument, Washington, DC (© Joe Daniel Price/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today we're at the Washington Monument to pay tribute to those who have served in the US Armed Forces. Over 41 million Americans have been in our military since the US Army was established in 1775, and today, on Veterans Day, we salute their service. Veterans Day started as Armistice Day, a commemoration of the end of combat in World War 1. In 1954, it was renamed Veterans Day, expanding its scope to honor all people who have served. Over 6% of Americans, more than 16 million people, are veterans. Their service will be recognised today at the Veterans Day National Ceremony at Arlington National Cemetery, and in parades and other events across the country.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Veterans Day](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Veterans Day](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeteransDayDC_EN-US7666353324_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
