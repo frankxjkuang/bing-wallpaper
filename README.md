@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231119
+
+> Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Among Estonia's stunning natural sites is the Alam-Pedja Nature Reserve, covering 132 square miles of wilderness in the heart of the country. This occasionally ice-covered, vast area of wetlands, forests, and rivers is the largest natural reserve in Estonia. From the majestic white-tailed eagle to the elusive black stork, more than 200 bird species can be found here. The landscape is a tapestry of aquatic forests: still water, bog, and floodplain forests. Winding trails and boardwalks invite explorers to craft their own adventures.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Alam-Pedja Nature Reserve, Estonia](https://cn.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alam-Pedja Nature Reserve, Estonia](https://cn.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_1080x1920.jpg) |
+
 ### 20231118
 
 > Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Serra de Tramuntana, Majorca, Spain](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Serra de Tramuntana, Majorca, Spain](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_1080x1920.jpg) |
-
-### 20231112
-
-> Lamps on the banks of the Sarayu River for Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Diwali, the five-day festival of lights, holds significance in Hinduism, Jainism, and Sikhism. It is celebrated widely both in India, and in countries across the world with an Indian diaspora. The name 'Diwali' comes from the Sanskrit term 'Dipavali,' which means 'row of lights,' and the heart of the festival lies in the oil lamps, or 'diyas,' which illuminate homes and public spaces. They create a dazzling spectacle symbolizing the triumph of knowledge over ignorance and good over evil. The city of Ayodhya in Uttar Pradesh, India, pictured in today's image, hosts one of the world's largest displays of oil lamps. Hundreds of thousands of diyas are lit on the banks of the Sarayu River during Diwali.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Diwali](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Diwali](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
