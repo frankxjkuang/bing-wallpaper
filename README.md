@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231120
+
+> Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Children are the future and ensuring their well-being is fundamental to a thriving society. World Children's Day marks the day in 1989 that the UN General Assembly adopted the Convention on the Rights of the Child, an international treaty setting out children's rights all over the world.
+> 
+> To mark the day, we are at the Gathering Place in Tulsa, Oklahoma, where inventive playgrounds sit side-by-side with green spaces and scenic trails. Play is an important part of childhood and the park's adventure playground is designed to appeal to children at different stages of development, and with different physical abilities. With its creative tunnels, towering treehouses, twisted slides, play gardens, and water areas, children can explore, learn, and let their imaginations soar.
+> 
+> 
+
+</details>
+
+| ![World Children's Day](https://cn.bing.com/th?id=OHR.ChapmanAdventure_EN-US2522291999_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Children's Day](https://cn.bing.com/th?id=OHR.ChapmanAdventure_EN-US2522291999_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChapmanAdventure_EN-US2522291999_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChapmanAdventure_EN-US2522291999_1080x1920.jpg) |
+
 ### 20231119
 
 > Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Russell lupines, Lake Tekapo, New Zealand](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Russell lupines, Lake Tekapo, New Zealand](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg) |
-
-### 20231113
-
-> Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> They've been growing olives on the Spanish island of Majorca in the western Mediterranean for more than 2,000 years. Early settlers, the Phoenicians and Greeks, introduced the first olive trees but the groves in the Serra de Tramuntana range expanded during Spain's Islamic era, between 709 and 1492. Olive oil became a crucial ingredient in culinary traditions on Majorca, the largest of the Balearic Islands. One ancient tree on the island, Can Det, is estimated to be more than 1,100 years old, and is still producing olives.
-> 
-> In 2011, the Serra de Tramuntana was established as a UNESCO World Heritage Site. Today, tourists from all over the world visit the archipelago to taste history and the 'liquid gold.'
-> 
-> 
-
-</details>
-
-| ![Serra de Tramuntana, Majorca, Spain](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Serra de Tramuntana, Majorca, Spain](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
