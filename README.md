@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231121
+
+> Gray seal pup, Norfolk, England (© Vince Burton/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Here in Norfolk, on the east coast of England, a seasonal wildlife spectacle is underway. Between early November and January, thousands of gray seal pups are born on the shoreline, a little earlier than those on US coasts. The seal moms feed their pups on the beach for three weeks, during which time the pups gain about 4.5 pounds a day. They stay on the beach until they shed their pale fur to make way for a waterproof, mottled gray coat. Then it's time to head to the sea and learn to hunt for themselves.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Gray seal pup, Norfolk, England](https://cn.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gray seal pup, Norfolk, England](https://cn.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_1080x1920.jpg) |
+
 ### 20231120
 
 > Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Rapa Valley in Sarek National Park, Sweden](https://cn.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rapa Valley in Sarek National Park, Sweden](https://cn.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_1080x1920.jpg) |
-
-### 20231114
-
-> Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to Lake Tekapo, on New Zealand's South Island, where the colorful spikes of flowering Russell lupines transform the landscape each November and December. The plants' blooming heads, made up of clusters of pea-like flowers, can reach up to 60 inches. While photographers flock here to capture the varied hues of purple, blue, and yellow, these striking plants are controversial. Native to North America, they are considered an invasive species here, growing in dense stands and boxing out other flora. While these plants might be appealing to tourists, they can create a negative imbalance in the region's ecosystem.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Russell lupines, Lake Tekapo, New Zealand](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Russell lupines, Lake Tekapo, New Zealand](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
