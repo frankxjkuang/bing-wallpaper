@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231122
+
+> Grand Teton National Park, Wyoming (© Westend61/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today's image gives us a glimpse of beautiful Grand Teton National Park, in our least populous state, Wyoming. The park, established in 1929, encompasses lakes, the Snake River, and the Teton Range, famed for its series of sharp, jagged peaks. Bring your binoculars with you, and if it's summertime, be on the lookout for pronghorn, which travel about 150 miles to get there from Wyoming's Upper Green River Basin. They aren't the only creatures to visit seasonally; elk and bison are also summer visitors. These migrations play a vital role in the ecosystem of Grand Teton National Park. The animals help disperse seeds and are also food for predators.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_1080x1920.jpg) |
+
 ### 20231121
 
 > Gray seal pup, Norfolk, England (© Vince Burton/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![World Philosophy Day](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Philosophy Day](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_1080x1920.jpg) |
-
-### 20231115
-
-> Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Rapa Valley runs through Sarek National Park in northern Sweden, where rivers cut into lush meadows and towering peaks reach towards the sky. In this national park, covering about 760 square miles of pristine wilderness, elk roam freely, golden eagles soar overhead, and the elusive arctic fox leaves traces of its presence in the snow. From the beauty of Abisko to the rugged peaks of Sarek, Sweden's many national parks boast a range of landscapes from glaciers to lush green forests and sandy beaches. The Sámi people have called this alpine region home since ancient times, and their cultural heritage is intertwined with the landscape. They fish the coasts, and perhaps most famously, herd reindeer.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Rapa Valley in Sarek National Park, Sweden](https://cn.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rapa Valley in Sarek National Park, Sweden](https://cn.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_1080x1920.jpg) |ing.com/th?id=OHR.SarekSweden_EN-US8292531624_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
