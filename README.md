@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231123
+
+> Flint corn (© Cynthia Liang/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> While people gather across the country for feasts of turkey, mashed potatoes, and stuffing, you may wonder about the origins of Thanksgiving. Early English settlers had plenty to be thankful for, whether surviving the long voyage to America or the first harsh winters. Written records tell of an early thanksgiving shared between Plymouth Pilgrims and Wampanoag Native Americans, who provided a harvest of corn, deer, and turkey. There were many early days of thanksgiving, but an official, national celebration was proclaimed by George Washington in 1789, and has been a part of our holiday season ever since. Today, we wish you good company and plenty of things to be thankful for. Happy Thanksgiving!
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.FlintCorn_EN-US2819178375_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.FlintCorn_EN-US2819178375_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlintCorn_EN-US2819178375_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlintCorn_EN-US2819178375_1080x1920.jpg) |
+
 ### 20231122
 
 > Grand Teton National Park, Wyoming (© Westend61/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_1080x1920.jpg) |
-
-### 20231116
-
-> View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On World Philosophy Day, we're in Athens, the capital of Greece, the birthplace of Western philosophy and democracy. The iconic Acropolis, the ancient citadel that towers over Athens, and its most famous monument, the Parthenon, remind us of the brilliant minds of Socrates, Plato, and Aristotle. Ancient Greek philosophy focused on critical thinking and questioning and started a revolution of rationale that is still shaping our society today. UNESCO recognizes the profound impact philosophy has on human thought, cultures, and individuals on World Philosophy Day. Take time today to discover the depths of the 'love of wisdom'!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![World Philosophy Day](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Philosophy Day](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_1080x1920.jpg) |ing.com/th?id=OHR.SarekSweden_EN-US8292531624_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_1080x1920.jpg) |ekSweden_EN-US8292531624_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
