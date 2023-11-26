@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231124
+
+> Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Imagine spending the day hiking amid these moss-covered trees instead of frantically checking items off your holiday shopping list. Welcome to Green Friday, the environmental alternative to Black Friday. The aim is to encourage people to make ethical shopping choices—or to refrain from shopping altogether and embrace nature instead.
+> 
+> A good place to start is the Hall of Mosses at Olympic National Park, in Washington's Hoh Rain Forest. This fantastical landscape is a temperate rainforest with an enchanting loop trail through mosses gracefully draped over majestic spruces and hemlocks. Bring a jacket though; this forest is the wettest in the contiguous United States with an annual rainfall of nearly 130 inches. No wonder it's so green!
+> 
+> 
+
+</details>
+
+| ![Hoh Rain Forest, Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hoh Rain Forest, Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_1080x1920.jpg) |
+
 ### 20231123
 
 > Flint corn (© Cynthia Liang/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Polar bear season in Manitoba](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar bear season in Manitoba](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_1080x1920.jpg) |
-
-### 20231117
-
-> Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Take a hike, buddy! No, not the 'get out of here' version but the 'get out there' version. It's time to lace up those boots and take advantage of our national trails, which span over 91,000 miles. Back in the 1960s, President Lyndon B. Johnson signed the National Trails System Act into law, to preserve, promote, and develop scenic and historic trails across the country. Can't decide where to start? Our homepage image offers up one option which is awash with fall colors—Copper Falls State Park in Wisconsin. With 17 miles of trails along the Bad River, past waterfalls and ancient lava flows, this park has a lot to offer. Whether it's a rugged mountain path, a serene forest walk, or an oceanside stroll, this country has a trail waiting for you. But remember to respect nature, follow 'leave no trace' principles, and take nothing but photographs. Happy hiking!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_1080x1920.jpg) |ekSweden_EN-US8292531624_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_1080x1920.jpg) |214_1080x1920.jpg) |ekSweden_EN-US8292531624_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
