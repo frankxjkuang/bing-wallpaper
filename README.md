@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231125
+
+> Toledo, Spain (© Carlos Fernandez/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Built on a hill and surrounded on three sides by the Tagus River, the Spanish city of Toledo is a UNESCO World Heritage Site packed with history. Its towering Alcázar fortress and impressive Gothic cathedral dominate the skyline, but the city is also home to mosques and synagogues. Toledo bears strong cultural influences from the Moors, who ruled here for centuries, following their arrival in Spain in 711. It was known as the City of the Three Cultures during the Middle Ages, when its Christian, Muslim, and Jewish communities coexisted harmoniously. Toledo has been the home of sword making since Roman times and is also famous for its marzipan. In the 16th century, the city was home to the famous painter El Greco, who was inspired to create some of his greatest masterpieces here.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Toledo, Spain](https://cn.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Toledo, Spain](https://cn.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_1080x1920.jpg) |
+
 ### 20231124
 
 > Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Alam-Pedja Nature Reserve, Estonia](https://cn.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alam-Pedja Nature Reserve, Estonia](https://cn.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_1080x1920.jpg) |
-
-### 20231118
-
-> Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On the shore of Hudson Bay, the Canadian town of Churchill, Manitoba is remote, but the sights are worth the journey. From beluga whales and northern lights to the shipwreck of the SS Ithaka and the Sea Walls murals, there are many surprises here. Moreover, it is also known as the 'polar bear capital of the world', thanks to its seasonal visitors. From October to November, these white giants pass through, waiting for Hudson Bay to freeze over so they can head out to hunt seals. Tourists can safely watch polar bears from the comfort of custom-built vehicles and a so-called 'polar bear jail' helps to manage bear-human interactions. Are you ready for a wild adventure that'll send chills down your spine, but in a good way?
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Polar bear season in Manitoba](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar bear season in Manitoba](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_1080x1920.jpg) |214_1080x1920.jpg) |ekSweden_EN-US8292531624_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_1080x1920.jpg) |-US1615028560_1080x1920.jpg) |214_1080x1920.jpg) |ekSweden_EN-US8292531624_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
