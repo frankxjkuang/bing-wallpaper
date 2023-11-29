@@ -2,12 +2,12 @@
 
 ### 20231127
 
-> 内格罗河，亚马逊河流域，巴西 (© Timothy Allen/Getty Images)
+> Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 内格罗河起源于哥伦比亚，是亚马逊河的支流之一。在西班牙语中， 内格罗河（Río Negro）的意思是“黑色的河”，因为从远处看它，河水是黑色的。但走进观看，其河面平静如镜，就如图中所展示的那样，可以倒映出蔚蓝的天空以及彩虹的颜色。内格罗河的河水之所以是黑色的，是因为附近沼泽中渗出了有机物分解时产生的高浓度腐殖酸。作为亚马逊河北岸最大的支流之一，内格罗河在复杂的亚马逊流域生态系统中发挥着至关重要的作用。它也是许多动植物的家园，比如极度濒危的黑白柽柳猴、巴西巨獭以及近700种鱼类。
+> From its source in Colombia, the Río Negro flows about 1,400 miles to become one of the largest tributaries of the Amazon River at the Meeting of Waters in Manaus, Brazil. It is also the largest blackwater river in the world, its water stained by decomposing organic matter that seeps in from swamps. These slow-moving, dark waters beautifully reflect the colors of the sky, including the rainbows which form over the Amazon basin, as seen here. The river also plays a crucial role in the ecosystem, as the home of many plants and animals, including the critically endangered Brazilian barefaced tamarin, the giant river otter, and nearly 700 species of fish.
 > 
 > 
 > 
@@ -15,18 +15,18 @@
 
 </details>
 
-| ![内格罗河，亚马逊河流域，巴西](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![内格罗河，亚马逊河流域，巴西](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Río Negro, Amazon basin, Brazil](https://cn.bing.com/th?id=OHR.RioNegro_EN-US4106999854_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Río Negro, Amazon basin, Brazil](https://cn.bing.com/th?id=OHR.RioNegro_EN-US4106999854_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RioNegro_EN-US4106999854_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RioNegro_EN-US4106999854_1080x1920.jpg) |
 
 ### 20231126
 
-> 布拉德盖特公园的小鹿，莱斯特郡，英国 (© Chris Bainbridge/Alamy)
+> Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 黇鹿以其引人注目的皮毛而闻名，它的皮毛颜色会随着季节的变化而变化，在夏天通常会有白色的斑点。在秋季的发情期，雄鹿会互相打斗以确立自己的统治地位。雄鹿的掌状鹿角表面宽阔、扁平，一眼就能识别出来。黇鹿原产于欧洲和亚洲部分地区，是英国莱斯特郡的常见动物，尤其是在布拉德盖特公园。这座占地850英亩的公园不仅是这些动物的庇护所，还拥有美丽的风景、林地，以及可将该地区美景尽收眼底的灯塔。
+> This doe and fawn are fallow deer, known for their striking chestnut brown coats with white spots, which typically darken to gray in the winter. Fallow deer are native to Europe and parts of Asia and are a common sight in England, where they were introduced by the Normans in the 11th century. During the autumn rutting season, mothers stay close to their young while the males, which have broad palmate antlers, spar to establish their dominance. Our homepage doe and fawn are pictured in 850-acre Bradgate Park in Leicestershire, a medieval deer park set within woodlands and a beautiful landscape in England's East Midlands region.
 > 
 > 
 > 
@@ -34,18 +34,18 @@
 
 </details>
 
-| ![布拉德盖特公园的小鹿，莱斯特郡，英国](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![布拉德盖特公园的小鹿，莱斯特郡，英国](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Fallow deer, Bradgate Park, Leicestershire, England](https://cn.bing.com/th?id=OHR.BradgateFallow_EN-US3932725763_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fallow deer, Bradgate Park, Leicestershire, England](https://cn.bing.com/th?id=OHR.BradgateFallow_EN-US3932725763_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BradgateFallow_EN-US3932725763_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BradgateFallow_EN-US3932725763_1080x1920.jpg) |
 
 ### 20231125
 
-> 托莱多，西班牙 (© Carlos Fernandez/Getty Images)
+> Toledo, Spain (© Carlos Fernandez/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 托莱多是位于西班牙卡斯蒂利亚-拉曼恰地区的一座城市，因其独特的地理位置而闻名。托莱多位于一块凸起的高地上，三面被塔古斯河环抱。这座辉煌的城市在中世纪被称为“三文化之城”，基督教、穆斯林和犹太教在这里和谐共处。自1986年起，托莱多就被联合国教科文组织列为世界文化遗产，其历史核心区有许多清真寺、犹太教堂以及令人印象深刻的哥特式大教堂。在八世纪左右，摩尔人来到了这个地方，他们留下的摩尔人文化对这座城市产生了深远的影响。16世纪以前，托莱多的铸剑工艺闻名欧洲。16世纪时，画家埃尔·格列柯曾在这座城市居住，并对该地产生了深刻的影响。在此期间，埃尔·格列柯创作了一些极其重要的作品，如《圣母蒙召升天》，这一画作被视为他最伟大的杰作之一。
+> Built on a hill and surrounded on three sides by the Tagus River, the Spanish city of Toledo is a UNESCO World Heritage Site packed with history. Its towering Alcázar fortress and impressive Gothic cathedral dominate the skyline, but the city is also home to mosques and synagogues. Toledo bears strong cultural influences from the Moors, who ruled here for centuries, following their arrival in Spain in 711. It was known as the City of the Three Cultures during the Middle Ages, when its Christian, Muslim, and Jewish communities coexisted harmoniously. Toledo has been the home of sword making since Roman times and is also famous for its marzipan. In the 16th century, the city was home to the famous painter El Greco, who was inspired to create some of his greatest masterpieces here.
 > 
 > 
 > 
@@ -53,56 +53,56 @@
 
 </details>
 
-| ![西班牙托莱多](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![西班牙托莱多](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Toledo, Spain](https://cn.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Toledo, Spain](https://cn.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_1080x1920.jpg) |
 
 ### 20231124
 
-> 奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国 (© James Randklev/Getty Images)
+> Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 想象一下，你可以花一天时间在森林里徒步，沉浸在郁郁葱葱的绿色空间中，而不是疯狂地检查节假日购物清单上的一件件商品。欢迎来到“绿色星期五”！它是“黑色星期五”的环保替代品，创立于2015年。在“绿色星期五”，我们鼓励人们在购物时做出更加理智的选择，拥抱大自然，拒绝冲动性消费。因此，请在这个绿色星期五让自己暂停片刻，投入大自然的怀抱吧！
+> Imagine spending the day hiking amid these moss-covered trees instead of frantically checking items off your holiday shopping list. Welcome to Green Friday, the environmental alternative to Black Friday. The aim is to encourage people to make ethical shopping choices—or to refrain from shopping altogether and embrace nature instead.
 > 
-> 奥林匹克国家公园的苔藓长廊位于华盛顿州的霍河雨林。这片雨林不同于大多数人印象中的热带雨林，它有一条短暂但迷人的环形幽径，是各类苔藓的家园，这些苔藓优雅地覆盖在雄伟的云杉和铁杉上。去这里前请记得带件外套，因为这片森林是美国本土最潮湿的地方，年降雨量接近130英寸。难怪这里如此绿意盎然！
+> A good place to start is the Hall of Mosses at Olympic National Park, in Washington's Hoh Rain Forest. This fantastical landscape is a temperate rainforest with an enchanting loop trail through mosses gracefully draped over majestic spruces and hemlocks. Bring a jacket though; this forest is the wettest in the contiguous United States with an annual rainfall of nearly 130 inches. No wonder it's so green!
 > 
 > 
 
 </details>
 
-| ![绿色星期五](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![绿色星期五](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Hoh Rain Forest, Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hoh Rain Forest, Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_1080x1920.jpg) |
 
 ### 20231123
 
-> 泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙 (© Javier Martínez Morán/Alamy)
+> Flint corn (© Cynthia Liang/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 雄伟的泰德峰海拔3718米，耸立在加那利群岛上。这座火山从海底隆起的高度达到了惊人的7500米，因此它既是西班牙最高的山峰，也是世界上海拔第三高的火山。
+> While people gather across the country for feasts of turkey, mashed potatoes, and stuffing, you may wonder about the origins of Thanksgiving. Early English settlers had plenty to be thankful for, whether surviving the long voyage to America or the first harsh winters. Written records tell of an early thanksgiving shared between Plymouth Pilgrims and Wampanoag Native Americans, who provided a harvest of corn, deer, and turkey. There were many early days of thanksgiving, but an official, national celebration was proclaimed by George Washington in 1789, and has been a part of our holiday season ever since. Today, we wish you good company and plenty of things to be thankful for. Happy Thanksgiving!
 > 
-> 这个多姿多彩的地方曾是多部著名电影的拍摄地，包括《速度与激情》（2001年）、《第一滴血5：最后的血》（2018年）和《诸神之战》（2010年）。泰德国家公园占地189.90平方公里，已被联合国教科文组织认定为世界遗产。这里还拥有丰富的动植物资源。因此，如果您计划游览这个神奇的地方，请务必穿上合适的鞋袜，备好美味的小吃，尽情享受这段旅程。
+> 
 > 
 > 
 
 </details>
 
-| ![泰德国家公园，特内里费岛](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![泰德国家公园，特内里费岛](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.FlintCorn_EN-US2819178375_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.FlintCorn_EN-US2819178375_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlintCorn_EN-US2819178375_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlintCorn_EN-US2819178375_1080x1920.jpg) |
 
 ### 20231122
 
-> 大提顿国家公园，怀俄明州，美国 (© Westend61/Getty Images)
+> Grand Teton National Park, Wyoming (© Westend61/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 今天的图片让我们一睹大提顿国家公园的美景！该公园建于1929年，位于美国人口最少的怀俄明州，以壮丽连绵的雪山山峰而闻名。园区内高耸入云的巍峨雪山，与蜿蜒的蛇河、纯净的湖水以及丰富的野生动物共同构成了一幅美丽的画卷。去这里的时候，要记得带上你的双筒望远镜！如果是夏天，一定要观察叉角羚，它们可是长途跋涉了约150英里才来到这里。此外，麋鹿和野牛也是这里的夏季访客。这些动物的迁徙不仅有助于植物种子的传播，还为其他捕食者提供了食物，这对大提顿国家公园的生态系统起着至关重要的作用。
+> Today's image gives us a glimpse of beautiful Grand Teton National Park, in our least populous state, Wyoming. The park, established in 1929, encompasses lakes, the Snake River, and the Teton Range, famed for its series of sharp, jagged peaks. Bring your binoculars with you, and if it's summertime, be on the lookout for pronghorn, which travel about 150 miles to get there from Wyoming's Upper Green River Basin. They aren't the only creatures to visit seasonally; elk and bison are also summer visitors. These migrations play a vital role in the ecosystem of Grand Teton National Park. The animals help disperse seeds and are also food for predators.
 > 
 > 
 > 
@@ -110,18 +110,28 @@
 
 </details>
 
-| ![大提顿国家公园，怀俄明州](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大提顿国家公园，怀俄明州](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_1080x1920.jpg) |
 
 ### 20231121
 
-> 英国诺福克海滩上的灰海豹幼崽 (© Vince Burton/Minden Pictures)
+> Gray seal pup, Norfolk, England (© Vince Burton/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 如果你此时去英国诺福克海滩度假，大概率会看到刚出生的灰海豹幼崽。每年的11月初至1月初，约有3,000只灰海豹幼崽在英国的诺福克海滩上出生，使该地区成为英国最重要的灰海豹繁殖地之一。相比之下，美国海岸的灰海豹幼崽出生时间略晚。海豹妈妈会在海滩上悉心喂养幼崽三周，在这期间，幼崽每天增重约4.5磅！喂养期结束后，小海豹们还不能立刻下水。它们会待在海滩上，直到苍白的皮毛变成斑驳的灰色，才会前往大海，学会自己捕猎。
+> Here in Norfolk, on the east coast of England, a seasonal wildlife spectacle is underway. Between early November and January, thousands of gray seal pups are born on the shoreline, a little earlier than those on US coasts. The seal moms feed their pups on the beach for three weeks, during which time the pups gain about 4.5 pounds a day. They stay on the beach until they shed their pale fur to make way for a waterproof, mottled gray coat. Then it's time to head to the sea and learn to hunt for themselves.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Gray seal pup, Norfolk, England](https://cn.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gray seal pup, Norfolk, England](https://cn.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_1080x1920.jpg) |猎。
 > 
 > 
 > 
