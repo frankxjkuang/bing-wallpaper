@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231128
+
+> Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As we get caught up in the hustle and bustle of gift shopping and festive decorations, it's good to remember the true spirit of times like these: generosity and kindness. That's where Giving Tuesday comes in. This annual holiday on the first Tuesday after Thanksgiving was created by the United Nations Foundation and New York's 92nd Street Y—a cultural organization and community center—in 2012. Their vision was to make a difference by providing joy to everyone through acts of charity. Generosity is something we can all practice, whether by volunteering at a non-profit organization, shelter or food bank, donating to a charity, or simply giving a voice to people in need in your community. So, let's jump on board with the millions of kind souls, shake hands, and share warm wishes far and wide!
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Giving Tuesday](https://cn.bing.com/th?id=OHR.HumanKindness_EN-US4254216907_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Giving Tuesday](https://cn.bing.com/th?id=OHR.HumanKindness_EN-US4254216907_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HumanKindness_EN-US4254216907_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HumanKindness_EN-US4254216907_1080x1920.jpg) |
+
 ### 20231127
 
 > Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)
@@ -112,36 +131,7 @@
 
 | ![Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_1080x1920.jpg) |
-
-### 20231121
-
-> Gray seal pup, Norfolk, England (© Vince Burton/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Here in Norfolk, on the east coast of England, a seasonal wildlife spectacle is underway. Between early November and January, thousands of gray seal pups are born on the shoreline, a little earlier than those on US coasts. The seal moms feed their pups on the beach for three weeks, during which time the pups gain about 4.5 pounds a day. They stay on the beach until they shed their pale fur to make way for a waterproof, mottled gray coat. Then it's time to head to the sea and learn to hunt for themselves.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Gray seal pup, Norfolk, England](https://cn.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gray seal pup, Norfolk, England](https://cn.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_1080x1920.jpg) |猎。
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![灰海豹幼崽](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![灰海豹幼崽](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_1080x1920.jpg) |ad landscape 4K](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1080x1920.jpg) |
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
