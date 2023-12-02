@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231130
+
+> The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Scotland's fantastical landscapes are steeped in folklore and myths. The Old Man of Storr—a 164-foot rocky pinnacle on the Isle of Skye—is no exception. So named because it is said to resemble a craggy man when viewed from the right angle, it has long inspired tales of giants and magic. The Old Man towers over the Trotternish Ridge, a 20-mile-long landslip that is home to many stunning and strange rock formations, each with their own stories.
+> 
+> It is also a suitably stunning site to toast Saint Andrew, who was named as Scotland's patron saint when the country declared its independence in 1320. The celebration of St. Andrew's Day was popularized by Scottish people in the US who wanted to connect to their roots. However, Scotland is not the only country to celebrate the saint. From Romania to Barbados, many nations celebrate the historic figure, applying their own traditions. Are you celebrating today?
+> 
+> 
+
+</details>
+
+| ![Saint Andrew's Day](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Saint Andrew's Day](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_1080x1920.jpg) |
+
 ### 20231129
 
 > Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Hoh Rain Forest, Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hoh Rain Forest, Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_1080x1920.jpg) |
-
-### 20231123
-
-> Flint corn (© Cynthia Liang/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> While people gather across the country for feasts of turkey, mashed potatoes, and stuffing, you may wonder about the origins of Thanksgiving. Early English settlers had plenty to be thankful for, whether surviving the long voyage to America or the first harsh winters. Written records tell of an early thanksgiving shared between Plymouth Pilgrims and Wampanoag Native Americans, who provided a harvest of corn, deer, and turkey. There were many early days of thanksgiving, but an official, national celebration was proclaimed by George Washington in 1789, and has been a part of our holiday season ever since. Today, we wish you good company and plenty of things to be thankful for. Happy Thanksgiving!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.FlintCorn_EN-US2819178375_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.FlintCorn_EN-US2819178375_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlintCorn_EN-US2819178375_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlintCorn_EN-US2819178375_1080x1920.jpg) | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_1080x1920.jpg) |.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
