@@ -1,5 +1,43 @@
 ## bing wallpaper
 
+### 20231202
+
+> North Gate of Angkor Thom, Angkor Archaeological Park, Cambodia (© Amazing Travel Lifestyle/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Towering temples, moss-covered ruins, and enchanting forests can all be found in the ancient site of Angkor in Cambodia, once the center of the powerful Khmer Empire. Pictured on our homepage is the North Gate of Angkor Thom, the 'Great City' within Angkor, built in the 12th century. Strolling through Angkor Thom's intricate ruins, gates, and Bayon Temple, with its 216 gigantic smiling stone faces, is like stepping into an adventure movie. Angkor's star attraction, Angkor Wat, is the world's largest religious monument—spread across 402 acres—and a masterpiece of Khmer architecture. It was initially constructed as a Hindu temple before becoming a Buddhist site. So, if you're looking for a blend of history, art, and nature, this UNESCO World Heritage Site guarantees an unforgettable journey into the past.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Angkor, Cambodia](https://cn.bing.com/th?id=OHR.AngkorPark_EN-US8869976296_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Angkor, Cambodia](https://cn.bing.com/th?id=OHR.AngkorPark_EN-US8869976296_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AngkorPark_EN-US8869976296_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AngkorPark_EN-US8869976296_1080x1920.jpg) |
+
+### 20231201
+
+> Iceberg in the Ross Sea, Antarctica (© Michel Roggo/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> The windiest, coldest, and driest continent on Earth—Antarctica—was officially discovered in 1820. In the following decades, several countries organized expeditions to reach and explore the Antarctic ice sheets. The southernmost continent had no indigenous population and various nations claimed ownership. But in 1959, 12 countries signed the Antarctic Treaty, banning military activities and setting Antarctica aside for scientific research. Today, we celebrate the anniversary of this treaty, which now has 56 parties.
+> 
+> From suspended clouds of ice crystals to a subglacial, iron oxide-rich lake that seeps into a blood-red waterfall, this polar desert is full of natural wonders. Its massive ice sheet stores about 70% of the world's fresh water, enough to raise sea levels by more than 200 feet if it were to melt entirely.
+> 
+> 
+
+</details>
+
+| ![Antarctica Day](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Antarctica Day](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_1080x1920.jpg) |
+
 ### 20231130
 
 > The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)
@@ -93,45 +131,7 @@
 
 | ![Fallow deer, Bradgate Park, Leicestershire, England](https://cn.bing.com/th?id=OHR.BradgateFallow_EN-US3932725763_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fallow deer, Bradgate Park, Leicestershire, England](https://cn.bing.com/th?id=OHR.BradgateFallow_EN-US3932725763_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BradgateFallow_EN-US3932725763_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BradgateFallow_EN-US3932725763_1080x1920.jpg) |
-
-### 20231125
-
-> Toledo, Spain (© Carlos Fernandez/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Built on a hill and surrounded on three sides by the Tagus River, the Spanish city of Toledo is a UNESCO World Heritage Site packed with history. Its towering Alcázar fortress and impressive Gothic cathedral dominate the skyline, but the city is also home to mosques and synagogues. Toledo bears strong cultural influences from the Moors, who ruled here for centuries, following their arrival in Spain in 711. It was known as the City of the Three Cultures during the Middle Ages, when its Christian, Muslim, and Jewish communities coexisted harmoniously. Toledo has been the home of sword making since Roman times and is also famous for its marzipan. In the 16th century, the city was home to the famous painter El Greco, who was inspired to create some of his greatest masterpieces here.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Toledo, Spain](https://cn.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Toledo, Spain](https://cn.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_1080x1920.jpg) |
-
-### 20231124
-
-> Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Imagine spending the day hiking amid these moss-covered trees instead of frantically checking items off your holiday shopping list. Welcome to Green Friday, the environmental alternative to Black Friday. The aim is to encourage people to make ethical shopping choices—or to refrain from shopping altogether and embrace nature instead.
-> 
-> A good place to start is the Hall of Mosses at Olympic National Park, in Washington's Hoh Rain Forest. This fantastical landscape is a temperate rainforest with an enchanting loop trail through mosses gracefully draped over majestic spruces and hemlocks. Bring a jacket though; this forest is the wettest in the contiguous United States with an annual rainfall of nearly 130 inches. No wonder it's so green!
-> 
-> 
-
-</details>
-
-| ![Hoh Rain Forest, Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hoh Rain Forest, Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HallofMosses_EN-US3167567374_1080x1920.jpg) |.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1080x1920.jpg) |m/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BradgateFallow_EN-US3932725763_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BradgateFallow_EN-US3932725763_1080x1920.jpg) |6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
