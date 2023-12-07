@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231205
+
+> Neuschwanstein and Hohenschwangau castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The Bavarian Alps, a mountain range in southern Germany, are home to these enchanting 19th-century castles, Neuschwanstein and Hohenschwangau. Neuschwanstein Castle, on the left of our homepage image, was commissioned by King Ludwig II of Bavaria. Building work began in 1869 on this Romanesque Revival palace with its fairy-tale-like architecture and breathtaking mountain backdrop. Across the valley, gazing out over Lake Alpsee, is the equally spectacular Hohenschwangau Castle, built by Ludwig II's father, King Maximilian II of Bavaria. These two castles boast rich interiors with intricate artwork and historical artifacts. Both castles attract millions of visitors every year, offering a glimpse into the opulent past of Bavaria.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Neuschwanstein and Hohenschwangau castles, Bavaria, Germany](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Neuschwanstein and Hohenschwangau castles, Bavaria, Germany](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_1080x1920.jpg) |
+
 ### 20231204
 
 > A mother cheetah and her cubs in the Maasai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Rockefeller Center Christmas tree lighting](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rockefeller Center Christmas tree lighting](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_1080x1920.jpg) |
-
-### 20231128
-
-> Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As we get caught up in the hustle and bustle of gift shopping and festive decorations, it's good to remember the true spirit of times like these: generosity and kindness. That's where Giving Tuesday comes in. This annual holiday on the first Tuesday after Thanksgiving was created by the United Nations Foundation and New York's 92nd Street Y—a cultural organization and community center—in 2012. Their vision was to make a difference by providing joy to everyone through acts of charity. Generosity is something we can all practice, whether by volunteering at a non-profit organization, shelter or food bank, donating to a charity, or simply giving a voice to people in need in your community. So, let's jump on board with the millions of kind souls, shake hands, and share warm wishes far and wide!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Giving Tuesday](https://cn.bing.com/th?id=OHR.HumanKindness_EN-US4254216907_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Giving Tuesday](https://cn.bing.com/th?id=OHR.HumanKindness_EN-US4254216907_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HumanKindness_EN-US4254216907_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HumanKindness_EN-US4254216907_1080x1920.jpg) |) |6764351912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_1080x1920.jpg) |id=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
