@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231206
+
+> The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Computer science is a dynamically developing discipline that has revolutionized our lives within a few decades. For Computer Science Education Week, we celebrate information systems and their power to connect the world, 24 hours a day. Where better to mark the occasion than the European Organization for Nuclear Research, known as CERN—birthplace of the World Wide Web? The 89-foot ball seen on today’s homepage is CERN's Globe of Science and Innovation in Switzerland, in which visitors can learn more about the organization's research work on particle physics. Quiet observers can wander around exhibitions and follow guided tours, and curious minds can take part in lab workshops and science shows for a first-hand experience.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Computer Science Education Week](https://cn.bing.com/th?id=OHR.CERNCenter_EN-US9854867489_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Computer Science Education Week](https://cn.bing.com/th?id=OHR.CERNCenter_EN-US9854867489_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CERNCenter_EN-US9854867489_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CERNCenter_EN-US9854867489_1080x1920.jpg) |
+
 ### 20231205
 
 > Neuschwanstein and Hohenschwangau castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Saint Andrew's Day](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Saint Andrew's Day](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_1080x1920.jpg) |
-
-### 20231129
-
-> Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As December approaches, New York gears up for a sparkling spectacle. On November 29, the Rockefeller Center Tree Lighting will bring you festive vibes. The roots of this holiday tradition go back to 1931, when builders put up a balsam fir to show gratitude for their jobs amid the bleakness of the Great Depression. That tree was decorated with paper garlands and tin cans and in 1933 the first tree-lighting ceremony took place. Today, this towering Norway spruce is adorned with over 50,000 multicolored LED lights and topped with a Swarovski crystal star. The illumination of the 80-foot tree is a full-blown extravaganza with musical performances and celebrity sightings. Its mesmerizing glow marks the official arrival of the holiday season in the city that never sleeps, and you don't want to miss it!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Rockefeller Center Christmas tree lighting](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rockefeller Center Christmas tree lighting](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_1080x1920.jpg) |id=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_1080x1920.jpg) |id=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
