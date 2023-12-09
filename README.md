@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231207
+
+> USS Arizona Memorial, Pearl Harbor, Oahu, Hawaii (© Douglas Peebles Photography/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> On the morning of December 7, 1941, American history changed forever when a surprise attack was launched on the US Naval base at Pearl Harbor, Hawaii. Japanese bombers and submarines struck the island of Oahu, taking the lives of 2,403 Americans and damaging or destroying over 300 airplanes and nearly 20% of the 100-ship Pacific Fleet. The United States entered World War II immediately after the attack, and the event hastened Hawaii's path to become the 50th state to join the union. As 82 years have passed, few veterans of Pearl Harbor are still alive today. Lou Conter, the last surviving crew member of the USS Arizona, its memorial seen here, turned 102 in September. So, thank you to Lou, and all others who served our country on that infamous day.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_1080x1920.jpg) |
+
 ### 20231206
 
 > The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Antarctica Day](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Antarctica Day](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_1080x1920.jpg) |
-
-### 20231130
-
-> The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Scotland's fantastical landscapes are steeped in folklore and myths. The Old Man of Storr—a 164-foot rocky pinnacle on the Isle of Skye—is no exception. So named because it is said to resemble a craggy man when viewed from the right angle, it has long inspired tales of giants and magic. The Old Man towers over the Trotternish Ridge, a 20-mile-long landslip that is home to many stunning and strange rock formations, each with their own stories.
-> 
-> It is also a suitably stunning site to toast Saint Andrew, who was named as Scotland's patron saint when the country declared its independence in 1320. The celebration of St. Andrew's Day was popularized by Scottish people in the US who wanted to connect to their roots. However, Scotland is not the only country to celebrate the saint. From Romania to Barbados, many nations celebrate the historic figure, applying their own traditions. Are you celebrating today?
-> 
-> 
-
-</details>
-
-| ![Saint Andrew's Day](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Saint Andrew's Day](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_1080x1920.jpg) |id=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_1080x1920.jpg) |93682_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_1080x1920.jpg) |id=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
