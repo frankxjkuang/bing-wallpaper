@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231208
+
+> La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)
+
+<details>
+<summary>Description</summary>
+
+> Just off the coast of Normandy, France lies Jersey, a British island with a Norse name. Found on the southeastern shore of the island is La Rocque Harbour, home to a white, sandy beach and an elevated walkway that stretches out into the water. The shoreline's granite and plutonic rocks, which originated more than 420 million years ago, showcase a variety of colors and textures. Visible from the harbor are the round, stubby Icho Tower and the taller Seymour Tower, built in the 18th and 19th centuries respectively as coastal defense structures. Both structures are over 1,800 feet away from the shore and can be reached on foot with a sturdy pair of shoes, but only on the days of the year where the tide is lowest.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![La Rocque Harbour, Island of Jersey](https://cn.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![La Rocque Harbour, Island of Jersey](https://cn.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_1080x1920.jpg) |
+
 ### 20231207
 
 > USS Arizona Memorial, Pearl Harbor, Oahu, Hawaii (© Douglas Peebles Photography/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Angkor, Cambodia](https://cn.bing.com/th?id=OHR.AngkorPark_EN-US8869976296_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Angkor, Cambodia](https://cn.bing.com/th?id=OHR.AngkorPark_EN-US8869976296_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AngkorPark_EN-US8869976296_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AngkorPark_EN-US8869976296_1080x1920.jpg) |
-
-### 20231201
-
-> Iceberg in the Ross Sea, Antarctica (© Michel Roggo/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> The windiest, coldest, and driest continent on Earth—Antarctica—was officially discovered in 1820. In the following decades, several countries organized expeditions to reach and explore the Antarctic ice sheets. The southernmost continent had no indigenous population and various nations claimed ownership. But in 1959, 12 countries signed the Antarctic Treaty, banning military activities and setting Antarctica aside for scientific research. Today, we celebrate the anniversary of this treaty, which now has 56 parties.
-> 
-> From suspended clouds of ice crystals to a subglacial, iron oxide-rich lake that seeps into a blood-red waterfall, this polar desert is full of natural wonders. Its massive ice sheet stores about 70% of the world's fresh water, enough to raise sea levels by more than 200 feet if it were to melt entirely.
-> 
-> 
-
-</details>
-
-| ![Antarctica Day](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Antarctica Day](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_1080x1920.jpg) |93682_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_1080x1920.jpg) |id=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AngkorPark_EN-US8869976296_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AngkorPark_EN-US8869976296_1080x1920.jpg) |.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_1080x1920.jpg) |93682_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_1080x1920.jpg) |id=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
