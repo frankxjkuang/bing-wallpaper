@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231213
+
+> Traditional rorbu houses, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Housed in the Arctic Circle, Norway's Lofoten Islands are a crossroads of traditional life and modern industry. One of two towns in Lofoten, Svolvaer boasts a long history as a fishing village. Before it became a town of its own, it was part of the town of Vågan, where people have lived for over 1,000 years. Beyond fishing, it also serves as a sanctuary for travelers looking for a peaceful getaway, with as many as 200,000 visitors in a single year. The traditional rorbu houses, built on poles over water, add a distinctive layer of charm to the town. These cabins were once made for traveling fishermen and have now been refurbished to meet contemporary tastes.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Svolvaer, Lofoten Islands, Norway](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Svolvaer, Lofoten Islands, Norway](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_1080x1920.jpg) |
+
 ### 20231212
 
 > Poinsettias (© Yarygin/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_1080x1920.jpg) |
-
-### 20231206
-
-> The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Computer science is a dynamically developing discipline that has revolutionized our lives within a few decades. For Computer Science Education Week, we celebrate information systems and their power to connect the world, 24 hours a day. Where better to mark the occasion than the European Organization for Nuclear Research, known as CERN—birthplace of the World Wide Web? The 89-foot ball seen on today’s homepage is CERN's Globe of Science and Innovation in Switzerland, in which visitors can learn more about the organization's research work on particle physics. Quiet observers can wander around exhibitions and follow guided tours, and curious minds can take part in lab workshops and science shows for a first-hand experience.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Computer Science Education Week](https://cn.bing.com/th?id=OHR.CERNCenter_EN-US9854867489_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Computer Science Education Week](https://cn.bing.com/th?id=OHR.CERNCenter_EN-US9854867489_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CERNCenter_EN-US9854867489_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CERNCenter_EN-US9854867489_1080x1920.jpg) |4506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_1080x1920.jpg) |RNCenter_EN-US9854867489_1080x1920.jpg) |4506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_1080x1920.jpg) |5219587_1080x1920.jpg) |p&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
