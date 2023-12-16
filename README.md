@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231214
+
+> Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> In the world of birdwatching, the Christmas Bird Count, first held back in 1900, is a highlight of the year. The original bird count involved just 27 people spread over 25 locations in the US and Canada. Since then, the annual bird census has grown exponentially, with participants in more than 2,360 locations across various countries.
+> 
+> In North America's coniferous forests lives a tiny bird of prey—the boreal owl. The small brown and white-flecked raptor is shy and keeps well hidden from our view. Despite its compact size, it is a formidable hunter, feeding on small mammals, voles, and birds. With dark plumage and expressive eyes, it strikes a captivating figure in the moonlit canopy, intriguing bird enthusiasts and researchers. Any birder would be fortunate to spot one during their Christmas Bird Count.
+> 
+> 
+
+</details>
+
+| ![Christmas Bird Count](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas Bird Count](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_1080x1920.jpg) |
+
 ### 20231213
 
 > Traditional rorbu houses, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![La Rocque Harbour, Island of Jersey](https://cn.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![La Rocque Harbour, Island of Jersey](https://cn.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_1080x1920.jpg) |
-
-### 20231207
-
-> USS Arizona Memorial, Pearl Harbor, Oahu, Hawaii (© Douglas Peebles Photography/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> On the morning of December 7, 1941, American history changed forever when a surprise attack was launched on the US Naval base at Pearl Harbor, Hawaii. Japanese bombers and submarines struck the island of Oahu, taking the lives of 2,403 Americans and damaging or destroying over 300 airplanes and nearly 20% of the 100-ship Pacific Fleet. The United States entered World War II immediately after the attack, and the event hastened Hawaii's path to become the 50th state to join the union. As 82 years have passed, few veterans of Pearl Harbor are still alive today. Lou Conter, the last surviving crew member of the USS Arizona, its memorial seen here, turned 102 in September. So, thank you to Lou, and all others who served our country on that infamous day.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_1080x1920.jpg) |RNCenter_EN-US9854867489_1080x1920.jpg) |4506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_1080x1920.jpg) |_EN-US9996821390_1080x1920.jpg) |RNCenter_EN-US9854867489_1080x1920.jpg) |4506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_1080x1920.jpg) |5219587_1080x1920.jpg) |p&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
