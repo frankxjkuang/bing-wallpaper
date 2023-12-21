@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231219
+
+> Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> From early December, the streets and squares of Warsaw, Poland's capital city, are dressed for the festive season. Christmas decorations light up the Royal Route, which extends south from the Royal Castle on Castle Square, where a nearly 30-foot-tall Christmas tree is installed for the holiday season, to Wilanów Palace. Bundled patrons wander through Warsaw's Christmas Market, browsing through seasonal souvenirs while savoring a warm beverage. The Royal Castle and surrounding Old Town have been recognized as a UNESCO World Heritage Site since 1980.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Castle Square, Old Town, Warsaw, Poland](https://cn.bing.com/th?id=OHR.WarsawChristmas_EN-US8819312496_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castle Square, Old Town, Warsaw, Poland](https://cn.bing.com/th?id=OHR.WarsawChristmas_EN-US8819312496_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WarsawChristmas_EN-US8819312496_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WarsawChristmas_EN-US8819312496_1080x1920.jpg) |
+
 ### 20231218
 
 > Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)
@@ -112,27 +131,7 @@
 
 | ![Svolvaer, Lofoten Islands, Norway](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Svolvaer, Lofoten Islands, Norway](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_1080x1920.jpg) |
-
-### 20231212
-
-> Poinsettias (© Yarygin/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> During the holiday season, poinsettias brighten up homes in suitably festive coloring, serving as symbols of goodwill. December 12 marks National Poinsettia Day, a special occasion to celebrate this holiday favorite. The plant was introduced to the US by Joel Roberts Poinsett, a botanist and former minister to Mexico who died on this day in 1851. Poinsettias can be found growing in the wild from Mexico to Guatemala. The ancestors of the modern, commercially available version have been traced to the Mexican state of Guerrero. The crimson-leaved plant was used by the Aztecs as a red dye and as a fever-reducing medicine.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Poinsettia Day](https://cn.bing.com/th?id=OHR.Poinsettia_EN-US0450019921_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Poinsettia Day](https://cn.bing.com/th?id=OHR.Poinsettia_EN-US0450019921_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Poinsettia_EN-US0450019921_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Poinsettia_EN-US0450019921_1080x1920.jpg) |:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_EN-US0251074250_1080x1920.jpg) |id=OHR.JerseyIsland_EN-US0109101063_1080x1920.jpg) |_EN-US9996821390_1080x1920.jpg) |RNCenter_EN-US9854867489_1080x1920.jpg) |4506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_1080x1920.jpg) |bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_EN-US0251074250_1080x1920.jpg) |id=OHR.JerseyIsland_EN-US0109101063_1080x1920.jpg) |_EN-US9996821390_1080x1920.jpg) |RNCenter_EN-US9854867489_1080x1920.jpg) |4506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_1080x1920.jpg) |5219587_1080x1920.jpg) |p&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
