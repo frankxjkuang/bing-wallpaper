@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231220
+
+> Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Val Gardena in Northern Italy is a popular destination for skiing, rock climbing, and woodcarving enthusiasts, which transforms into Christmas Valley at this time of year. Wooden huts open their doors to visitors, and a nostalgic cable car ride, each cabin adorned with twinkling fairy lights, travels above snow-covered slopes. During the 18th century, the valley became famous for its production of intricately carved wooden figurines, initially made to decorate Catholic churches. Among those creations, the peg wooden doll emerged as one of Val Gardena's best-known products and is still being produced today.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Val Gardena, South Tyrol, Dolomites, Italy](https://cn.bing.com/th?id=OHR.ValGardenaItaly_EN-US8887980856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Val Gardena, South Tyrol, Dolomites, Italy](https://cn.bing.com/th?id=OHR.ValGardenaItaly_EN-US8887980856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ValGardenaItaly_EN-US8887980856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ValGardenaItaly_EN-US8887980856_1080x1920.jpg) |
+
 ### 20231219
 
 > Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Christmas Bird Count](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas Bird Count](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_1080x1920.jpg) |
-
-### 20231213
-
-> Traditional rorbu houses, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Housed in the Arctic Circle, Norway's Lofoten Islands are a crossroads of traditional life and modern industry. One of two towns in Lofoten, Svolvaer boasts a long history as a fishing village. Before it became a town of its own, it was part of the town of Vågan, where people have lived for over 1,000 years. Beyond fishing, it also serves as a sanctuary for travelers looking for a peaceful getaway, with as many as 200,000 visitors in a single year. The traditional rorbu houses, built on poles over water, add a distinctive layer of charm to the town. These cabins were once made for traveling fishermen and have now been refurbished to meet contemporary tastes.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Svolvaer, Lofoten Islands, Norway](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Svolvaer, Lofoten Islands, Norway](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_1080x1920.jpg) |bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_EN-US0251074250_1080x1920.jpg) |id=OHR.JerseyIsland_EN-US0109101063_1080x1920.jpg) |_EN-US9996821390_1080x1920.jpg) |RNCenter_EN-US9854867489_1080x1920.jpg) |4506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_1080x1920.jpg) |nRorbu_EN-US1036629496_1080x1920.jpg) |bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_EN-US0251074250_1080x1920.jpg) |id=OHR.JerseyIsland_EN-US0109101063_1080x1920.jpg) |_EN-US9996821390_1080x1920.jpg) |RNCenter_EN-US9854867489_1080x1920.jpg) |4506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_1080x1920.jpg) |5219587_1080x1920.jpg) |p&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
