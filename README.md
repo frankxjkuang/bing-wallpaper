@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20231221
+
+> Avenue of birch trees near Uffing am Staffelsee, Bavaria, Germany (© Reinhard Schmid/Huber/eStock Photo)
+
+<details>
+<summary>Description</summary>
+
+> Frost-covered birch trees add a graceful touch to this winter landscape in the German state of Bavaria. This region is home to the villages of Uffing and Schöffau, on the shores of Staffelsee lake, and is often covered in mist and snow, creating an ethereal ambience. A winter chill is to be expected today, on the shortest day of the year. Typically falling on December 21, the solstice marks the beginning of winter in the Northern Hemisphere. While we're wrapping up warm, the Southern Hemisphere is celebrating the start of summer on their longest day of the year.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Winter solstice](https://cn.bing.com/th?id=OHR.BavarianSolstice_EN-US9111666986_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winter solstice](https://cn.bing.com/th?id=OHR.BavarianSolstice_EN-US9111666986_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BavarianSolstice_EN-US9111666986_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BavarianSolstice_EN-US9111666986_1080x1920.jpg) |
+
 ### 20231220
 
 > Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)
@@ -112,25 +131,7 @@
 
 | ![SantaPark, Lapland, Finland](https://cn.bing.com/th?id=OHR.SantaPark_EN-US8274997583_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![SantaPark, Lapland, Finland](https://cn.bing.com/th?id=OHR.SantaPark_EN-US8274997583_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaPark_EN-US8274997583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaPark_EN-US8274997583_1080x1920.jpg) |
-
-### 20231214
-
-> Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> In the world of birdwatching, the Christmas Bird Count, first held back in 1900, is a highlight of the year. The original bird count involved just 27 people spread over 25 locations in the US and Canada. Since then, the annual bird census has grown exponentially, with participants in more than 2,360 locations across various countries.
-> 
-> In North America's coniferous forests lives a tiny bird of prey—the boreal owl. The small brown and white-flecked raptor is shy and keeps well hidden from our view. Despite its compact size, it is a formidable hunter, feeding on small mammals, voles, and birds. With dark plumage and expressive eyes, it strikes a captivating figure in the moonlit canopy, intriguing bird enthusiasts and researchers. Any birder would be fortunate to spot one during their Christmas Bird Count.
-> 
-> 
-
-</details>
-
-| ![Christmas Bird Count](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas Bird Count](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaPark_EN-US8274997583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaPark_EN-US8274997583_1080x1920.jpg) ||
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_1080x1920.jpg) |nRorbu_EN-US1036629496_1080x1920.jpg) |bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_EN-US0251074250_1080x1920.jpg) |id=OHR.JerseyIsland_EN-US0109101063_1080x1920.jpg) |_EN-US9996821390_1080x1920.jpg) |RNCenter_EN-US9854867489_1080x1920.jpg) |4506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_1080x1920.jpg) |5219587_1080x1920.jpg) |p&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
