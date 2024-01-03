@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240101
+
+> Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to 2024! Did you stay up late to ring in the new year? If so, we wouldn't blame you for sleeping in like this red fox in Abruzzo, Italy. Whenever you wake up, New Year's Day is a great opportunity for reflection, planning, and a sense of renewal for the year ahead. January 1 has been a big day since the Julian calendar was widely adopted in 45 BCE—modified in 1582 by the Gregorian calendar to better calculate for leap years. Whether you're watching a parade, attending a sports game, taking a chilly dip, or writing resolutions, we hope it's the beginning of a great year to come.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Happy New Year!](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy New Year!](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |
+
 ### 20231231
 
 > Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)
@@ -112,24 +131,7 @@
 
 | ![Happy Boxing Day!](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Boxing Day!](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_1080x1920.jpg) |
-
-### 20231225
-
-> Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Dashing through the snow on our homepage today, reindeer, or caribou as they are known here in North America, have been synonymous with Christmas for two centuries. American writer Clement Clarke Moore is credited with popularizing them as Santa's helpers in the poem 'A Visit from St. Nicholas,' first published in 1823. And no wonder Santa picked them. With two layers of fur and eyes that adapt to the Arctic's shifting light levels, reindeer are very versatile. You likely won't see them fly, but you might find a herd migrating from tundra to forest in the North Polar Region, North America, Northern Europe, or Siberia. Their hooves can expand or shrink according to ground conditions, keeping their heavy frame stable on soft ground in summer, ice in winter, and steep rooftops at Christmas. If you're celebrating Christmas today, we wish you a merry one.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Merry Christmas!](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Merry Christmas!](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_1080x1920.jpg) |68_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_EN-US9431079565_1080x1920.jpg) |HR.FestivusPenguins_EN-US9322662873_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FestivusPenguins_EN-US9322662873_1080x1920.jpg) |jpg) |5219587_1080x1920.jpg) |p&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
