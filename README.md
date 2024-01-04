@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240102
+
+> Prayer flags in Phobjikha Valley, Bhutan (© John Warburton-Lee/DanitaDelimont.com)
+
+<details>
+<summary>Description</summary>
+
+> This kaleidoscopic column is made up of prayer flags, blowing in the breeze in the Phobjikha Valley, Bhutan. Prayer flags come in five repeating colors representing different elements in nature, blue for the sky, white for air, red for fire, green for water, and yellow for earth. The fluttering fabrics, inscribed with spiritual scripts, are usually raised during times of prosperity, such as on Bhutan's Nyinlong, their traditional day of solstice, which takes place today. As the flags fade over time, adherents believe this signifies that the prayers have been heard and are being carried away by the wind, infusing the surrounding area with positivity and spirituality.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Prayer flags in Phobjikha Valley, Bhutan](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Prayer flags in Phobjikha Valley, Bhutan](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_1080x1920.jpg) |
+
 ### 20240101
 
 > Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Kirkjufell, Iceland](https://cn.bing.com/th?id=OHR.KirkjufellAurora_EN-US0249270913_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kirkjufell, Iceland](https://cn.bing.com/th?id=OHR.KirkjufellAurora_EN-US0249270913_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KirkjufellAurora_EN-US0249270913_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KirkjufellAurora_EN-US0249270913_1080x1920.jpg) |
-
-### 20231226
-
-> Winter sunrise in Dedham, Colchester, England (© George W Johnson/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The holiday season isn't quite over! December 26 marks Boxing Day—a popular day to get outside and enjoy a walk after a day of indulgence. Our homepage image shows a wintry sunrise over fields near the village of Dedham, in Colchester, England¬—perfect walking country.
-> 
-> Boxing Day is observed in the UK and some other countries including Canada and Australia. It's thought to have originated from the old British tradition of giving boxes filled with presents to servants on the day after Christmas. These days, Boxing Day is often associated with sporting events. It’s a big day for soccer in the UK and horse races are held across the country, including the historic King George VI Chase at Kempton Park Racecourse. Meanwhile in Canada, ice hockey fans gather to cheer on their favorite teams. Just like winter sunshine, the holiday season ends sooner than you think, so make the most of it!
-> 
-> 
-
-</details>
-
-| ![Happy Boxing Day!](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Boxing Day!](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_1080x1920.jpg) |68_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KirkjufellAurora_EN-US0249270913_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KirkjufellAurora_EN-US0249270913_1080x1920.jpg) |ape 4K](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_1080x1920.jpg) |68_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_EN-US9431079565_1080x1920.jpg) |HR.FestivusPenguins_EN-US9322662873_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FestivusPenguins_EN-US9322662873_1080x1920.jpg) |jpg) |5219587_1080x1920.jpg) |p&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
