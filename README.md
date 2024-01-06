@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240104
+
+> Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> An iconic feat of engineering, the Golden Gate Bridge stands like a sentinel at the entrance to San Francisco Bay. Pictured here blanketed by fog above the waters of the Golden Gate Strait, its towers, adorned with Art Deco elements, reach a height of 746 feet. The bridge opened in 1937, thanks to the efforts of engineer Joseph Strauss, architect Irving Morrow, and others who wanted to connect San Francisco to Marin County. It wasn't an easy vision to accomplish during the Great Depression, but the investment paid off as its construction created thousands of jobs and boosted growth. It was Morrow who picked the striking color, International Orange, an unusual choice at the time when many bridges were gray or black. He felt it would contrast well with the surrounding hills, sky, ocean, and fog. The Golden Gate Bridge, a testament to human innovation, is a timeless masterpiece blending functionality with beauty.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Golden Gate Bridge, San Francisco, California](https://cn.bing.com/th?id=OHR.GoldenGateLight_EN-US7749261025_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Golden Gate Bridge, San Francisco, California](https://cn.bing.com/th?id=OHR.GoldenGateLight_EN-US7749261025_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenGateLight_EN-US7749261025_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenGateLight_EN-US7749261025_1080x1920.jpg) |
+
 ### 20240103
 
 > Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Oud-West, Amsterdam, Netherlands](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oud-West, Amsterdam, Netherlands](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_1080x1920.jpg) |
-
-### 20231228
-
-> Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)
-
-<details>
-<summary>Description</summary>
-
-> Today is a special milestone for our furry, scaly, and feathered friends: the Endangered Species Act is turning 50. This landmark legislation, signed into law in 1973, has been helping species on the brink for half a century. Who's that in the spotlight? A humpback whale! Known for their haunting songs and acrobatic breaches, these gentle giants are a success story of the ESA. They were once on the edge of extinction, largely due to commercial whaling, but thanks to conservation efforts, their population has bounced back from around 5,000 in 1966 to an estimated 135,000 today. However, our work isn't over. Challenges persist, from habitat loss to poaching. So, what can we do? Spread the word, support conservation efforts, participate in local initiatives, and be eco-friendly.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![50 years of the Endangered Species Act](https://cn.bing.com/th?id=OHR.GreenlandHumpback_EN-US0330682837_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![50 years of the Endangered Species Act](https://cn.bing.com/th?id=OHR.GreenlandHumpback_EN-US0330682837_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreenlandHumpback_EN-US0330682837_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenlandHumpback_EN-US0330682837_1080x1920.jpg) |t 4K](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_1080x1920.jpg) |68_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_1080x1920.jpg) ||
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_EN-US9431079565_1080x1920.jpg) |HR.FestivusPenguins_EN-US9322662873_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FestivusPenguins_EN-US9322662873_1080x1920.jpg) |jpg) |5219587_1080x1920.jpg) |p&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
