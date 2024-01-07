@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240105
+
+> International Ice and Snow Sculpture Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Sculptors from around the world head to the Chinese city of Harbin at this time of year for the world's largest ice and snow festival. From the frozen waters of the Songhua River, they carve more than 2,000 towering ice sculptures including castles, temples, animals, mythical figures, and massive ice slides. The stunning ice creations are illuminated at night in many colors, adding a new dimension to the spectacle.
+> 
+> The Harbin International Ice and Snow Sculpture Festival, in China's northernmost province Heilongjiang, began as a garden party with ice lanterns in 1963. Today it attracts millions of visitors each year. In 2007, a team of 600 sculptors created the world's largest snow sculpture here, an Olympic-themed landscape measuring 115 feet in height and 656 feet in length.
+> 
+> 
+
+</details>
+
+| ![International Ice and Snow Sculpture Festival, Harbin, China](https://cn.bing.com/th?id=OHR.HarbinFestival_EN-US7952970209_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Ice and Snow Sculpture Festival, Harbin, China](https://cn.bing.com/th?id=OHR.HarbinFestival_EN-US7952970209_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HarbinFestival_EN-US7952970209_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HarbinFestival_EN-US7952970209_1080x1920.jpg) |
+
 ### 20240104
 
 > Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)
@@ -112,27 +131,7 @@
 
 | ![Daiichi Tadami River Bridge, Fukushima, Japan](https://cn.bing.com/th?id=OHR.TadamiWinter_EN-US6973402256_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Daiichi Tadami River Bridge, Fukushima, Japan](https://cn.bing.com/th?id=OHR.TadamiWinter_EN-US6973402256_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TadamiWinter_EN-US6973402256_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TadamiWinter_EN-US6973402256_1080x1920.jpg) |
-
-### 20231229
-
-> Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to Amsterdam! The capital of the Netherlands charms visitors with its historic canals, versatile architecture, and laid-back vibe. The city's history can be traced back to the 12th century when it was a fishing village on the banks of the Amstel River. Institutions like the Van Gogh Museum, the Eye Film Museum, and the National Maritime Museum offer insights into its history and arts legacy. Amsterdam's canal ring area, built at the turn of the 17th century, is a UNESCO World Heritage Site. The city is also home to its fair share of restaurants, vintage shops, and outdoor markets in neighborhoods like Oud-West, pictured in today's image. Get ready to pedal because Amsterdam's cycling culture is ubiquitous. With approximately 320 miles of bike lanes, it's one of the most bike-friendly cities in the world.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Oud-West, Amsterdam, Netherlands](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oud-West, Amsterdam, Netherlands](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_1080x1920.jpg) ||
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_EN-US9431079565_1080x1920.jpg) |HR.FestivusPenguins_EN-US9322662873_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FestivusPenguins_EN-US9322662873_1080x1920.jpg) |jpg) |5219587_1080x1920.jpg) |p&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TadamiWinter_EN-US6973402256_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TadamiWinter_EN-US6973402256_1080x1920.jpg) |om/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_EN-US9431079565_1080x1920.jpg) |HR.FestivusPenguins_EN-US9322662873_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FestivusPenguins_EN-US9322662873_1080x1920.jpg) |jpg) |5219587_1080x1920.jpg) |p&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
