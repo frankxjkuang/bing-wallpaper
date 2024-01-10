@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240108
+
+> Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> This awesome white winter expanse is found in the Alps of eastern Switzerland. The famous Bernina Pass stands tall at an elevation of 7,638 feet and attracts winter sports enthusiasts from all over the world. Fun fact: Evidence of the oldest wooden skis, dating back to around 6000 BCE, was found in Russia. Boasting excellent snow conditions from November to March, the Bernina Pass is a must-visit spot on every skier's bucket list.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Bernina Pass, Graubünden, Switzerland](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bernina Pass, Graubünden, Switzerland](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_1080x1920.jpg) |
+
 ### 20240107
 
 > Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Prayer flags in Phobjikha Valley, Bhutan](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Prayer flags in Phobjikha Valley, Bhutan](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_1080x1920.jpg) |
-
-### 20240101
-
-> Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to 2024! Did you stay up late to ring in the new year? If so, we wouldn't blame you for sleeping in like this red fox in Abruzzo, Italy. Whenever you wake up, New Year's Day is a great opportunity for reflection, planning, and a sense of renewal for the year ahead. January 1 has been a big day since the Julian calendar was widely adopted in 45 BCE—modified in 1582 by the Gregorian calendar to better calculate for leap years. Whether you're watching a parade, attending a sports game, taking a chilly dip, or writing resolutions, we hope it's the beginning of a great year to come.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Happy New Year!](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy New Year!](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
