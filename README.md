@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240114
+
+> Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)
+
+<details>
+<summary>Description</summary>
+
+> An elegant creature for a majestic setting. These whooper swans, gliding on the mirror-like surface of Japan's Lake Kussharo, are close relatives of North America's trumpeter swans. Named for their loud call, whooper swans are one of the world's heaviest flying birds, weighing up to around 30 pounds and boasting wingspans of between 7 and 9 feet. Whooper swans are found across Eurasia and are Finland's national bird, spending their breeding season there before migrating to warmer areas for winter. All that travel doesn't ruin their relationships—these waterfowl form strong, monogamous pairs that can last for life.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Whooper swans in Lake Kussharo, Japan](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Whooper swans in Lake Kussharo, Japan](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_1080x1920.jpg) |
+
 ### 20240113
 
 > Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Bernina Pass, Graubünden, Switzerland](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bernina Pass, Graubünden, Switzerland](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_1080x1920.jpg) |
-
-### 20240107
-
-> Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> These aren't your ordinary rocks! One of the oldest-known religious locations, the Devils Marbles Conservation Reserve is a sacred site to Aboriginal Australians. The site, also called Karlu Karlu, in Australia’s Northern Territory, is home to a collection of giant, gravity-defying boulders. These rocks are composed of granite, and their peculiar shape is the result of millions of years of weathering and erosion.
-> 
-> And what better occasion than Old Rock Day, to appreciate such geological wonders? Did you know that the Earth's oldest rock is truly out of this world? Lunar sample 14321, or 'Big Bertha,' is approximately 4.46 billion years old—just a smidge younger than the Earth itself—and was recovered from the moon during the Apollo 14 mission. Scientists believe that the rock was a meteorite from Earth that hit the moon, only to be brought back home, millions of years later. Whether you're a geology nerd or just a nature lover, today's the day to rock on!
-> 
-> 
-
-</details>
-
-| ![Old Rock Day](https://cn.bing.com/th?id=OHR.DevilsMarbles_EN-US8559239074_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Old Rock Day](https://cn.bing.com/th?id=OHR.DevilsMarbles_EN-US8559239074_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_1080x1920.jpg) |ck Day](https://cn.bing.com/th?id=OHR.DevilsMarbles_EN-US8559239074_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DevilsMarbles_EN-US8559239074_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DevilsMarbles_EN-US8559239074_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.CrabappleChaffinch_EN-US1781584314_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_EN-US1781584314_1080x1920.jpg) |952970209_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
