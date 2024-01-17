@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240115
+
+> Martin Luther King Jr. Memorial, Washington, DC (© kropic1/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Martin Luther King Jr. Day serves as a reminder not only of the man, but also of his mission. He stood for advances in civil rights, nonviolent resistance, and a dream of racial harmony. In 1983, the third Monday of January was made a federal holiday to mark his birthday, which was on January 15. It's the only federal holiday that's designated as a national day of service and the 'day on, not a day off' continues to inspire unity, progress, and the ongoing struggle for equality.
+> 
+> The Stone of Hope statue stands tall at the Martin Luther King Jr. Memorial, next to the National Mall in Washington, DC. It was created by the sculptor Lei Yixin and Dr. King's words are displayed around the memorial, urging us to continue the journey toward a better, more equitable tomorrow. The statue itself was inspired by a line from Dr. King's 1963 'I Have a Dream' speech: 'With this faith, we will be able to hew out of the mountain of despair a stone of hope.'
+> 
+> 
+
+</details>
+
+| ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_1080x1920.jpg) |
+
 ### 20240114
 
 > Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)
@@ -112,28 +131,7 @@
 
 | ![Balloon Ascension Day](https://cn.bing.com/th?id=OHR.BalloonDay_EN-US9019911805_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Balloon Ascension Day](https://cn.bing.com/th?id=OHR.BalloonDay_EN-US9019911805_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BalloonDay_EN-US9019911805_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BalloonDay_EN-US9019911805_1080x1920.jpg) |
-
-### 20240108
-
-> Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This awesome white winter expanse is found in the Alps of eastern Switzerland. The famous Bernina Pass stands tall at an elevation of 7,638 feet and attracts winter sports enthusiasts from all over the world. Fun fact: Evidence of the oldest wooden skis, dating back to around 6000 BCE, was found in Russia. Boasting excellent snow conditions from November to March, the Bernina Pass is a must-visit spot on every skier's bucket list.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Bernina Pass, Graubünden, Switzerland](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bernina Pass, Graubünden, Switzerland](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_1080x1920.jpg) |ck Day](https://cn.bing.com/th?id=OHR.DevilsMarbles_EN-US8559239074_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DevilsMarbles_EN-US8559239074_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DevilsMarbles_EN-US8559239074_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.CrabappleChaffinch_EN-US1781584314_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_EN-US1781584314_1080x1920.jpg) |952970209_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BalloonDay_EN-US9019911805_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BalloonDay_EN-US9019911805_1080x1920.jpg) |584314_1080x1920.jpg) |952970209_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.HarbinFestival_EN-US7952970209_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HarbinFestival_EN-US7952970209_1080x1920.jpg) |HR.GoldenGateLight_EN-US7749261025_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
