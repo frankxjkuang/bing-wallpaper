@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240120
+
+> Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Let's flap our flippers and dive into Penguin Awareness Day! Today's image features macaroni penguins swimming in the plankton-rich waters of the Drake Passage off the coast of Chile. These charming creatures, one of 18 different species of penguin in the Southern Hemisphere, can be recognized by their flashy amber crests and orange beaks. The name is said to have been coined by English sailors, derived from a term used to describe flamboyant dressers in the late 18th century.
+> 
+> Macaroni penguins can be a bad-tempered bunch who get into noisy fights. To avoid this, males often ease their way through crowded colonies with their heads tucked down to their chests. The main threats though, are not their fellow penguins. Reduced food availability, fishing nets, and the impact of climate change on sea ice are among challenges faced by this species, which has been classified as vulnerable due to population decline.
+> 
+> 
+
+</details>
+
+| ![Penguin Awareness Day](https://cn.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Penguin Awareness Day](https://cn.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_1080x1920.jpg) |
+
 ### 20240119
 
 > Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Whooper swans in Lake Kussharo, Japan](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Whooper swans in Lake Kussharo, Japan](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_1080x1920.jpg) |
-
-### 20240113
-
-> Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> With more than 600 curves and numerous one-lane bridges, it's best not to relax too much while navigating Hawaii's famous Road to Hana. It's hard to stay focused though, as the road winds its way through lush surroundings over 64 miles along the northern coast of Maui, from Kahului to Hana. Make a few stops along the way to get the best views of the rainforests and waterfalls that line the route. Popular attractions include the Waikamoi Ridge Trail, the easily accessible Twin Falls, and the black sands of Wai'ānapanapa State Park.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Road to Hana, Maui, Hawaii](https://cn.bing.com/th?id=OHR.HanaHighway_EN-US0637770298_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Road to Hana, Maui, Hawaii](https://cn.bing.com/th?id=OHR.HanaHighway_EN-US0637770298_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HanaHighway_EN-US0637770298_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HanaHighway_EN-US0637770298_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.GoldenGateLight_EN-US7749261025_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenGateLight_EN-US7749261025_1080x1920.jpg) |---:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_1080x1920.jpg) |com/th?id=OHR.BhutanSolstice_EN-US7410762908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_1080x1920.jpg) |BhutanSolstice_EN-US7410762908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
