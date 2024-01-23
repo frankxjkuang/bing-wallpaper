@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240121
+
+> Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Have you ever been captivated by a squirrel crossing your path? January 21 is Squirrel Awareness Day, honoring these furry seed distributors. Today's homepage star is the Eurasian red squirrel, whose striking reddish-brown coat, white underbelly, and bushy tail are a familiar sight in several countries. These squirrels are not only exceptional jumpers—capable of leaping up to 6 feet in one jump—they can even swim to search for food. They gather nuts and acorns in the autumn and hide them, to see them through the winter months. If you spot fuzzy-tailed squirrels frolicking in your backyard, they might also appreciate a feeding station stocked with treats such as raspberries or crab apples.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_EN-US2174319616_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_EN-US2174319616_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_EN-US2174319616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_EN-US2174319616_1080x1920.jpg) |
+
 ### 20240120
 
 > Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_1080x1920.jpg) |
-
-### 20240114
-
-> Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)
-
-<details>
-<summary>Description</summary>
-
-> An elegant creature for a majestic setting. These whooper swans, gliding on the mirror-like surface of Japan's Lake Kussharo, are close relatives of North America's trumpeter swans. Named for their loud call, whooper swans are one of the world's heaviest flying birds, weighing up to around 30 pounds and boasting wingspans of between 7 and 9 feet. Whooper swans are found across Eurasia and are Finland's national bird, spending their breeding season there before migrating to warmer areas for winter. All that travel doesn't ruin their relationships—these waterfowl form strong, monogamous pairs that can last for life.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Whooper swans in Lake Kussharo, Japan](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Whooper swans in Lake Kussharo, Japan](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_1080x1920.jpg) |BhutanSolstice_EN-US7410762908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_1080x1920.jpg) |/cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
