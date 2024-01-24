@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240122
+
+> Winter sunrise, Walton Lighthouse, Santa Cruz, California (© Jeff Lewis/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Step to the western edge of America, where the Walton Lighthouse, also known as the Santa Cruz Breakwater Lighthouse, is a beacon for passing ships. Built in 2002, this 40-foot-tall building replaced a more modest light. The Walton Lighthouse got its name from Charles Walton, a businessman who helped fund its construction in memory of his brother Derek, a merchant seaman who died at sea during World War II.
+> 
+> Santa Cruz has been a busy port city since the mid-1800s, when ships would unload lime, redwood, and other agricultural products. These days, Santa Cruz Harbor is home to a commercial fishing fleet, as well as a popular place to rent kayaks, boats, and paddleboards.
+> 
+> 
+
+</details>
+
+| ![Walton Lighthouse, Santa Cruz, California](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_EN-US6436233856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Walton Lighthouse, Santa Cruz, California](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_EN-US6436233856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_EN-US6436233856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_EN-US6436233856_1080x1920.jpg) |
+
 ### 20240121
 
 > Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)
@@ -112,25 +131,7 @@
 
 | ![Lake Louise, Banff National Park, Alberta](https://cn.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Louise, Banff National Park, Alberta](https://cn.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_1080x1920.jpg) |
-
-### 20240115
-
-> Martin Luther King Jr. Memorial, Washington, DC (© kropic1/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Martin Luther King Jr. Day serves as a reminder not only of the man, but also of his mission. He stood for advances in civil rights, nonviolent resistance, and a dream of racial harmony. In 1983, the third Monday of January was made a federal holiday to mark his birthday, which was on January 15. It's the only federal holiday that's designated as a national day of service and the 'day on, not a day off' continues to inspire unity, progress, and the ongoing struggle for equality.
-> 
-> The Stone of Hope statue stands tall at the Martin Luther King Jr. Memorial, next to the National Mall in Washington, DC. It was created by the sculptor Lei Yixin and Dr. King's words are displayed around the memorial, urging us to continue the journey toward a better, more equitable tomorrow. The statue itself was inspired by a line from Dr. King's 1963 'I Have a Dream' speech: 'With this faith, we will be able to hew out of the mountain of despair a stone of hope.'
-> 
-> 
-
-</details>
-
-| ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_1080x1920.jpg) |/cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
