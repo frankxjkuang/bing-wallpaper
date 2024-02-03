@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240201
+
+> Dizzy Gillespie in 1990 at the 32nd Monterey Jazz Festival, California (© Craig Lovell/Eagle Visions Photography/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Born in New Orleans around the turn of the 20th century, with a sound that came from the blues, ragtime, and call-and-response vocals, jazz music is a notable chapter in Black history. You can almost hear John 'Dizzy' Gillespie playing his signature bent trumpet, featured on our homepage today. Gillespie made his name in bebop, often called the first modern form of jazz, playing alongside other greats including Charlie Parker, Miles Davis, and Thelonious Monk. Black musicians created genres like rock and roll, funk, hip-hop, and soul, the soundtrack to American culture and Black history.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Black History Month](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_1080x1920.jpg) |
+
 ### 20240131
 
 > Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)
@@ -112,24 +131,7 @@
 
 | ![Northern hawk-owl](https://cn.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Northern hawk-owl](https://cn.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_1080x1920.jpg) |
-
-### 20240125
-
-> Ruins of St. Dwynwen's Church, Ynys Llanddwyn, Wales (© Photos by R A Kearton/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Ynys Llanddwyn is a tiny tidal island which, at low tide, is attached to the Isle of Anglesey in Wales. Ynys means 'island' in Welsh and Llanddwyn means 'the church of Dwynwen,' the country's patron saint of lovers.
-> 
-> Legend has it that Dwynwen, a 5th-century Welsh princess, sought solace on this island after a tragic love story. The young woman fell in love with a commoner, but because her royal father forbade the union—and briefly turned her beloved into a block of ice—she moved to the island and set up a convent. She dedicated her life to spirituality, living as a hermit and helping others with matters of the heart. The ruins of Dwynwen's church, a well, and a convent remain on Ynys Llanddwyn and St. Dwynwen's Day, on January 25, is the most romantic day in Wales—the country's very own Valentine's Day.
-> 
-> 
-
-</details>
-
-| ![Ruins of St. Dwynwen's Church, Ynys Llanddwyn, Wales](https://cn.bing.com/th?id=OHR.DwynwensDay_EN-US2844762878_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ruins of St. Dwynwen's Church, Ynys Llanddwyn, Wales](https://cn.bing.com/th?id=OHR.DwynwensDay_EN-US2844762878_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DwynwensDay_EN-US2844762878_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DwynwensDay_EN-US2844762878_1080x1920.jpg) |pg) |=OHR.SantaCruzSunrise_EN-US6436233856_1080x1920.jpg) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_1080x1920.jpg) |id=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
