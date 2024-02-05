@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240203
+
+> Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Don your tricorn hat and gilded disguise, it's time to visit the Carnival of Venice. This centuries-old festival combines revelry with anonymity, thanks to the masks traditionally worn by attendees, from the classic square-jawed Bauta mask to the Colombina eye mask, with roots in Italian theater. Costumed rowers take part in a parade of traditional boats on Venice's famous Grand Canal while thousands of people wearing elaborate costumes enjoy the carnival atmosphere. Parades, parties, concerts, and performances will fill the streets until festivities end on Shrove Tuesday, which falls on February 13 this year. Visitors might pass by the Santa Maria della Salute, seen toward the back of today's image, a baroque basilica dedicated to the Virgin Mary, who is considered to be the protector of the city.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Carnival of Venice](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Carnival of Venice](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_1080x1920.jpg) |
+
 ### 20240202
 
 > Marmot peeking out of its burrow (© Scacciamosche/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Channel Country, Australia](https://cn.bing.com/th?id=OHR.ChannelOutback_EN-US7094425288_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Channel Country, Australia](https://cn.bing.com/th?id=OHR.ChannelOutback_EN-US7094425288_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChannelOutback_EN-US7094425288_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChannelOutback_EN-US7094425288_1080x1920.jpg) |
-
-### 20240127
-
-> Ice palace at the St. Paul Winter Carnival, Minnesota (© Joe Mamer Photography/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> A chilly paradise awaits at the St. Paul Winter Carnival! This annual celebration, taking place between January 25 and February 4 this year, transforms Minnesota's capital city into a winter wonderland. It all started in 1885, when a group of reporters visited and referred to Minnesota as another Siberia, unfit for human habitation. This offended city officials who devised a plan to showcase the area's winter beauty. The Winter Carnival was born, featuring seasonal activities such as bobsledding and ice horse-racing. Today, the carnival attracts visitors and strengthens community bonds through parades, markets, and winter sports. And ice sculptors carve stunning but fleeting works of art, like the frozen palace towering over today's image.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![St. Paul Winter Carnival](https://cn.bing.com/th?id=OHR.WinterCarnival_EN-US6859361078_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. Paul Winter Carnival](https://cn.bing.com/th?id=OHR.WinterCarnival_EN-US6859361078_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WinterCarnival_EN-US6859361078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterCarnival_EN-US6859361078_1080x1920.jpg) |ntaCruzSunrise_EN-US6436233856_1080x1920.jpg) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_1080x1920.jpg) |id=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChannelOutback_EN-US7094425288_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChannelOutback_EN-US7094425288_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_1080x1920.jpg) |id=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
