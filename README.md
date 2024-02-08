@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240206
+
+> Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> This serene scene shows Lake Tahoe, the largest alpine lake in North America and the second-deepest lake in the US. Peeking out of those misty waters is Bonsai Rock, the unlikely home of four small trees that have taken root in its cracks. Its name was inspired by the Japanese art of growing miniature trees, which are kept in small containers and pruned to control their size. The trees on Bonsai Rock are naturally restricted by the lack of space and nutrients, so no pruning is required. Part of the purpose of bonsai is to provide an opportunity for contemplation, and this tranquil spot high in the Sierra Nevada is the perfect place to relax and explore your thoughts. It is also popular with photographers, especially at sunset.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Bonsai Rock, Lake Tahoe, Nevada](https://cn.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bonsai Rock, Lake Tahoe, Nevada](https://cn.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_1080x1920.jpg) |
+
 ### 20240205
 
 > Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Zebra Day](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Zebra Day](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_1080x1920.jpg) |
-
-### 20240130
-
-> Aýna, Sierra del Segura, Albacete, Spain (© Juan Maria Coy Vergara/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to the tiny Spanish village of Aýna, in a steep valley carved by the River Mundo in the Sierra del Segura range. This part of the Castile-La Mancha region is sometimes called Manchegan Switzerland, thanks to those snow-capped peaks during the winter months. The steep, rocky terrain here means the villagers, of whom there are less than 1,000, cultivate the land on terraces dug into the mountainside. To see Aýna from this perspective, you'll need to visit the Mirador del Diablo, or Devil's Viewpoint, one of several viewing areas dotted around this picturesque valley.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Aýna, Albacete, Spain](https://cn.bing.com/th?id=OHR.AlbaceteSpain_EN-US7443919036_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aýna, Albacete, Spain](https://cn.bing.com/th?id=OHR.AlbaceteSpain_EN-US7443919036_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlbaceteSpain_EN-US7443919036_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlbaceteSpain_EN-US7443919036_1080x1920.jpg) |om/th?id=OHR.ChannelOutback_EN-US7094425288_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_1080x1920.jpg) |id=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
