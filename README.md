@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240207
+
+> St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)
+
+<details>
+<summary>Description</summary>
+
+> St. James Beach is a small, sheltered beach on Cape Town's coastline, where vibrant Victorian bathing boxes sit side by side against an azure ocean backdrop. However, it's the St. James Tidal Pool, pictured on our homepage, that steals the spotlight. This protected bathing area, built between rugged rocks, offers crystal-clear waters for a tranquil swimming experience. The pool is warm compared with the ocean, teems with small marine life, and is perfect for floating around without worrying about strong currents. For those who like to stay dry, the beach is perfect for leisurely strolls, soaking up the sun, and observing the rhythmic ebb and flow of the tides.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![St. James Tidal Pool, Cape Town, South Africa](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. James Tidal Pool, Cape Town, South Africa](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_1080x1920.jpg) |
+
 ### 20240206
 
 > Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Black History Month](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_1080x1920.jpg) |
-
-### 20240131
-
-> Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> It's time for some black-and-white thinking. January 31 is International Zebra Day, celebrating the stripey creatures pictured here in Rietvlei Nature Reserve, South Africa. There are three species of zebra: plains, mountain, and Grévy's, and several subspecies. The mother and foal on our homepage are Burchell's zebras, a subspecies of the plains zebra. Found across eastern and southern Africa, zebras thrive in savannas, shrublands, woodlands, and mountain regions. They spend most of their time eating grasses, leaves, and shrubs, and can travel hundreds of miles in search of food and water. Sadly, all three species are under threat due to hunting and habitat destruction. International Zebra Day aims to raise awareness of conservation efforts, to help protect these striking creatures.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![International Zebra Day](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Zebra Day](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_1080x1920.jpg) |209908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
