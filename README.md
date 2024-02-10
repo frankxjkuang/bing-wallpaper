@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240208
+
+> Mount Hood, Oregon (© Inigo Cia/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Mount Hood graces Oregon's skyline with a pointed, snow-capped peak. At nearly 11,250 feet high, this dormant stratovolcano is the tallest mountain in the state, drawing adventurers and nature aficionados alike. With 12 named glaciers and numerous snow fields, Mount Hood offers a wintry playground all year round. It also nurtures ancient forests and provides a haven for wildlife, including cougars and wolves. Over the past 1,800 years, the volcano has erupted three times. While considered dormant, there is still a chance that it could erupt one day.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Mount Hood, Oregon](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Hood, Oregon](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_1080x1920.jpg) |
+
 ### 20240207
 
 > St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)
@@ -112,26 +131,7 @@
 
 | ![Groundhog Day](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Groundhog Day](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_1080x1920.jpg) |
-
-### 20240201
-
-> Dizzy Gillespie in 1990 at the 32nd Monterey Jazz Festival, California (© Craig Lovell/Eagle Visions Photography/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Born in New Orleans around the turn of the 20th century, with a sound that came from the blues, ragtime, and call-and-response vocals, jazz music is a notable chapter in Black history. You can almost hear John 'Dizzy' Gillespie playing his signature bent trumpet, featured on our homepage today. Gillespie made his name in bebop, often called the first modern form of jazz, playing alongside other greats including Charlie Parker, Miles Davis, and Thelonious Monk. Black musicians created genres like rock and roll, funk, hip-hop, and soul, the soundtrack to American culture and Black history.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Black History Month](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_1080x1920.jpg) |209908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_1080x1920.jpg) |S7637800342_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_1080x1920.jpg) |209908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
