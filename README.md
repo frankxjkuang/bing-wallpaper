@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240209
+
+> Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> An unspoiled landscape carved by nature's raw power, waves crash against Pegadung Rock on the southern coast of the Indonesian island of Sumatra. This remote beach boasts turquoise waters, but it is the striking rocks that steal the show, standing tall against the might of the Indian Ocean. The rock formations, some of which are 33 feet tall, have given rise to various nicknames, among them Gigi Hiu (shark teeth) and Batu Layar (rock screen) Beach. While this beach has no tourist accommodation, the nearby village of Kiluan presents a haven for visitors. For those ready to trade lounging for exploring, this Sumatran treasure awaits.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Pegadung Rock, Lampung, Sumatra, Indonesia](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pegadung Rock, Lampung, Sumatra, Indonesia](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_1080x1920.jpg) |
+
 ### 20240208
 
 > Mount Hood, Oregon (© Inigo Cia/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Carnival of Venice](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Carnival of Venice](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_1080x1920.jpg) |
-
-### 20240202
-
-> Marmot peeking out of its burrow (© Scacciamosche/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> How long will winter last? Much depends on whether a certain groundhog sees his shadow today in Punxsutawney, Pennsylvania. On February 2, Punxsutawney Phil emerges from his tree stump, helped by members of the Punxsutawney Groundhog Club's 'inner circle.' According to local legend, the same stocky groundhog has been predicting the weather since at least 1886 and if he sees his shadow, we can expect six more weeks of winter. If he does not, an early spring awaits.
-> 
-> Phil is said to make his prediction by choosing one of two scrolls, which top-hatted men then read out to the crowd, who cheer Phil on either way. Our homepage star today is a relative of Phil's, an alpine marmot, which has its own winter tradition of stocking up on food to prepare for a long hibernation. Let's hope that Phil doesn't see his shadow so we can exit our own.
-> 
-> 
-
-</details>
-
-| ![Groundhog Day](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Groundhog Day](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_1080x1920.jpg) |S7637800342_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_1080x1920.jpg) |209908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_1080x1920.jpg) |eMarmot_EN-US6895103237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_1080x1920.jpg) |S7637800342_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_1080x1920.jpg) |209908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
