@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240210
+
+> Artists performing the dragon dance for Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Celebrating the first new moon of the lunar calendar, an estimated 2 billion people gather worldwide to usher in the Lunar New Year with vibrant celebrations and family reunions. The festivities, also known as the Spring Festival or Chinese New Year, last for 15 days, ending with the Lantern Festival. From envelopes to lanterns, red is the dominant color, symbolizing luck and prosperity. Streets come alive with the rhythm of drums as the dragon dance takes center stage. Our homepage today shows a bird's-eye view of the dragons—elongated puppets with shimmering scales, animated by a team of dancers. Lunar New Year is a popular time for families to reunite and is said to be responsible for the world's largest annual human migration. Each year is linked to one of the 12 zodiac animals and 2024 heralds the Year of the Dragon, a symbol of nobility, power, and success.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Happy Lunar New Year!](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Lunar New Year!](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_1080x1920.jpg) |
+
 ### 20240209
 
 > Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Devetashka Cave, Devetaki, Bulgaria](https://cn.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Devetashka Cave, Devetaki, Bulgaria](https://cn.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_1080x1920.jpg) |
-
-### 20240203
-
-> Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Don your tricorn hat and gilded disguise, it's time to visit the Carnival of Venice. This centuries-old festival combines revelry with anonymity, thanks to the masks traditionally worn by attendees, from the classic square-jawed Bauta mask to the Colombina eye mask, with roots in Italian theater. Costumed rowers take part in a parade of traditional boats on Venice's famous Grand Canal while thousands of people wearing elaborate costumes enjoy the carnival atmosphere. Parades, parties, concerts, and performances will fill the streets until festivities end on Shrove Tuesday, which falls on February 13 this year. Visitors might pass by the Santa Maria della Salute, seen toward the back of today's image, a baroque basilica dedicated to the Virgin Mary, who is considered to be the protector of the city.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Carnival of Venice](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Carnival of Venice](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_1080x1920.jpg) |eMarmot_EN-US6895103237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_1080x1920.jpg) |S7637800342_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_1080x1920.jpg) |209908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_1080x1920.jpg) |m/th?id=OHR.AlpineMarmot_EN-US6895103237_1080x1920.jpg) |S7637800342_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_1080x1920.jpg) |209908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
