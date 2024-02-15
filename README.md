@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240213
+
+> Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Get ready to revel—Mardi Gras is here! Also called Fat Tuesday or Shrove Tuesday, the holiday was originally celebrated to live life to the fullest before fasting and giving up other indulgences for Lent. For some, it's just an excuse to party.
+> 
+> Fat Tuesday celebrations take place around the world, particularly in areas with strong French influences. New Orleans is particularly linked with the festival and hosts a massive celebration that can last up to eight weeks, depending on when Easter falls. Mardi Gras parades are held from the official start of Mardi Gras on King's Day, January 6. Social clubs, known as krewes, hold parades on assigned schedules and routes. Crowds gather along the way, hoping to catch coins, cups, and beads thrown by float riders, a tradition that started in the 1880s. Ready to make merry and join the parade?
+> 
+> 
+
+</details>
+
+| ![Mardi Gras](https://cn.bing.com/th?id=OHR.MarignyBeads_EN-US7464992774_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mardi Gras](https://cn.bing.com/th?id=OHR.MarignyBeads_EN-US7464992774_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_EN-US7464992774_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_EN-US7464992774_1080x1920.jpg) |
+
 ### 20240212
 
 > Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![St. James Tidal Pool, Cape Town, South Africa](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. James Tidal Pool, Cape Town, South Africa](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_1080x1920.jpg) |
-
-### 20240206
-
-> Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> This serene scene shows Lake Tahoe, the largest alpine lake in North America and the second-deepest lake in the US. Peeking out of those misty waters is Bonsai Rock, the unlikely home of four small trees that have taken root in its cracks. Its name was inspired by the Japanese art of growing miniature trees, which are kept in small containers and pruned to control their size. The trees on Bonsai Rock are naturally restricted by the lack of space and nutrients, so no pruning is required. Part of the purpose of bonsai is to provide an opportunity for contemplation, and this tranquil spot high in the Sierra Nevada is the perfect place to relax and explore your thoughts. It is also popular with photographers, especially at sunset.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Bonsai Rock, Lake Tahoe, Nevada](https://cn.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bonsai Rock, Lake Tahoe, Nevada](https://cn.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
