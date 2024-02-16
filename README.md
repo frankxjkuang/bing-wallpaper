@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240214
+
+> Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Love is in the air as Valentine's Day arrives! These red-crowned cranes, seen in the reed marshes and frozen lakes of Hokkaido Island, Japan, know how to turn on the charm. The graceful birds call in unison and bow to each other as part of their captivating mating dance. Once a mate is chosen, the pair develop a lifelong bond, a trait that has helped make them a symbol of longevity, fidelity, and good fortune in Japanese culture. These gentle creatures were also the inspiration for the traditional origami crane. According to legend, folding a thousand cranes can grant wishes.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Valentine's Day](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Valentine's Day](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_1080x1920.jpg) |
+
 ### 20240213
 
 > Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Mount Hood, Oregon](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Hood, Oregon](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_1080x1920.jpg) |
-
-### 20240207
-
-> St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)
-
-<details>
-<summary>Description</summary>
-
-> St. James Beach is a small, sheltered beach on Cape Town's coastline, where vibrant Victorian bathing boxes sit side by side against an azure ocean backdrop. However, it's the St. James Tidal Pool, pictured on our homepage, that steals the spotlight. This protected bathing area, built between rugged rocks, offers crystal-clear waters for a tranquil swimming experience. The pool is warm compared with the ocean, teems with small marine life, and is perfect for floating around without worrying about strong currents. For those who like to stay dry, the beach is perfect for leisurely strolls, soaking up the sun, and observing the rhythmic ebb and flow of the tides.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![St. James Tidal Pool, Cape Town, South Africa](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. James Tidal Pool, Cape Town, South Africa](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_1080x1920.jpg) |.StJamesPool_EN-US8700038796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
