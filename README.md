@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240215
+
+> Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> All eyes are on hippos today! The world's third-largest land mammals after elephants and white rhinos, hippopotamuses are found in rivers and lakes throughout sub-Saharan Africa. Despite their size—they can weigh up to 4 tons—they are vulnerable to various threats, including habitat loss.
+> 
+> The peeping calf in today's image is still under the watchful eye of its mother and will continue to be so until nursing ends at about 8 months. These chubby mammals might seem cute, but their strong jaws, large teeth, and aggressive behavior make them one of the world's most dangerous wild animals. So, admire them from a safe distance—despite their short legs, they are also fast runners!
+> 
+> 
+
+</details>
+
+| ![World Hippo Day](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Hippo Day](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_1080x1920.jpg) |
+
 ### 20240214
 
 > Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Pegadung Rock, Lampung, Sumatra, Indonesia](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pegadung Rock, Lampung, Sumatra, Indonesia](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_1080x1920.jpg) |
-
-### 20240208
-
-> Mount Hood, Oregon (© Inigo Cia/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Mount Hood graces Oregon's skyline with a pointed, snow-capped peak. At nearly 11,250 feet high, this dormant stratovolcano is the tallest mountain in the state, drawing adventurers and nature aficionados alike. With 12 named glaciers and numerous snow fields, Mount Hood offers a wintry playground all year round. It also nurtures ancient forests and provides a haven for wildlife, including cougars and wolves. Over the past 1,800 years, the volcano has erupted three times. While considered dormant, there is still a chance that it could erupt one day.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Mount Hood, Oregon](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Hood, Oregon](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_1080x1920.jpg) |.StJamesPool_EN-US8700038796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_1080x1920.jpg) |eWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
