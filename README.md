@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240217
+
+> The Alvin Ailey American Dance Theater rehearsing 'Uptown,' 2009, New York (© STAN HONDA/AFP via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As we celebrate Black History Month, we're taking a moment to highlight an institution in the world of dance—the Alvin Ailey American Dance Theater in New York City. Founded by the visionary choreographer Alvin Ailey in 1958, it fuses elements of modern dance, ballet, jazz, and theater. The company's performances demonstrate the importance of artistic expression in preserving and celebrating Black culture in America. Congress described it as a 'vital American cultural ambassador to the world' in 2008.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Black History Month](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_1080x1920.jpg) |
+
 ### 20240216
 
 > Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Folegandros Island, Cyclades, Greece](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Folegandros Island, Cyclades, Greece](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_1080x1920.jpg) |
-
-### 20240210
-
-> Artists performing the dragon dance for Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Celebrating the first new moon of the lunar calendar, an estimated 2 billion people gather worldwide to usher in the Lunar New Year with vibrant celebrations and family reunions. The festivities, also known as the Spring Festival or Chinese New Year, last for 15 days, ending with the Lantern Festival. From envelopes to lanterns, red is the dominant color, symbolizing luck and prosperity. Streets come alive with the rhythm of drums as the dragon dance takes center stage. Our homepage today shows a bird's-eye view of the dragons—elongated puppets with shimmering scales, animated by a team of dancers. Lunar New Year is a popular time for families to reunite and is said to be responsible for the world's largest annual human migration. Each year is linked to one of the 12 zodiac animals and 2024 heralds the Year of the Dragon, a symbol of nobility, power, and success.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Happy Lunar New Year!](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Lunar New Year!](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_1080x1920.jpg) |&w=400&h=224&rs=1&c=4) | ![Happy Lunar New Year!](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_1080x1920.jpg) |ungRocks_EN-US6654823877_1080x1920.jpg) |eWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
