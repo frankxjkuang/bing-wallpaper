@@ -1,13 +1,51 @@
 ## bing wallpaper
 
-### 20240217
+### 20240219
 
-> The Alvin Ailey American Dance Theater rehearsing 'Uptown,' 2009, New York (© STAN HONDA/AFP via Getty Images)
+> 鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙 (© Marco Bottigelli/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> As we celebrate Black History Month, we're taking a moment to highlight an institution in the world of dance—the Alvin Ailey American Dance Theater in New York City. Founded by the visionary choreographer Alvin Ailey in 1958, it fuses elements of modern dance, ballet, jazz, and theater. The company's performances demonstrate the importance of artistic expression in preserving and celebrating Black culture in America. Congress described it as a 'vital American cultural ambassador to the world' in 2008.
+> 这些色彩斑斓的街道之间发生了什么？想象下有这样一个地方，大西洋轻抚着色彩斑斓的海岸，泰德峰从3715米的高度俯瞰着它。这个地方就是特内里费岛，西班牙加那利群岛上一个风景秀美四季如春的天堂。但当二月来临时，这座岛屿就会焕然一新：这是独属于圣克鲁斯-德特内里费的狂欢节时间，其视觉效果和节日盛况可与著名的巴西里约热内卢狂欢节相媲美，也被认为是世界上第二热门和知名的狂欢节。
+> 
+> 在这些日子里，整座城市充满着音乐、舞蹈和服饰，它们是真正的动态艺术品。当地人和游客欢聚一堂，跳起充满兄弟情谊和欢乐的舞蹈，每个剧团、每张面具都在讲述着一个独特的故事。特内里费狂欢节于1980年被视为国际兴趣的旅游节，此外，狂欢节还充满了奇趣，比如传统的“沙丁鱼的葬礼”，它标志着狂欢节庆典的结束和“大斋节”的到来。庆祝活动弘扬了岛屿文化，让每一位参加者都承诺在加那利的阳光下翩翩起舞。
+> 
+> 如果你不喜欢派对，特内里费岛还有更多值得一游的地方。特内里费岛的泰德国家公园被联合国教科文组织列为世界遗产，是世界上游客最多的公园之一，岛上还有丰富的建筑群、文化活动、广阔海滩和峭壁悬崖，当然也有让你流连忘返的天然海滨浴场。
+
+</details>
+
+| ![克鲁斯港，特内里费岛，西班牙](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![克鲁斯港，特内里费岛，西班牙](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1080x1920.jpg) |
+
+### 20240218
+
+> 抹香鲸浮出水面，多米尼克 (© Franco Banfi/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> 嗨，海中的巨人们！世界鲸鱼日与加勒比海多米尼克岛沿岸的抹香鲸一起再次浮出水面。这个节日于1980年在毛伊岛设立，最初是为了庆祝夏威夷水域的座头鲸，现在已经演变成一个倡导保护所有鲸鱼物种的全球性活动。
+> 
+> 地球上的92种鲸鱼分为齿鲸类和须鲸类。须鲸用鬃毛状的口器过滤水中的磷虾，而图中的抹香鲸和其他76种齿鲸一样，用锥形的牙齿攻击猎物。与须鲸不同，抹香鲸利用回声定位来捕食和导航，这是一种利用声音探测周围事物的方法。抹香鲸还拥有地球上所有动物中最大的大脑！鲸鱼的脑部与身体质量之比意味着它们的高智商空穴来风。
+> 
+> 
+
+</details>
+
+| ![世界鲸鱼日](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界鲸鱼日](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1080x1920.jpg) |
+
+### 20240217
+
+> 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 普拉格斯湖坐落在雄伟的多洛米蒂山脉中，是阿尔卑斯山的一颗明珠，也被称为布莱耶斯湖。湖水清澈见底，倒映着多洛米蒂山壮丽伟岸的白云岩，四周环绕着郁郁葱葱的森林。湖边有一条风景优美的小径，在气候温和的时节吸引着众多游客前来远足和散步。夏季，这里是乘船休闲的好去处；冬季，湖光山色成了一幅浓郁的瑰画散发着魅力。普拉格斯湖把自然美景、历史与文化完美融合，矗立一旁的圣维特小教堂见证了它的过去。这个“拥有世上最美的高山景观”的迷人地方将为你带来难忘的体验。
 > 
 > 
 > 
@@ -15,56 +53,56 @@
 
 </details>
 
-| ![Black History Month](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![多洛米蒂山的布莱耶斯湖，意大利](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山的布莱耶斯湖，意大利](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_1080x1920.jpg) |
 
 ### 20240216
 
-> Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)
+> 一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国 (© outtakes/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> For the next four days, birdwatchers all over the world will be taking part in the Great Backyard Bird Count. Bird lovers will identify the feathered friends they see or hear in their area and report their findings. The data helps scientists protect birds by providing information about how populations and habitats change over time.
+> 在接下来的四天里，世界各地的观鸟者将参加一年一度的特别活动：大后院鸟类计数。在计数期间，鸟类爱好者会对他们看到的鸟类进行计数，并输入清单报告其发现。这些数据通过提供有关鸟类数量和栖息地如何随时间变化的信息，帮助科学家了解和保护鸟类。
 > 
-> In today's image is a pyrrhuloxia—or desert cardinal—a songbird that lives in the deserts of northern Mexico and the American Southwest. Locals might be lucky enough to see one of these red and gray birds; they often visit backyards in search of seeds, or to eat the fruit from shrubs and cacti.
+> 今天图片中的“主角”，是一只灰额主红雀，也被称为沙漠雀，是一种生活在墨西哥北部和美国西南部沙漠中的鸣禽。这些地区的大后院鸟类统计参与者可能会有幸看到这种红灰相间的鸟类。灰额主红雀经常去后院寻找种子，喜食灌木和仙人掌的果实。
 > 
 > 
 
 </details>
 
-| ![Great Backyard Bird Count](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Backyard Bird Count](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![大后院鸟类计数](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大后院鸟类计数](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_1080x1920.jpg) |
 
 ### 20240215
 
-> Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)
+> 河马妈妈和小河马，南卢安瓜国家公园，赞比亚 (© Nature Picture Library/Alamy Stock Photo)
 
 <details>
 <summary>Description</summary>
 
-> All eyes are on hippos today! The world's third-largest land mammals after elephants and white rhinos, hippopotamuses are found in rivers and lakes throughout sub-Saharan Africa. Despite their size—they can weigh up to 4 tons—they are vulnerable to various threats, including habitat loss.
+> 今天，所有的目光都聚焦在河马身上！河马是仅次于大象和白犀牛的第三大陆栖哺乳动物，值得我们关注，尤其是在世界河马日这一天。这些半水生动物原产于撒哈拉以南的非洲地区，已被国际自然保护联盟列为易危物种。
 > 
-> The peeping calf in today's image is still under the watchful eye of its mother and will continue to be so until nursing ends at about 8 months. These chubby mammals might seem cute, but their strong jaws, large teeth, and aggressive behavior make them one of the world's most dangerous wild animals. So, admire them from a safe distance—despite their short legs, they are also fast runners!
+> 这张照片中偷窥的河马宝宝仍然在妈妈的“监视”下，河马妈妈的贴身保护将持续到大约八个月的哺乳期结束。这些胖乎乎的哺乳动物体重达3300磅，看起来很可爱，但强壮的下颚、硕大的牙齿和攻击性的行为使它们成为世界上最危险的野生动物之一。因此，请在安全距离外欣赏它们——尽管它们的腿很短，但它们也跑得很快！
 > 
 > 
 
 </details>
 
-| ![World Hippo Day](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Hippo Day](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![世界河马日](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界河马日](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_1080x1920.jpg) |
 
 ### 20240214
 
-> Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)
+> 丹顶鹤向伴侣鞠躬，北海道，日本 (© Steve Bloom Images/Alamy Stock Photo)
 
 <details>
 <summary>Description</summary>
 
-> Love is in the air as Valentine's Day arrives! These red-crowned cranes, seen in the reed marshes and frozen lakes of Hokkaido Island, Japan, know how to turn on the charm. The graceful birds call in unison and bow to each other as part of their captivating mating dance. Once a mate is chosen, the pair develop a lifelong bond, a trait that has helped make them a symbol of longevity, fidelity, and good fortune in Japanese culture. These gentle creatures were also the inspiration for the traditional origami crane. According to legend, folding a thousand cranes can grant wishes.
+> 情人节到来之际，空气中弥漫着爱的气息！这个节日通常与各种浪漫象征联系在一起，比如丘比特，或者威廉·莎士比亚笔下著名的恋人罗密欧和朱丽叶。爱情的象征也可以在大自然中找到，比如正在日本北海道的芦苇沼泽和冰冻湖泊中嬉戏的丹顶鹤。这些优雅的鸟儿跳着迷人的求偶舞，雄鹤带头翩翩起舞，随后伴侣加入它的舞步。丹顶鹤象征着好运、长寿和忠诚，许多国家都有折千纸鹤的传统，传说折一千只纸鹤可以实现愿望。
 > 
 > 
 > 
@@ -72,70 +110,28 @@
 
 </details>
 
-| ![Valentine's Day](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Valentine's Day](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![情人节](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![情人节](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_1080x1920.jpg) |
 
 ### 20240213
 
-> Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)
+> 马里尼的狂欢节彩珠，新奥尔良，美国 (© Erik Pronske Photography/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Get ready to revel—Mardi Gras is here! Also called Fat Tuesday or Shrove Tuesday, the holiday was originally celebrated to live life to the fullest before fasting and giving up other indulgences for Lent. For some, it's just an excuse to party.
+> 准备好狂欢吧，因为马蒂·格拉斯狂欢节来了！这个节日也被称为“肥美星期二”或“忏悔星期二”，尽管现在许多庆祝者只是乐于把这个节日作为聚会的借口，但它最初是一个为了在斋戒之前充分享受生活的节日。世界各地的城市和国家都会举行“肥美星期二”庆祝活动，尤其是那些受到法国影响的城市和国家，法国移民会把这一习俗带到当地去。在这些地方中，新奥尔良市因其长达四至八周的大规模庆祝活动而与狂欢节结下了不解之缘。新奥尔良市每年都会举行多次狂欢节游行，庆祝活动从1月6日的三王节正式开始。当地的社交俱乐部“克鲁”会举办游行活动，并指定了时间表和路线。狂欢者们在沿途聚集，希望能抓住花车上的人扔的硬币、杯子和珠子，就像我们在图片中看到的那样。这一传统始于19世纪80年代，你准备好加入游行的队伍了吗?
 > 
-> Fat Tuesday celebrations take place around the world, particularly in areas with strong French influences. New Orleans is particularly linked with the festival and hosts a massive celebration that can last up to eight weeks, depending on when Easter falls. Mardi Gras parades are held from the official start of Mardi Gras on King's Day, January 6. Social clubs, known as krewes, hold parades on assigned schedules and routes. Crowds gather along the way, hoping to catch coins, cups, and beads thrown by float riders, a tradition that started in the 1880s. Ready to make merry and join the parade?
+> 
 > 
 > 
 
 </details>
 
-| ![Mardi Gras](https://cn.bing.com/th?id=OHR.MarignyBeads_EN-US7464992774_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mardi Gras](https://cn.bing.com/th?id=OHR.MarignyBeads_EN-US7464992774_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![马蒂·格拉斯狂欢节](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![马蒂·格拉斯狂欢节](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_EN-US7464992774_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_EN-US7464992774_1080x1920.jpg) |
-
-### 20240212
-
-> Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> When British naturalist Charles Darwin arrived in the Galápagos Islands in 1835, he was already four years into a round-the-world voyage aboard the survey ship HMS Beagle. His observations on the remote volcanic islands in the eastern Pacific Ocean would help him to develop his famous theory of evolution through natural selection. While studying the creatures here, he concluded that many South American species, mainly reptiles and birds that could cross the vast expanse of water, had migrated to the Galápagos and gradually adapted to their surroundings.
-> 
-> Among animals Darwin encountered were Galápagos giant tortoises, like those featured on our homepage. They grow up to 5 feet in length but have different shaped shells, depending on which island they inhabit. The islands are named after these magnificent creatures, 'galápago' meaning freshwater tortoise in Spanish. Today, on International Darwin Day, let's celebrate these gentle giants, which contributed to one of the great scientific discoveries of the 19th century.
-> 
-> 
-
-</details>
-
-| ![Darwin Day](https://cn.bing.com/th?id=OHR.GiantTortoise_EN-US7034846255_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Darwin Day](https://cn.bing.com/th?id=OHR.GiantTortoise_EN-US7034846255_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GiantTortoise_EN-US7034846255_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GiantTortoise_EN-US7034846255_1080x1920.jpg) |
-
-### 20240211
-
-> Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to Folegandros, one of the Greek Cyclades Islands in the Aegean Sea. This picturesque island has changed hands several times during its long history. It is thought it was once home to the Dorians, one of the four major ethnic groups of classical Greece, but it was also ruled for centuries by the Republic of Venice and later the Ottoman Empire. Greece reclaimed it in 1828.
-> 
-> Chora, the island's modern capital, can be seen on our homepage, perched on the edge of a 656-foot cliff with sweeping views of the ocean and surrounding islands. Built by the Venetians in 1212, the town is now a popular tourist destination, with its charming squares and traditional whitewashed churches.
-> 
-> 
-
-</details>
-
-| ![Folegandros Island, Cyclades, Greece](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Folegandros Island, Cyclades, Greece](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_1080x1920.jpg) |&w=400&h=224&rs=1&c=4) | ![Happy Lunar New Year!](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_1080x1920.jpg) |ungRocks_EN-US6654823877_1080x1920.jpg) |eWinter_EN-US1870468945_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1080x1920.jpg) ||_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1080x1920.jpg) |.BisonSnow_EN-US6764351912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
