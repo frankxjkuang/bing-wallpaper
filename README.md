@@ -2,12 +2,12 @@
 
 ### 20240220
 
-> Kinder Scout，峰区国家公园，英国 (© john finney photography/Getty Images)
+> Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在英国峰区国家公园那片广阔的土地上，坐落着金德·斯科特自然保护区，它是英国历史上一次重要的人民运动的发生地。金德·斯科特海拔约2087英尺，是峰区的最高点，崎岖的荒野和狂风呼啸的高原吸引着世世代代的冒险家和自然爱好者前来探险。1932年，这里发生了历史性的大规模非法闯入事件，数百名民众徒步抗议要求公众可以自由进入这片领域，这一公民抗命运动促使了英国国家公园立法的通过。峰区国家公园的建立使得这里的丘陵和山谷得到保护，成为生态资源，供后人享受，同时也标志着对大众通行权以及自然资源的保护工作取得了重大胜利。
+> Within the vast expanse of England's Peak District National Park lies Kinder Scout Nature Reserve, the site of an historic people's protest. At around 2,087 feet, Kinder Scout is the park's highest point and its rugged moorlands and windswept plateaus have drawn walkers and nature enthusiasts for generations. In 1932, it was the stage for a 'mass trespass,' in which hundreds of people on foot protested for public access to these lands. At the time, many areas of open countryside were closed to the British public. This act of civil disobedience prompted much public sympathy, which eventually led to the establishment of the UK's first national parks. The Peak District National Park was the first, designated in April 1951, ensuring that these hills and valleys would be preserved for future generations to enjoy.
 > 
 > 
 > 
@@ -15,56 +15,56 @@
 
 </details>
 
-| ![金德·斯科特，峰区国家公园，英国](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![金德·斯科特，峰区国家公园，英国](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Kinder Scout, Peak District National Park, England](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kinder Scout, Peak District National Park, England](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |
 
 ### 20240219
 
-> 鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙 (© Marco Bottigelli/Getty Images)
+> Lincoln Memorial, Washington, DC (© Steve Whiston/Fallen Log Photography/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 这些色彩斑斓的街道之间发生了什么？想象下有这样一个地方，大西洋轻抚着色彩斑斓的海岸，泰德峰从3715米的高度俯瞰着它。这个地方就是特内里费岛，西班牙加那利群岛上一个风景秀美四季如春的天堂。但当二月来临时，这座岛屿就会焕然一新：这是独属于圣克鲁斯-德特内里费的狂欢节时间，其视觉效果和节日盛况可与著名的巴西里约热内卢狂欢节相媲美，也被认为是世界上第二热门和知名的狂欢节。
+> The United States of America has had 46 commanders in chief, and today, the third Monday of February, we commemorate their legacies. Initially established to honor George Washington's birthday, Presidents Day has evolved into a celebration of all presidents. Revered among them is Abraham Lincoln, a towering figure in American history, who guided the country through the Civil War and abolished slavery in America. The Lincoln Memorial, seen in today's image, overlooks the Reflecting Pool at the west end of the National Mall in Washington, DC. Designed in a neoclassical style, the memorial is a poignant destination for those seeking to connect with American history during Presidents Day, and beyond.
 > 
-> 在这些日子里，整座城市充满着音乐、舞蹈和服饰，它们是真正的动态艺术品。当地人和游客欢聚一堂，跳起充满兄弟情谊和欢乐的舞蹈，每个剧团、每张面具都在讲述着一个独特的故事。特内里费狂欢节于1980年被视为国际兴趣的旅游节，此外，狂欢节还充满了奇趣，比如传统的“沙丁鱼的葬礼”，它标志着狂欢节庆典的结束和“大斋节”的到来。庆祝活动弘扬了岛屿文化，让每一位参加者都承诺在加那利的阳光下翩翩起舞。
 > 
-> 如果你不喜欢派对，特内里费岛还有更多值得一游的地方。特内里费岛的泰德国家公园被联合国教科文组织列为世界遗产，是世界上游客最多的公园之一，岛上还有丰富的建筑群、文化活动、广阔海滩和峭壁悬崖，当然也有让你流连忘返的天然海滨浴场。
+> 
+> 
 
 </details>
 
-| ![克鲁斯港，特内里费岛，西班牙](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![克鲁斯港，特内里费岛，西班牙](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Presidents Day](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Presidents Day](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_1080x1920.jpg) |
 
 ### 20240218
 
-> 抹香鲸浮出水面，多米尼克 (© Franco Banfi/Minden Pictures)
+> Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 嗨，海中的巨人们！世界鲸鱼日与加勒比海多米尼克岛沿岸的抹香鲸一起再次浮出水面。这个节日于1980年在毛伊岛设立，最初是为了庆祝夏威夷水域的座头鲸，现在已经演变成一个倡导保护所有鲸鱼物种的全球性活动。
+> Ahoy there, giants of the sea! World Whale Day is surfacing, along with these sperm whales off the coast of the Caribbean island of Dominica. Established in 1980 in Maui, the day originally aimed to celebrate the humpback whales in Hawaiian waters but has evolved into a global event for all 92 whale species.
 > 
-> 地球上的92种鲸鱼分为齿鲸类和须鲸类。须鲸用鬃毛状的口器过滤水中的磷虾，而图中的抹香鲸和其他76种齿鲸一样，用锥形的牙齿攻击猎物。与须鲸不同，抹香鲸利用回声定位来捕食和导航，这是一种利用声音探测周围事物的方法。抹香鲸还拥有地球上所有动物中最大的大脑！鲸鱼的脑部与身体质量之比意味着它们的高智商空穴来风。
+> In the world of whales, you're either baleen or toothed. Baleen whales use bristle-like plates in their mouths to filter krill from the water. The sperm whales pictured here are toothed whales, which use cone-shaped teeth to attack their prey. Unlike baleen whales, they hunt and navigate using echolocation, using sound to detect objects around them. Sperm whales also happen to have the largest brain of any animal on Earth.
 > 
 > 
 
 </details>
 
-| ![世界鲸鱼日](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界鲸鱼日](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Whale Day](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Whale Day](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_1080x1920.jpg) |
 
 ### 20240217
 
-> 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)
+> The Alvin Ailey American Dance Theater rehearsing 'Uptown,' 2009, New York (© STAN HONDA/AFP via Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 普拉格斯湖坐落在雄伟的多洛米蒂山脉中，是阿尔卑斯山的一颗明珠，也被称为布莱耶斯湖。湖水清澈见底，倒映着多洛米蒂山壮丽伟岸的白云岩，四周环绕着郁郁葱葱的森林。湖边有一条风景优美的小径，在气候温和的时节吸引着众多游客前来远足和散步。夏季，这里是乘船休闲的好去处；冬季，湖光山色成了一幅浓郁的瑰画散发着魅力。普拉格斯湖把自然美景、历史与文化完美融合，矗立一旁的圣维特小教堂见证了它的过去。这个“拥有世上最美的高山景观”的迷人地方将为你带来难忘的体验。
+> As we celebrate Black History Month, we're taking a moment to highlight an institution in the world of dance—the Alvin Ailey American Dance Theater in New York City. Founded by the visionary choreographer Alvin Ailey in 1958, it fuses elements of modern dance, ballet, jazz, and theater. The company's performances demonstrate the importance of artistic expression in preserving and celebrating Black culture in America. Congress described it as a 'vital American cultural ambassador to the world' in 2008.
 > 
 > 
 > 
@@ -72,56 +72,66 @@
 
 </details>
 
-| ![多洛米蒂山的布莱耶斯湖，意大利](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山的布莱耶斯湖，意大利](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Black History Month](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_1080x1920.jpg) |
 
 ### 20240216
 
-> 一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国 (© outtakes/Getty Images)
+> Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在接下来的四天里，世界各地的观鸟者将参加一年一度的特别活动：大后院鸟类计数。在计数期间，鸟类爱好者会对他们看到的鸟类进行计数，并输入清单报告其发现。这些数据通过提供有关鸟类数量和栖息地如何随时间变化的信息，帮助科学家了解和保护鸟类。
+> For the next four days, birdwatchers all over the world will be taking part in the Great Backyard Bird Count. Bird lovers will identify the feathered friends they see or hear in their area and report their findings. The data helps scientists protect birds by providing information about how populations and habitats change over time.
 > 
-> 今天图片中的“主角”，是一只灰额主红雀，也被称为沙漠雀，是一种生活在墨西哥北部和美国西南部沙漠中的鸣禽。这些地区的大后院鸟类统计参与者可能会有幸看到这种红灰相间的鸟类。灰额主红雀经常去后院寻找种子，喜食灌木和仙人掌的果实。
+> In today's image is a pyrrhuloxia—or desert cardinal—a songbird that lives in the deserts of northern Mexico and the American Southwest. Locals might be lucky enough to see one of these red and gray birds; they often visit backyards in search of seeds, or to eat the fruit from shrubs and cacti.
 > 
 > 
 
 </details>
 
-| ![大后院鸟类计数](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大后院鸟类计数](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Great Backyard Bird Count](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Backyard Bird Count](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_1080x1920.jpg) |
 
 ### 20240215
 
-> 河马妈妈和小河马，南卢安瓜国家公园，赞比亚 (© Nature Picture Library/Alamy Stock Photo)
+> Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 今天，所有的目光都聚焦在河马身上！河马是仅次于大象和白犀牛的第三大陆栖哺乳动物，值得我们关注，尤其是在世界河马日这一天。这些半水生动物原产于撒哈拉以南的非洲地区，已被国际自然保护联盟列为易危物种。
+> All eyes are on hippos today! The world's third-largest land mammals after elephants and white rhinos, hippopotamuses are found in rivers and lakes throughout sub-Saharan Africa. Despite their size—they can weigh up to 4 tons—they are vulnerable to various threats, including habitat loss.
 > 
-> 这张照片中偷窥的河马宝宝仍然在妈妈的“监视”下，河马妈妈的贴身保护将持续到大约八个月的哺乳期结束。这些胖乎乎的哺乳动物体重达3300磅，看起来很可爱，但强壮的下颚、硕大的牙齿和攻击性的行为使它们成为世界上最危险的野生动物之一。因此，请在安全距离外欣赏它们——尽管它们的腿很短，但它们也跑得很快！
+> The peeping calf in today's image is still under the watchful eye of its mother and will continue to be so until nursing ends at about 8 months. These chubby mammals might seem cute, but their strong jaws, large teeth, and aggressive behavior make them one of the world's most dangerous wild animals. So, admire them from a safe distance—despite their short legs, they are also fast runners!
 > 
 > 
 
 </details>
 
-| ![世界河马日](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界河马日](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Hippo Day](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Hippo Day](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_1080x1920.jpg) |
 
 ### 20240214
 
-> 丹顶鹤向伴侣鞠躬，北海道，日本 (© Steve Bloom Images/Alamy Stock Photo)
+> Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 情人节到来之际，空气中弥漫着爱的气息！这个节日通常与各种浪漫象征联系在一起，比如丘比特，或者威廉·莎士比亚笔下著名的恋人罗密欧和朱丽叶。爱情的象征也可以在大自然中找到，比如正在日本北海道的芦苇沼泽和冰冻湖泊中嬉戏的丹顶鹤。这些优雅的鸟儿跳着迷人的求偶舞，雄鹤带头翩翩起舞，随后伴侣加入它的舞步。丹顶鹤象征着好运、长寿和忠诚，许多国家都有折千纸鹤的传统，传说折一千只纸鹤可以实现愿望。
+> Love is in the air as Valentine's Day arrives! These red-crowned cranes, seen in the reed marshes and frozen lakes of Hokkaido Island, Japan, know how to turn on the charm. The graceful birds call in unison and bow to each other as part of their captivating mating dance. Once a mate is chosen, the pair develop a lifelong bond, a trait that has helped make them a symbol of longevity, fidelity, and good fortune in Japanese culture. These gentle creatures were also the inspiration for the traditional origami crane. According to legend, folding a thousand cranes can grant wishes.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Valentine's Day](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Valentine's Day](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_1080x1920.jpg) |来之际，空气中弥漫着爱的气息！这个节日通常与各种浪漫象征联系在一起，比如丘比特，或者威廉·莎士比亚笔下著名的恋人罗密欧和朱丽叶。爱情的象征也可以在大自然中找到，比如正在日本北海道的芦苇沼泽和冰冻湖泊中嬉戏的丹顶鹤。这些优雅的鸟儿跳着迷人的求偶舞，雄鹤带头翩翩起舞，随后伴侣加入它的舞步。丹顶鹤象征着好运、长寿和忠诚，许多国家都有折千纸鹤的传统，传说折一千只纸鹤可以实现愿望。
 > 
 > 
 > 
