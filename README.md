@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240221
+
+> Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Fancy witnessing a fiery waterfall? The seemingly impossible can be found at this time of year on the eastern side of El Capitan, Yosemite National Park's famous rock face. Horsetail Fall is a seasonal waterfall that flows only when there has been plenty of snowfall, and when temperatures have been warm enough to melt it. For a couple of weeks in February, if skies are clear, water is flowing, and the sun shines at just the right angle, the long, slender waterfall takes on a glowing, flame-hued appearance. Hundreds gather in Yosemite Valley to see this mesmerizing natural spectacle. The phenomenon has earned the moniker 'firefall,' an homage to the historic Yosemite Firefall, a manmade event from the top of the park's Glacier Point that took place between 1872 to 1968. Eventually, park rangers decided that dumping embers over a cliff onto the land below wasn't the brightest idea.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_1080x1920.jpg) |
+
 ### 20240220
 
 > Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Hippo Day](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Hippo Day](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_1080x1920.jpg) |
-
-### 20240214
-
-> Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Love is in the air as Valentine's Day arrives! These red-crowned cranes, seen in the reed marshes and frozen lakes of Hokkaido Island, Japan, know how to turn on the charm. The graceful birds call in unison and bow to each other as part of their captivating mating dance. Once a mate is chosen, the pair develop a lifelong bond, a trait that has helped make them a symbol of longevity, fidelity, and good fortune in Japanese culture. These gentle creatures were also the inspiration for the traditional origami crane. According to legend, folding a thousand cranes can grant wishes.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Valentine's Day](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Valentine's Day](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_1080x1920.jpg) |来之际，空气中弥漫着爱的气息！这个节日通常与各种浪漫象征联系在一起，比如丘比特，或者威廉·莎士比亚笔下著名的恋人罗密欧和朱丽叶。爱情的象征也可以在大自然中找到，比如正在日本北海道的芦苇沼泽和冰冻湖泊中嬉戏的丹顶鹤。这些优雅的鸟儿跳着迷人的求偶舞，雄鹤带头翩翩起舞，随后伴侣加入它的舞步。丹顶鹤象征着好运、长寿和忠诚，许多国家都有折千纸鹤的传统，传说折一千只纸鹤可以实现愿望。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_1080x1920.jpg) |�翩起舞，随后伴侣加入它的舞步。丹顶鹤象征着好运、长寿和忠诚，许多国家都有折千纸鹤的传统，传说折一千只纸鹤可以实现愿望。
 > 
 > 
 > 
