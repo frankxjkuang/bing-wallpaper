@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240222
+
+> Bathing boxes at Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The 'bathing boxes' on Brighton Beach, Melbourne, beam with a rainbow of colors against golden sands, the ocean, and the city skyline. A popular tourist attraction, they first popped up on Brighton's coastline in 1860, providing somewhere for swimmers to change into their bathing suits. They have been moved, repaired, and added to since then, and while they each have their own distinctive coat of paint, the bathing boxes are built in the same traditional style. Despite facing the threat of removal over the years, these vibrant coast guards remain, adding a splash of color to the beach, and providing their owners with somewhere to sit and enjoy the view.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Bathing boxes at Brighton Beach, Australia](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bathing boxes at Brighton Beach, Australia](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_1080x1920.jpg) |
+
 ### 20240221
 
 > Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Great Backyard Bird Count](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Backyard Bird Count](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_1080x1920.jpg) |
-
-### 20240215
-
-> Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> All eyes are on hippos today! The world's third-largest land mammals after elephants and white rhinos, hippopotamuses are found in rivers and lakes throughout sub-Saharan Africa. Despite their size—they can weigh up to 4 tons—they are vulnerable to various threats, including habitat loss.
-> 
-> The peeping calf in today's image is still under the watchful eye of its mother and will continue to be so until nursing ends at about 8 months. These chubby mammals might seem cute, but their strong jaws, large teeth, and aggressive behavior make them one of the world's most dangerous wild animals. So, admire them from a safe distance—despite their short legs, they are also fast runners!
-> 
-> 
-
-</details>
-
-| ![World Hippo Day](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Hippo Day](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_1080x1920.jpg) |�翩起舞，随后伴侣加入它的舞步。丹顶鹤象征着好运、长寿和忠诚，许多国家都有折千纸鹤的传统，传说折一千只纸鹤可以实现愿望。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_1080x1920.jpg) |后伴侣加入它的舞步。丹顶鹤象征着好运、长寿和忠诚，许多国家都有折千纸鹤的传统，传说折一千只纸鹤可以实现愿望。
 > 
 > 
 > 
