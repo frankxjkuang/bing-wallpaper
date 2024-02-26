@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240224
+
+> Almond trees in full bloom, California (© Jeffrey Lewis/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> In the sun-kissed orchards of the Golden State, almonds reign supreme, enticing the taste buds and adorning the natural surroundings. California grows about 80% of the world's almonds and 100% of those produced commercially in the United States. Almonds have heart-healthy monounsaturated fats and are nutritional powerhouses, packed with fiber, protein, and an array of vitamins and minerals. During February and March, in California's Central Valley, these seeds—not nuts—emerge from the delicate blossoms of the almond tree and mature within a protective, fuzzy hull. The trees, which belong to the rose family, burst into a spectacle of beauty during full bloom, with fragrant flowers painting the orchards in hues of white and pink.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Almond trees in full bloom, California](https://cn.bing.com/th?id=OHR.AlmondBloom_EN-US2721273642_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Almond trees in full bloom, California](https://cn.bing.com/th?id=OHR.AlmondBloom_EN-US2721273642_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlmondBloom_EN-US2721273642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlmondBloom_EN-US2721273642_1080x1920.jpg) |
+
 ### 20240223
 
 > Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)
@@ -112,27 +131,7 @@
 
 | ![World Whale Day](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Whale Day](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_1080x1920.jpg) |
-
-### 20240217
-
-> The Alvin Ailey American Dance Theater rehearsing 'Uptown,' 2009, New York (© STAN HONDA/AFP via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As we celebrate Black History Month, we're taking a moment to highlight an institution in the world of dance—the Alvin Ailey American Dance Theater in New York City. Founded by the visionary choreographer Alvin Ailey in 1958, it fuses elements of modern dance, ballet, jazz, and theater. The company's performances demonstrate the importance of artistic expression in preserving and celebrating Black culture in America. Congress described it as a 'vital American cultural ambassador to the world' in 2008.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Black History Month](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_1080x1920.jpg) |人节](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![情人节](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_1080x1920.jpg) |----:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_1080x1920.jpg) |---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
