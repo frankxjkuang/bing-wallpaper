@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240225
+
+> 'United We Stand' sculpture by Charles McGee, Charles H. Wright Museum of African American History, Detroit, Michigan (© Jim West/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Though we are nearing the end of Black History Month, the legacy of Black artists stands tall throughout the year. Today we are highlighting the works of Charles McGee, a painter, sculptor, and educator from Detroit, whose works are found all over the Motor City. The 20-foot-tall sculpture seen here, 'United We Stand,' represents themes of togetherness, unity, and balance and sits outside the Charles H. Wright Museum of African American History. McGee's pieces, which he produced up until his death in 2021, often feature abstract collections of lines, patterns, and allusions to nature, either in striking black and white or vibrant colors. He is one of many Black artists who have left an indelible mark on the great canvas of American art, along with others such as Joshua Johnson, Edmonia Lewis, Jacob Lawrence, Jean-Michel Basquiat, Kara Walker, and Kehinde Wiley.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Black History Month](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_1080x1920.jpg) |
+
 ### 20240224
 
 > Almond trees in full bloom, California (© Jeffrey Lewis/Tandem Stills + Motion)
@@ -112,27 +131,7 @@
 
 | ![Presidents Day](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Presidents Day](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_1080x1920.jpg) |
-
-### 20240218
-
-> Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Ahoy there, giants of the sea! World Whale Day is surfacing, along with these sperm whales off the coast of the Caribbean island of Dominica. Established in 1980 in Maui, the day originally aimed to celebrate the humpback whales in Hawaiian waters but has evolved into a global event for all 92 whale species.
-> 
-> In the world of whales, you're either baleen or toothed. Baleen whales use bristle-like plates in their mouths to filter krill from the water. The sperm whales pictured here are toothed whales, which use cone-shaped teeth to attack their prey. Unlike baleen whales, they hunt and navigate using echolocation, using sound to detect objects around them. Sperm whales also happen to have the largest brain of any animal on Earth.
-> 
-> 
-
-</details>
-
-| ![World Whale Day](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Whale Day](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_1080x1920.jpg) |----:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_1080x1920.jpg) |---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_1080x1920.jpg) |--:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
