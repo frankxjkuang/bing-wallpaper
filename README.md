@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240226
+
+> Grand Canyon National Park, Arizona (© Jeremy Janus/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Happy birthday to Grand Canyon National Park! It's been 105 years since this Arizona landmark was designated a national park by President Woodrow Wilson in 1919. The origins of this exceptional landscape, carved by the Colorado River, wind, and landslides, date back up to 6 million years. Alongside its steep valleys and colorful rock formations, the canyon holds the stories of Native Americans, European, and American pioneers—the oldest human artifacts found here date back nearly 12,000 years. In addition to tourist adventures such as cruising on the Colorado River, joining the Trail of Time walking tour, or climbing up to the Desert View Watchtower, the park is also a UNESCO World Heritage Site and a registered International Dark Sky Park for crystal-clear stargazing.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Grand Canyon National Park turns 105](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grand Canyon National Park turns 105](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_1080x1920.jpg) |
+
 ### 20240225
 
 > 'United We Stand' sculpture by Charles McGee, Charles H. Wright Museum of African American History, Detroit, Michigan (© Jim West/Alamy)
@@ -112,27 +131,7 @@
 
 | ![Kinder Scout, Peak District National Park, England](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kinder Scout, Peak District National Park, England](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |
-
-### 20240219
-
-> Lincoln Memorial, Washington, DC (© Steve Whiston/Fallen Log Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The United States of America has had 46 commanders in chief, and today, the third Monday of February, we commemorate their legacies. Initially established to honor George Washington's birthday, Presidents Day has evolved into a celebration of all presidents. Revered among them is Abraham Lincoln, a towering figure in American history, who guided the country through the Civil War and abolished slavery in America. The Lincoln Memorial, seen in today's image, overlooks the Reflecting Pool at the west end of the National Mall in Washington, DC. Designed in a neoclassical style, the memorial is a poignant destination for those seeking to connect with American history during Presidents Day, and beyond.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Presidents Day](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Presidents Day](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_1080x1920.jpg) |--:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
