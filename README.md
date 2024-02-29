@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240227
+
+> Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Bear with us as we head north for International Polar Bear Day, highlighting the challenges faced by the world's largest bear species. It was set up by Polar Bears International, an organization dedicated to protecting these mammals and their habitat. The date was chosen to coincide with the time when cubs are in their dens being protected by their mothers, as this is the most vulnerable time in a polar bear's life.
+> 
+> These apex predators live and hunt on Arctic sea ice. Their prey largely consists of seals, but they have been known to eat beluga whales, reindeer, and other Arctic animals. The polar bears in today's image are in Kaktovik, a small Inupiat whaling community in Alaska. The bears visit the village during the fall, attracted by carcasses left behind by whale hunters.
+> 
+> 
+
+</details>
+
+| ![International Polar Bear Day](https://cn.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Polar Bear Day](https://cn.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_1080x1920.jpg) |
+
 ### 20240226
 
 > Grand Canyon National Park, Arizona (© Jeremy Janus/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_1080x1920.jpg) |
-
-### 20240220
-
-> Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Within the vast expanse of England's Peak District National Park lies Kinder Scout Nature Reserve, the site of an historic people's protest. At around 2,087 feet, Kinder Scout is the park's highest point and its rugged moorlands and windswept plateaus have drawn walkers and nature enthusiasts for generations. In 1932, it was the stage for a 'mass trespass,' in which hundreds of people on foot protested for public access to these lands. At the time, many areas of open countryside were closed to the British public. This act of civil disobedience prompted much public sympathy, which eventually led to the establishment of the UK's first national parks. The Peak District National Park was the first, designated in April 1951, ensuring that these hills and valleys would be preserved for future generations to enjoy.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Kinder Scout, Peak District National Park, England](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kinder Scout, Peak District National Park, England](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_1080x1920.jpg) |pg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
