@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240228
+
+> Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Bamburgh Castle perches on a crag of volcanic rock, overlooking sand dunes and the coast of Northumberland, England. The fortress, once a strategic Anglo-Saxon stronghold, evolved over centuries into the imposing structure seen today. The site was the seat of the ancient Northumbrian kingdom—an early medieval Anglo-Saxon kingdom covering present-day northern England and southeast Scotland. The original castle was destroyed by invading Vikings in 993 and a new castle was built here by the Normans. Today's castle is the result of various restorations in the 18th, 19th, and early 20th centuries. After surviving its share of attacks, Bamburgh Castle has made its way to the limelight due to its impressive silhouette against the North Sea, featuring in productions like 'Macbeth,' 'Indiana Jones and the Dial of Destiny,' and 'Ivanhoe.'
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Bamburgh Castle, Northumberland, England](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bamburgh Castle, Northumberland, England](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_1080x1920.jpg) |
+
 ### 20240227
 
 > Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Bathing boxes at Brighton Beach, Australia](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bathing boxes at Brighton Beach, Australia](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_1080x1920.jpg) |
-
-### 20240221
-
-> Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Fancy witnessing a fiery waterfall? The seemingly impossible can be found at this time of year on the eastern side of El Capitan, Yosemite National Park's famous rock face. Horsetail Fall is a seasonal waterfall that flows only when there has been plenty of snowfall, and when temperatures have been warm enough to melt it. For a couple of weeks in February, if skies are clear, water is flowing, and the sun shines at just the right angle, the long, slender waterfall takes on a glowing, flame-hued appearance. Hundreds gather in Yosemite Valley to see this mesmerizing natural spectacle. The phenomenon has earned the moniker 'firefall,' an homage to the historic Yosemite Firefall, a manmade event from the top of the park's Glacier Point that took place between 1872 to 1968. Eventually, park rangers decided that dumping embers over a cliff onto the land below wasn't the brightest idea.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_1080x1920.jpg) |pg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_1080x1920.jpg) |.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_1080x1920.jpg) |pg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
