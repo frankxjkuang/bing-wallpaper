@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240229
+
+> Eurasian red squirrel (© Westend61/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Are you a 'leapling'? No, not like this Eurasian red squirrel; rather, that's the term for anyone born on leap day. A leap year is a calendar oddity that exists because Earth's orbit and our usual year count are slightly out of sync. Earth takes 365.25 days to revolve around the sun. To compensate for those extra 5 hours, February gets an extra day—leap day—every four years. The concept, dating back to the ancient Romans, was refined in the Gregorian calendar, introduced in 1582 by Pope Gregory XIII. While the purpose of the day is to keep our year aligned with the solar calendar, it can also serve as an extra day to prepare for spring! Cultures worldwide mark leap days and years with unique customs. In Ireland and Britain, women propose to men, in Greece, marrying during a leap year is said to bring misfortune, and in France, a satirical newspaper is published.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Leap day](https://cn.bing.com/th?id=OHR.LeapingSquirrel_EN-US3514581405_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Leap day](https://cn.bing.com/th?id=OHR.LeapingSquirrel_EN-US3514581405_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeapingSquirrel_EN-US3514581405_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeapingSquirrel_EN-US3514581405_1080x1920.jpg) |
+
 ### 20240228
 
 > Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Haghartsin Monastery, Armenia](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Haghartsin Monastery, Armenia](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |
-
-### 20240222
-
-> Bathing boxes at Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The 'bathing boxes' on Brighton Beach, Melbourne, beam with a rainbow of colors against golden sands, the ocean, and the city skyline. A popular tourist attraction, they first popped up on Brighton's coastline in 1860, providing somewhere for swimmers to change into their bathing suits. They have been moved, repaired, and added to since then, and while they each have their own distinctive coat of paint, the bathing boxes are built in the same traditional style. Despite facing the threat of removal over the years, these vibrant coast guards remain, adding a splash of color to the beach, and providing their owners with somewhere to sit and enjoy the view.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Bathing boxes at Brighton Beach, Australia](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bathing boxes at Brighton Beach, Australia](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrightonBoxes_EN-US7951266383_1080x1920.jpg) |.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_1080x1920.jpg) |pg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
