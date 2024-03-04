@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240302
+
+> Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> When Italy comes to mind, iconic cities like Milan, Rome, and Venice often steal the spotlight. However, on the island of Sicily lies a less famous gem—Modica. It's a city that rose from the rubble of an earthquake in 1693 to become an architectural wonderland of Baroque-style buildings. With fewer than 60,000 inhabitants, this UNESCO World Heritage Site boasts cobbled lanes, echoing with powerful footprints—from prehistoric tribes to the ancient Greeks and Romans to the medieval Arabs and Normans. Landmarks like the San Giorgio Cathedral and San Pietro Church awe visitors with their grandeur, and Modica's famous chocolate, crafted with Aztec-inspired techniques, tempts the palates of food enthusiasts. So, the next time Italy beckons, how about taking the road less traveled to Modica?
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Modica, Sicily, Italy](https://cn.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Modica, Sicily, Italy](https://cn.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_1080x1920.jpg) |
+
 ### 20240301
 
 > Women's suffrage parade on Fifth Avenue, Manhattan, New York City, October 23, 1915 (© Bettmann/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Black History Month](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_1080x1920.jpg) |
-
-### 20240224
-
-> Almond trees in full bloom, California (© Jeffrey Lewis/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> In the sun-kissed orchards of the Golden State, almonds reign supreme, enticing the taste buds and adorning the natural surroundings. California grows about 80% of the world's almonds and 100% of those produced commercially in the United States. Almonds have heart-healthy monounsaturated fats and are nutritional powerhouses, packed with fiber, protein, and an array of vitamins and minerals. During February and March, in California's Central Valley, these seeds—not nuts—emerge from the delicate blossoms of the almond tree and mature within a protective, fuzzy hull. The trees, which belong to the rose family, burst into a spectacle of beauty during full bloom, with fragrant flowers painting the orchards in hues of white and pink.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Almond trees in full bloom, California](https://cn.bing.com/th?id=OHR.AlmondBloom_EN-US2721273642_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Almond trees in full bloom, California](https://cn.bing.com/th?id=OHR.AlmondBloom_EN-US2721273642_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlmondBloom_EN-US2721273642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlmondBloom_EN-US2721273642_1080x1920.jpg) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
