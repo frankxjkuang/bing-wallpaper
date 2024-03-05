@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240303
+
+> Leopard in a tree, Kruger National Park, South Africa (© Tonino De Marco/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> It's time to step into the wild! This year's World Wildlife Day focuses on how advances in digital technology can help to preserve wildlife, for example through research, communication, and DNA analysis. Digital platforms can also be a way to get younger people involved in protecting our planet's animals and plants.
+> 
+> Today's image shows a leopard perched in the branches of Kruger National Park, South Africa. Leopards are one of the five living species of the genus Panthera, which also includes lions, tigers, jaguars, and snow leopards. Leopards are known for their solitary lifestyle, especially males, who roam their territories almost entirely in seclusion. They are considered vulnerable due to habitat loss, and their numbers are in decline globally. Through conservation efforts and events like World Wildlife Day, hopefully we can turn these trends around.
+> 
+> 
+
+</details>
+
+| ![World Wildlife Day](https://cn.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Wildlife Day](https://cn.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_1080x1920.jpg) |
+
 ### 20240302
 
 > Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Grand Canyon National Park turns 105](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grand Canyon National Park turns 105](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_1080x1920.jpg) |
-
-### 20240225
-
-> 'United We Stand' sculpture by Charles McGee, Charles H. Wright Museum of African American History, Detroit, Michigan (© Jim West/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Though we are nearing the end of Black History Month, the legacy of Black artists stands tall throughout the year. Today we are highlighting the works of Charles McGee, a painter, sculptor, and educator from Detroit, whose works are found all over the Motor City. The 20-foot-tall sculpture seen here, 'United We Stand,' represents themes of togetherness, unity, and balance and sits outside the Charles H. Wright Museum of African American History. McGee's pieces, which he produced up until his death in 2021, often feature abstract collections of lines, patterns, and allusions to nature, either in striking black and white or vibrant colors. He is one of many Black artists who have left an indelible mark on the great canvas of American art, along with others such as Joshua Johnson, Edmonia Lewis, Jacob Lawrence, Jean-Michel Basquiat, Kara Walker, and Kehinde Wiley.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Black History Month](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_1080x1920.jpg) |g.com/th?id=OHR.WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
