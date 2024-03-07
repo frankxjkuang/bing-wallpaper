@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240305
+
+> Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> In vibrant Thailand, the city of Bangkok pulses with life! Covering an area of more than 600 square miles, it is estimated that over 10 million people live there, roughly 15% of the country's population. The capital city is home to a bustling urban infrastructure, featuring a complex network of traffic circles and highways. In 1864, the completion of Charoen Krung Road marked a turn in the city's transit by serving as a pioneering construction project utilizing Western techniques. The introduction of a complex elevated expressway network in 1972 and the Don Mueang Tollway has made it easier to drive in and out of the city. Over the years, the road network has evolved to meet the demands of this sprawling urban expanse.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Bangkok, Thailand](https://cn.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bangkok, Thailand](https://cn.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_1080x1920.jpg) |
+
 ### 20240304
 
 > Arenal Volcano seen from Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Bamburgh Castle, Northumberland, England](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bamburgh Castle, Northumberland, England](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_1080x1920.jpg) |
-
-### 20240227
-
-> Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Bear with us as we head north for International Polar Bear Day, highlighting the challenges faced by the world's largest bear species. It was set up by Polar Bears International, an organization dedicated to protecting these mammals and their habitat. The date was chosen to coincide with the time when cubs are in their dens being protected by their mothers, as this is the most vulnerable time in a polar bear's life.
-> 
-> These apex predators live and hunt on Arctic sea ice. Their prey largely consists of seals, but they have been known to eat beluga whales, reindeer, and other Arctic animals. The polar bears in today's image are in Kaktovik, a small Inupiat whaling community in Alaska. The bears visit the village during the fall, attracted by carcasses left behind by whale hunters.
-> 
-> 
-
-</details>
-
-| ![International Polar Bear Day](https://cn.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Polar Bear Day](https://cn.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_1080x1920.jpg) |HR.WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_1080x1920.jpg) |HR.WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
