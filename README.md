@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240308
+
+> Tate Modern lit up for International Women's Day, London, England (© Stephen Chung/Alamy Stock Photo)
+
+<details>
+<summary>Description</summary>
+
+> Happy International Women's Day! We celebrate IWD with London's famous Tate Modern art gallery, lit up in purple. Why purple? The color associated with IWD symbolizes dignity, justice, and loyalty to the cause. This event celebrates women's achievements in politics, culture, and society. Every year on March 8, educational and cultural activities, demonstrations, campaigns, and discussions highlight the importance of gender equality and women's rights.
+> 
+> The first Women's Day was initiated by Theresa Malkiel, a labor activist, and took place in New York City on February 28, 1909, organized by the Socialist Party of America. The first international day was celebrated in 1911, although the date was not fixed as March 8 until 1917. It would be another 60 years before it was officially recognized by the UN, in 1977.
+> 
+> 
+
+</details>
+
+| ![International Women's Day](https://cn.bing.com/th?id=OHR.TateLightUp_EN-US0656439011_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Women's Day](https://cn.bing.com/th?id=OHR.TateLightUp_EN-US0656439011_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TateLightUp_EN-US0656439011_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TateLightUp_EN-US0656439011_1080x1920.jpg) |
+
 ### 20240307
 
 > Roques de Benet, Els Ports Natural Park, Catalonia, Spain (© Sergi Boixader/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Modica, Sicily, Italy](https://cn.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Modica, Sicily, Italy](https://cn.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_1080x1920.jpg) |
-
-### 20240301
-
-> Women's suffrage parade on Fifth Avenue, Manhattan, New York City, October 23, 1915 (© Bettmann/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Every March, we celebrate Women's History Month, a tribute to the generations of women who have shaped our past and are inspiring our present. Today, let's take a moment to highlight a crucial step that was taken for a more representative democracy—the women's suffrage movement. This image shows a sea of determined faces in a 1915 Manhattan suffrage parade. Pioneers like Susan B. Anthony and Lucy Stone spearheaded this effort, which culminated in the historic 19th Amendment in 1920, which granted women the right to vote. Over a hundred years later, women now hold 28% of seats in Congress, a dramatic leap forward from the past and a reminder of progress still to be made.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffrageParade_EN-US3648247280_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffrageParade_EN-US3648247280_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffrageParade_EN-US3648247280_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffrageParade_EN-US3648247280_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_1080x1920.jpg) |HR.WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_1080x1920.jpg) |.BamburghCastleUK_EN-US3358821704_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_1080x1920.jpg) |HR.WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
