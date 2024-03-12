@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240310
+
+> San Jacinto Building's mechanical clock, Beaumont, Texas (© Richard T. Nowitz/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Time is of the essence today: The second Sunday of March marks the start of daylight saving time. At 2 AM the clocks sprang forward one hour, meaning there will be an extra hour of daylight this evening. While Benjamin Franklin is often credited with inventing daylight saving, the first real proposal for changing the clocks came in 1895 from New Zealand entomologist George Hudson, who valued having more daylight so he could collect insects after work.
+> 
+> Daylight saving is now observed in about 70 countries around the world, with many places adjusting their clocks in March. The clock in today's image is in the San Jacinto Building in Beaumont, Texas, which was built in the 1920s. Each clock dial is 17 feet in diameter, so it must be quite a job to put the time forward for daylight saving!
+> 
+> 
+
+</details>
+
+| ![Daylight saving time](https://cn.bing.com/th?id=OHR.BeaumontClock_EN-US1267001824_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Daylight saving time](https://cn.bing.com/th?id=OHR.BeaumontClock_EN-US1267001824_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeaumontClock_EN-US1267001824_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaumontClock_EN-US1267001824_1080x1920.jpg) |
+
 ### 20240309
 
 > Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Arenal Volcano, Costa Rica](https://cn.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arenal Volcano, Costa Rica](https://cn.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_1080x1920.jpg) |
-
-### 20240303
-
-> Leopard in a tree, Kruger National Park, South Africa (© Tonino De Marco/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> It's time to step into the wild! This year's World Wildlife Day focuses on how advances in digital technology can help to preserve wildlife, for example through research, communication, and DNA analysis. Digital platforms can also be a way to get younger people involved in protecting our planet's animals and plants.
-> 
-> Today's image shows a leopard perched in the branches of Kruger National Park, South Africa. Leopards are one of the five living species of the genus Panthera, which also includes lions, tigers, jaguars, and snow leopards. Leopards are known for their solitary lifestyle, especially males, who roam their territories almost entirely in seclusion. They are considered vulnerable due to habitat loss, and their numbers are in decline globally. Through conservation efforts and events like World Wildlife Day, hopefully we can turn these trends around.
-> 
-> 
-
-</details>
-
-| ![World Wildlife Day](https://cn.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Wildlife Day](https://cn.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_1080x1920.jpg) |ing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_1080x1920.jpg) |HR.WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_1080x1920.jpg) |bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_1080x1920.jpg) |ing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_1080x1920.jpg) |HR.WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
