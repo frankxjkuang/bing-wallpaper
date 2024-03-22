@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240320
+
+> The Jefferson Memorial during the Cherry Blossom Festival, Washington, DC (© f11photo/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Want to experience spring in all its glory? If you head to the National Cherry Blossom Festival in Washington, DC, you're in for a blooming good time! The festival commemorates the 3,000 cherry trees given to the city by the mayor of Tokyo in 1912. Twelve varieties were originally gifted but these days most of the trees are either Yoshino or Kwanzan cherries. Those circling the Tidal Basin, the location of the Jefferson Memorial featured in today's image, are Yoshino trees. The event has evolved to become a four-week celebration that attracts over 1.5 million people every year. The highlights of the festival include a lively parade filled with large, colorful helium balloons, stunning floats, and marching bands from all over the country.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![National Cherry Blossom Festival](https://cn.bing.com/th?id=OHR.CherryBlossomsDC_EN-US3285783737_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Cherry Blossom Festival](https://cn.bing.com/th?id=OHR.CherryBlossomsDC_EN-US3285783737_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CherryBlossomsDC_EN-US3285783737_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CherryBlossomsDC_EN-US3285783737_1080x1920.jpg) |
+
 ### 20240319
 
 > Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)
@@ -112,27 +131,7 @@
 
 | ![Happy Pi Day!](https://cn.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Pi Day!](https://cn.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_1080x1920.jpg) |
-
-### 20240313
-
-> Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> What an unearthly view! This aerial photograph shows a flamboyance of lesser flamingos against the backdrop of Lake Magadi in Kenya. The lesser flamingo is one of six species of flamingo, a bird known for its vibrant pink plumage and distinctive feeding behavior. They use their specialized beaks to filter algae near the water's surface and are often found in African soda lakes like Lake Magadi, which are brimming with cyanobacteria and algae for them to eat. The spectacle of thousands of these avian wonders congregating at the lake reveals the importance of these unique ecosystems.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Lake Magadi, Kenya](https://cn.bing.com/th?id=OHR.MagadiFlamingos_EN-US1720896379_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Magadi, Kenya](https://cn.bing.com/th?id=OHR.MagadiFlamingos_EN-US1720896379_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MagadiFlamingos_EN-US1720896379_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MagadiFlamingos_EN-US1720896379_1080x1920.jpg) |
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BryceSnow_EN-US1471442313_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BryceSnow_EN-US1471442313_1080x1920.jpg) |.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.BistiBlue_EN-US1090853434_1080x1920.jpg) |WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_1080x1920.jpg) |0.jpg) |.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.BistiBlue_EN-US1090853434_1080x1920.jpg) |WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
