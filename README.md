@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240322
+
+> Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> It's World Water Day, a United Nations event that ripples across the globe, reminding us of the importance of this essential resource. Water quenches thirst and irrigates harvests, and its absence can derail prosperity and stability. The World Economic Forum lists the water crisis among the top global risks, with 2.2 billion people still lacking access to clean water. From educational forums to local cleanups, each action, big or small, contributes to the wave of change needed to address the crisis. This year's theme, 'Water for Peace,' invites us to reflect on water's power to foster unity. So, are you ready to dive into a current that flows deeper than New Zealand's Blue Spring at Te Waihou Walkway, pictured on our homepage? This clear spring is renowned for its purity, supplying about 70% of the country's bottled water. For those in regions without easy access to safe water, World Water Day is here to promote greater cooperation to help conserve this crucial resource, for everyone.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![World Water Day](https://cn.bing.com/th?id=OHR.WaikatoWater_EN-US1360247236_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Water Day](https://cn.bing.com/th?id=OHR.WaikatoWater_EN-US1360247236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WaikatoWater_EN-US1360247236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WaikatoWater_EN-US1360247236_1080x1920.jpg) |
+
 ### 20240321
 
 > Bwindi Impenetrable National Forest, Uganda (© Art Wolfe/DanitaDelimont.com)
@@ -112,26 +131,7 @@
 
 | ![National Panda Day](https://cn.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Panda Day](https://cn.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_1080x1920.jpg) |
-
-### 20240315
-
-> Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> The first day of spring may be just days away, but the season's wildflowers at California's largest state park—Anza-Borrego Desert State Park—are already here to say hello! Every spring, this barren desert floor undergoes a dramatic makeover. Flowers like heliotrope, brittlebush, and desert dandelion burst into a riot of bloom, creating a spectacle of color. For those seeking a more adventurous experience, this park has a lot to offer—from the mountains of the Peninsular Ranges and cactus-studded hills to slot canyons, badlands, and natural palm oases. In addition, as a designated International Dark Sky Park, it is an exceptional spot for stargazing. Beyond its natural wonders, the park, spanning over 600,000 acres, is also home to a rich cultural and historical legacy, including ancient pictographs, or rock paintings, from the Native American tribes that once lived here.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Anza-Borrego Desert State Park, California](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anza-Borrego Desert State Park, California](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_1080x1920.jpg) |0.jpg) |.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.BistiBlue_EN-US1090853434_1080x1920.jpg) |WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_1080x1920.jpg) |0.jpg) |.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.BistiBlue_EN-US1090853434_1080x1920.jpg) |WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
