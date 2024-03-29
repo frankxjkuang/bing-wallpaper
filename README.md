@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240327
+
+> Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Today, all the world's a stage. Every year on March 27, the curtains rise to thunderous applause in celebration of World Theater Day—an ode to an art form that has influenced the masses for centuries. The day aims to promote theater and raise awareness of how it has preserved ancient cultures, provided social commentary throughout history, and even helped form our language. Seen in the image today is the Teatro Colón, Buenos Aires, a symbol of Argentina's rich theatrical heritage. Built in 1908, the theater is renowned for its grand architecture and exceptional acoustics, making it one of the world's premier opera houses. Over the years, it has hosted performances by legendary figures such as Enrico Caruso, Richard Strauss, Lily Pons, Marina de Gabaráin, Joss Stone, Branford Marsalis, and many more. On this day dedicated to drama, let's appreciate this art form that continues to narrate stories in the most spectacular way!
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![World Theater Day](https://cn.bing.com/th?id=OHR.TeatroColon_EN-US2518867279_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Theater Day](https://cn.bing.com/th?id=OHR.TeatroColon_EN-US2518867279_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TeatroColon_EN-US2518867279_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TeatroColon_EN-US2518867279_1080x1920.jpg) |
+
 ### 20240326
 
 > Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Day of Forests](https://cn.bing.com/th?id=OHR.BwindiNationalForest_EN-US3376071902_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Forests](https://cn.bing.com/th?id=OHR.BwindiNationalForest_EN-US3376071902_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BwindiNationalForest_EN-US3376071902_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BwindiNationalForest_EN-US3376071902_1080x1920.jpg) |
-
-### 20240320
-
-> The Jefferson Memorial during the Cherry Blossom Festival, Washington, DC (© f11photo/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Want to experience spring in all its glory? If you head to the National Cherry Blossom Festival in Washington, DC, you're in for a blooming good time! The festival commemorates the 3,000 cherry trees given to the city by the mayor of Tokyo in 1912. Twelve varieties were originally gifted but these days most of the trees are either Yoshino or Kwanzan cherries. Those circling the Tidal Basin, the location of the Jefferson Memorial featured in today's image, are Yoshino trees. The event has evolved to become a four-week celebration that attracts over 1.5 million people every year. The highlights of the festival include a lively parade filled with large, colorful helium balloons, stunning floats, and marching bands from all over the country.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![National Cherry Blossom Festival](https://cn.bing.com/th?id=OHR.CherryBlossomsDC_EN-US3285783737_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Cherry Blossom Festival](https://cn.bing.com/th?id=OHR.CherryBlossomsDC_EN-US3285783737_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CherryBlossomsDC_EN-US3285783737_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CherryBlossomsDC_EN-US3285783737_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_1080x1920.jpg) |0.jpg) |.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.BistiBlue_EN-US1090853434_1080x1920.jpg) |WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BwindiNationalForest_EN-US3376071902_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BwindiNationalForest_EN-US3376071902_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.BistiBlue_EN-US1090853434_1080x1920.jpg) |WrightSculpture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
