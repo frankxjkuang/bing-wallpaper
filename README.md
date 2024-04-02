@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240331
+
+> Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Happy Easter! Do you like your eggs boiled or painted? The practice of painting chicken eggs, which originates from Persian traditions, was adopted by Christians in the early 17th century to commemorate this holiday, also called Pascha. Hungarian artist, Tünde Csuhaj—living and working in the small city of southern Hungary, Szekszárd—has mastered the craft. The internationally recognized egg-painter developed her own etching technique to create lace-like patterns. The meticulous designs appear on all sorts of eggs, including chicken, goose, swan, and even emu or ostrich eggs. The intricate motifs of incredible craftsmanship are often shown at national and international fairs and exhibitions. Are you inspired? Grab a paintbrush and test your egg-painting skills.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Happy Easter!](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Easter!](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_1080x1920.jpg) |
+
 ### 20240330
 
 > Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Happy Holi!](https://cn.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Holi!](https://cn.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_1080x1920.jpg) |
-
-### 20240324
-
-> Silvereyes with cherry blossoms, South Korea (© TigerSeo/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Yellow, round, tiny, and gregarious—say hello to these silvereyes enjoying cherry blossoms in South Korea. While this family of passerine birds is native to Africa, Australasia, and Asia, several of its species can be found in places like French Polynesia and Hawaii, where they appeared by introduction. Also known as white-eyes or wax-eyes, these birds come in a range of colors and patterns, but they all share that trademark eye ring. They have a sweet tooth for nectar, but they're not picky eaters, happily feeding on fruits, insects, and berries. Let's celebrate these beauties for adding a touch of wonder to spring!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Silvereyes in South Korea](https://cn.bing.com/th?id=OHR.WhiteEyes_EN-US2249866810_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Silvereyes in South Korea](https://cn.bing.com/th?id=OHR.WhiteEyes_EN-US2249866810_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteEyes_EN-US2249866810_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteEyes_EN-US2249866810_1080x1920.jpg) |ture_EN-US2897504160_1080x1920.jpg) |) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_1080x1920.jpg) |g.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_1080x1920.jpg) |PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
