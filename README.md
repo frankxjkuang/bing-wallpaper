@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240401
+
+> 'Vanishing Point' by French street artist JR on the facade of Palazzo Farnese, Rome, Italy (© Fabrizio Troiani/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Fool me once, shame on you; fool me twice, well, it must be April Fools' Day! Although no one is quite sure of the origins of this day, it has been celebrated for centuries in many different countries. Humor really does transcend borders! Over the years, there have been some truly memorable April Fools' Day jokes: in 1957, a BBC program convinced its viewers that spaghetti was harvested from trees, while in 1985, Sports Illustrated readers were amazed to read about a pitcher who could throw a ball at 168 miles per hour.
+> 
+> Today's image shows a trompe l'oeil, or optical illusion, by French street artist JR on Palazzo Farnese in Rome. This trick of the eye makes it look like this Renaissance palace has been opened up, revealing the building's past.
+> 
+> 
+
+</details>
+
+| ![April Fools' Day](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![April Fools' Day](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_1080x1920.jpg) |
+
 ### 20240331
 
 > Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Vinh Hy Bay, Vietnam](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vinh Hy Bay, Vietnam](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_1080x1920.jpg) |
-
-### 20240325
-
-> Celebrating Holi in Mathura, Uttar Pradesh, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It's Holi; get ready to become a walking rainbow and sprinkle joy wherever you go! This festival of colors, spring, and love is a cornerstone of Indian and Nepali culture. It is also celebrated in other countries with large Hindu populations, such as Bangladesh, Pakistan, the US, the UK, Suriname, Indonesia, and Malaysia. Festivities last for a night and a day, starting on the evening of the last full moon in the Hindu calendar month of Phalguna, which usually falls in March in the Gregorian calendar. As the sun sets, people gather to light bonfires, a ritual known as Holika Dahan, symbolizing the triumph of good over evil. The following day, the streets come alive with people splashing each other in colors, giving everyone a vibrant makeover. Are you ready for the hues of Holi?
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Happy Holi!](https://cn.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Holi!](https://cn.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_1080x1920.jpg) |PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_1080x1920.jpg) |.jpg) |PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
