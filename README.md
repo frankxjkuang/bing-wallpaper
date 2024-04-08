@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240406
+
+> Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> From Strawberry Day to Cat Day and even Vegetable Day, Japan has a list of faux holidays, which are the clever results of 'dajare' or word plays. Today's date, April 6, makes up the Japanese word for castle, 'shiro' from 'shi' (4) and 'ro' (6). Hence, the celebration of castles. What better opportunity than Castle Day, to learn about the country's largest and most-visited castle, Himeji Castle? Dating back to 1333, this UNESCO World Heritage Site boasts an advanced defensive design and five National Treasure structures. The castle has also withstood time and nature's fury, surviving the bombings of World War II and the Great Hanshin earthquake in 1995. Nearly 700 years of glory, local legends, and ghost stories reverberate through the 83 rooms of this hilltop fortress. Would you care to explore?
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Castle Day in Japan](https://cn.bing.com/th?id=OHR.JapanHimeji_EN-US1768279571_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castle Day in Japan](https://cn.bing.com/th?id=OHR.JapanHimeji_EN-US1768279571_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JapanHimeji_EN-US1768279571_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JapanHimeji_EN-US1768279571_1080x1920.jpg) |
+
 ### 20240405
 
 > The Bahamas photographed from the International Space Station (© NASA)
@@ -112,26 +131,7 @@
 
 | ![Happy Easter!](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Easter!](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_1080x1920.jpg) |
-
-### 20240330
-
-> Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Costa Rica's forests are habitats for two sloth species: Hoffmann's two-toed sloth and the star of today's homepage, the brown-throated three-toed sloth. Despite being larger than many other tree-dwelling mammals, three-toed sloths have adapted by reducing their muscle mass and size to thrive on treetops. Their large stomachs have four chambers, which, when full, account for about 30% of their body weight. These shaggy critters are so sedentary that algae grow on their coats, which helps to camouflage them within the rainforest canopy. In 2021, these slow-moving creatures were declared national symbols in Costa Rica. Then-president Carlos Alvarado signed the initiative into law to emphasize the sloths' importance in the country's ecosystem.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Brown-throated three-toed sloth in cecropia tree, Costa Rica](https://cn.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Brown-throated three-toed sloth in cecropia tree, Costa Rica](https://cn.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_1080x1920.jpg) |landscape 4K](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_1080x1920.jpg) |R.ShanghaiBlossoms_EN-US2613653434_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_EN-US2613653434_1080x1920.jpg) |HR.HangRaiVietnam_EN-US2418713642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_1080x1920.jpg) |.jpg) |PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_1080x1920.jpg) |pySloth_EN-US2834457510_1080x1920.jpg) |landscape 4K](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_1080x1920.jpg) |R.ShanghaiBlossoms_EN-US2613653434_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_EN-US2613653434_1080x1920.jpg) |HR.HangRaiVietnam_EN-US2418713642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_1080x1920.jpg) |.jpg) |PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
