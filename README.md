@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240407
+
+> North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Known as nature's engineers, beavers have been shaping the world for millions of years. Historically, North American beavers faced challenges from humans. They were hunted for their fur, and their 'nuisance' freshwater abodes were destroyed. However, these buck-toothed, paddle-tailed dam builders have been gaining new respect in recent years. These animals have beneficial effects not only on water quality but also on land. With their iron-coated orange incisors, beavers fell trees, diligently constructing not just homes but habitats. Their dams create life-sustaining wetlands for countless species. Meanwhile, their lodges are masterpieces of security and comfort, the entrance strategically submerged to deter predators and provide privacy. The rodents have no trouble getting in, as they can hold their breath for up to 15 minutes. So, 'woodn't' it be nice to give a shout-out to these creatures on International Beaver Day?
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![International Beaver Day](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Beaver Day](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |
+
 ### 20240406
 
 > Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![April Fools' Day](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![April Fools' Day](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_1080x1920.jpg) |
-
-### 20240331
-
-> Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Happy Easter! Do you like your eggs boiled or painted? The practice of painting chicken eggs, which originates from Persian traditions, was adopted by Christians in the early 17th century to commemorate this holiday, also called Pascha. Hungarian artist, Tünde Csuhaj—living and working in the small city of southern Hungary, Szekszárd—has mastered the craft. The internationally recognized egg-painter developed her own etching technique to create lace-like patterns. The meticulous designs appear on all sorts of eggs, including chicken, goose, swan, and even emu or ostrich eggs. The intricate motifs of incredible craftsmanship are often shown at national and international fairs and exhibitions. Are you inspired? Grab a paintbrush and test your egg-painting skills.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Happy Easter!](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Easter!](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_1080x1920.jpg) |pySloth_EN-US2834457510_1080x1920.jpg) |landscape 4K](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_1080x1920.jpg) |R.ShanghaiBlossoms_EN-US2613653434_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_EN-US2613653434_1080x1920.jpg) |HR.HangRaiVietnam_EN-US2418713642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_1080x1920.jpg) |.jpg) |PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_1080x1920.jpg) |h_ZH-CN6084460583_1080x1920.jpg) |R.ShanghaiBlossoms_EN-US2613653434_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_EN-US2613653434_1080x1920.jpg) |HR.HangRaiVietnam_EN-US2418713642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_1080x1920.jpg) |.jpg) |PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
