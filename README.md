@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240408
+
+> Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)
+
+<details>
+<summary>Description</summary>
+
+> Put on your solar glasses and turn your eyes skyward. Today, you can witness a rare celestial event—a total solar eclipse! As the moon perfectly aligns between the Earth and the sun, daylight will shift eerily to twilight. The total solar eclipse will be visible across North America, from Mazatlán, Mexico, to eastern Canada's Newfoundland Island, for up to four and a half minutes between 10:57 AM PST and 4:47 PM ADT. It will be the first total solar eclipse visible in the continental United States since August 21, 2017, although one occurs somewhere on Earth approximately every 18 months. Astronomers study the sun's corona, which is the outermost part of its atmosphere, its magnetic fields, and the behavior of Earth's atmosphere during the eclipse. Keep an eye on the time today and find a good spot to put on eclipse-safe solar glasses and see the golden ring emerge.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Total solar eclipse](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Total solar eclipse](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_1080x1920.jpg) |
+
 ### 20240407
 
 > North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Beech trees and wild anemones, Jutland, Denmark](https://cn.bing.com/th?id=OHR.JutlandSpring_EN-US3202382460_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Beech trees and wild anemones, Jutland, Denmark](https://cn.bing.com/th?id=OHR.JutlandSpring_EN-US3202382460_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JutlandSpring_EN-US3202382460_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JutlandSpring_EN-US3202382460_1080x1920.jpg) |
-
-### 20240401
-
-> 'Vanishing Point' by French street artist JR on the facade of Palazzo Farnese, Rome, Italy (© Fabrizio Troiani/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Fool me once, shame on you; fool me twice, well, it must be April Fools' Day! Although no one is quite sure of the origins of this day, it has been celebrated for centuries in many different countries. Humor really does transcend borders! Over the years, there have been some truly memorable April Fools' Day jokes: in 1957, a BBC program convinced its viewers that spaghetti was harvested from trees, while in 1985, Sports Illustrated readers were amazed to read about a pitcher who could throw a ball at 168 miles per hour.
-> 
-> Today's image shows a trompe l'oeil, or optical illusion, by French street artist JR on Palazzo Farnese in Rome. This trick of the eye makes it look like this Renaissance palace has been opened up, revealing the building's past.
-> 
-> 
-
-</details>
-
-| ![April Fools' Day](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![April Fools' Day](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_1080x1920.jpg) |h_ZH-CN6084460583_1080x1920.jpg) |R.ShanghaiBlossoms_EN-US2613653434_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_EN-US2613653434_1080x1920.jpg) |HR.HangRaiVietnam_EN-US2418713642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_1080x1920.jpg) |.jpg) |PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JutlandSpring_EN-US3202382460_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JutlandSpring_EN-US3202382460_1080x1920.jpg) |HR.ShanghaiBlossoms_EN-US2613653434_1080x1920.jpg) |HR.HangRaiVietnam_EN-US2418713642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_1080x1920.jpg) |.jpg) |PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
