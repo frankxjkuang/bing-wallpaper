@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240409
+
+> Tulip fields in spring, Skagit Valley, Washington (© Claudia Cooper/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Walk through a real-life canvas where vibrant blossoms paint the Earth in the shadow of Mount Vernon. That's exactly what awaits you at the Skagit Valley Tulip Festival in Washington. Founded in 1984 by the Mount Vernon Chamber of Commerce, it began as a three-day event but has since grown into a month-long fiesta. The festival runs from April to May and draws visitors from all over the world. The floral show spans multiple gardens in the valley, so make sure you explore Tulip Town, Tulip Valley Farms, Garden Rosalyn, and the 50-acre display at RoozenGaarde. You can tour the tulip gardens by bicycle and explore the local wineries, breweries, and restaurants. Among the petals, life slows down just enough for us to remember the simple joys—breathe deeply, smile widely, and revel in the spectacle that is the Skagit Valley Tulip Festival.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Skagit Valley Tulip Festival](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Skagit Valley Tulip Festival](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_1080x1920.jpg) |
+
 ### 20240408
 
 > Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)
@@ -112,26 +131,7 @@
 
 | ![Find a Rainbow Day](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_EN-US3266651913_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Find a Rainbow Day](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_EN-US3266651913_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_EN-US3266651913_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_EN-US3266651913_1080x1920.jpg) |
-
-### 20240402
-
-> Beech trees and wild anemones, Jutland, Denmark (© Nick Brundle Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today's homepage takes us to Jutland, Denmark, where the arrival of spring showcases the green hues of the European beech, a national symbol of this northern land. The young leaves of these budding trees are significant to the Danish people, as they are harvested from April to May and used in cooking—particularly in salads. In the past, Europeans would often use the smooth bark of beech trees for writings texts and the word 'book' is thought to be derived from the word for 'beech.' As the sun shines through the forest canopy, wild anemones brighten up the woodland with their white petals. These blooms, representing delicate beauty and sincerity, have even starred in masterpieces by artists such as Monet and Vincent van Gogh.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Beech trees and wild anemones, Jutland, Denmark](https://cn.bing.com/th?id=OHR.JutlandSpring_EN-US3202382460_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Beech trees and wild anemones, Jutland, Denmark](https://cn.bing.com/th?id=OHR.JutlandSpring_EN-US3202382460_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JutlandSpring_EN-US3202382460_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JutlandSpring_EN-US3202382460_1080x1920.jpg) |HR.ShanghaiBlossoms_EN-US2613653434_1080x1920.jpg) |HR.HangRaiVietnam_EN-US2418713642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_1080x1920.jpg) |.jpg) |PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_EN-US3266651913_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_EN-US3266651913_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_1080x1920.jpg) |.jpg) |PeakDistrictNP_EN-US8094447567_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
