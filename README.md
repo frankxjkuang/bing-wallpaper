@@ -1,5 +1,43 @@
 ## bing wallpaper
 
+### 20240413
+
+> Apple trees in spring, Germany (© Smileus/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In this picturesque orchard, spring heralds the blossoming of apple trees. As the chill in the air starts to fade, delicate apple blossoms unfurl, releasing a sweet fragrance that permeates the countryside. This marks the beginning of a process that culminates in the harvest of one of the world's most beloved fruits. Known for their crisp texture and sweet-tart flavor, apples belong to the Rosaceae family. These fruits come in a variety of colors, from vibrant reds to golden yellows and bright greens. Each type boasts its unique flavor profile, from the tangy Granny Smith to the sweetness of Fuji. These fruits are rich in dietary fiber, antioxidants, and essential vitamins like vitamin C and vitamin K, promoting overall health and well-being. Whether you like them fresh, baked in your favorite desserts, or pressed into cider, apples are a classic culinary delight.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Apple trees in spring, Germany](https://cn.bing.com/th?id=OHR.SpringApple_EN-US3148648329_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Apple trees in spring, Germany](https://cn.bing.com/th?id=OHR.SpringApple_EN-US3148648329_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringApple_EN-US3148648329_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringApple_EN-US3148648329_1080x1920.jpg) |
+
+### 20240412
+
+> Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> If you fancy a stroll through time, Arches National Park is the perfect gateway! With over 2,000 natural stone arches, hundreds of tall pinnacles, large rock fins, and giant balanced rocks, this park is among the world's most scenic destinations. In the popular Windows Section, covering just over 2 square miles, there are spectacular rock formations including North Window, Turret Arch, and Double Arch. Others include Garden of Eden, Elephant Butte, a 5,653-foot summit, and Parade of Elephants, so visitors are never short of awesome sights to enjoy.
+> 
+> The region was once a vast dry seabed hidden beneath thousands of feet of earth but was gradually transformed by geological forces to become the spectacular space we see today. Humans have explored and lived in this area for millennia. Around 2,000 years ago, its nomadic inhabitants began to cultivate crops. However, environmental challenges, possibly aggravated by climate shifts, eventually led to a decline in farming activities.
+> 
+> 
+
+</details>
+
+| ![Arches National Park, Utah](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-US2974318595_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arches National Park, Utah](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-US2974318595_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-US2974318595_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-US2974318595_1080x1920.jpg) |
+
 ### 20240411
 
 > Aerial view of Churún Merú waterfall, Venezuela (© AirPano LLC/Amazing Aerial Agency)
@@ -93,45 +131,7 @@
 
 | ![International Beaver Day](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Beaver Day](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |
-
-### 20240406
-
-> Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> From Strawberry Day to Cat Day and even Vegetable Day, Japan has a list of faux holidays, which are the clever results of 'dajare' or word plays. Today's date, April 6, makes up the Japanese word for castle, 'shiro' from 'shi' (4) and 'ro' (6). Hence, the celebration of castles. What better opportunity than Castle Day, to learn about the country's largest and most-visited castle, Himeji Castle? Dating back to 1333, this UNESCO World Heritage Site boasts an advanced defensive design and five National Treasure structures. The castle has also withstood time and nature's fury, surviving the bombings of World War II and the Great Hanshin earthquake in 1995. Nearly 700 years of glory, local legends, and ghost stories reverberate through the 83 rooms of this hilltop fortress. Would you care to explore?
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Castle Day in Japan](https://cn.bing.com/th?id=OHR.JapanHimeji_EN-US1768279571_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castle Day in Japan](https://cn.bing.com/th?id=OHR.JapanHimeji_EN-US1768279571_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JapanHimeji_EN-US1768279571_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JapanHimeji_EN-US1768279571_1080x1920.jpg) |
-
-### 20240405
-
-> The Bahamas photographed from the International Space Station (© NASA)
-
-<details>
-<summary>Description</summary>
-
-> Turquoise waters, vibrant coral reefs, alfresco dining, and tales of pirates—welcome to the Bahamas! With over 3,000 cays, islands, and islets in the Atlantic Ocean, this West Indies archipelago is home to the world's third-largest barrier reef—the Andros Barrier Reef. For adventurous souls drawn to nature, Dean's Blue Hole, a 663-foot-deep marine sinkhole on Long Island, offers a thrilling experience. From the serene pink sand beaches of Harbour Island to the capital city Nassau's bustling Straw Market and famous wine cellars, the Bahamas is more than just a destination—it's a captivating tale waiting to unfold.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![The Bahamas](https://cn.bing.com/th?id=OHR.BahamasSpace_EN-US1544254149_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Bahamas](https://cn.bing.com/th?id=OHR.BahamasSpace_EN-US1544254149_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BahamasSpace_EN-US1544254149_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BahamasSpace_EN-US1544254149_1080x1920.jpg) |ng.com/th?id=OHR.AntelopeBotswana_EN-US3335739405_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AntelopeBotswana_EN-US3335739405_1080x1920.jpg) |Beads_ZH-CN9346804869_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_1080x1920.jpg) |N-US0948108910_1080x1920.jpg) |ing.com/th?id=OHR.EagleTree_EN-US8588984234_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_1080x1920.jpg) |?id=OHR.CormorantBridge_EN-US1902862286_1080x1920.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |20.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
