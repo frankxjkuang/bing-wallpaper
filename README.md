@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240414
+
+> Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to nature's bowling alley. Bowling Ball Beach on the Mendocino Coast in California is named after the striking rock formations strewn across the shore. These sandstone balls—a phenomenon known as concretions—formed over millions of years as sedimentary layers built up around a central core of sand and stone held together by mineral cements. Erosion gradually wore away the outer layers to expose the spherical shapes we see today. This created a fascinating spectacle that only appears at low tide. Concretions are rare, and there has been plenty of wild speculation about where they come from, with some believing them to be extraterrestrial debris while others wondering if they are dinosaur fossils. The answer, however, is quite simple: it is the forces of nature at play.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Bowling Ball Beach in Mendocino County, California](https://cn.bing.com/th?id=OHR.BowlingBallCali_EN-US3241530931_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bowling Ball Beach in Mendocino County, California](https://cn.bing.com/th?id=OHR.BowlingBallCali_EN-US3241530931_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BowlingBallCali_EN-US3241530931_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BowlingBallCali_EN-US3241530931_1080x1920.jpg) |
+
 ### 20240413
 
 > Apple trees in spring, Germany (© Smileus/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Total solar eclipse](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Total solar eclipse](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_1080x1920.jpg) |
-
-### 20240407
-
-> North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Known as nature's engineers, beavers have been shaping the world for millions of years. Historically, North American beavers faced challenges from humans. They were hunted for their fur, and their 'nuisance' freshwater abodes were destroyed. However, these buck-toothed, paddle-tailed dam builders have been gaining new respect in recent years. These animals have beneficial effects not only on water quality but also on land. With their iron-coated orange incisors, beavers fell trees, diligently constructing not just homes but habitats. Their dams create life-sustaining wetlands for countless species. Meanwhile, their lodges are masterpieces of security and comfort, the entrance strategically submerged to deter predators and provide privacy. The rodents have no trouble getting in, as they can hold their breath for up to 15 minutes. So, 'woodn't' it be nice to give a shout-out to these creatures on International Beaver Day?
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![International Beaver Day](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Beaver Day](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |20.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |20.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
