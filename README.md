@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240415
+
+> The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 'Art is the queen of all sciences communicating knowledge to all the generations of the world.' Let’s ponder these inspirational words by Leonardo da Vinci on World Art Day, April 15, which was also the birthday of the renowned Renaissance artist. From his iconic painting of the Mona Lisa to his detailed sketches of flying machines, Leonardo pushed the boundaries of knowledge and talent in a wide range of fields. Today's homepage shows the RedBall Project at Centraal Station in Antwerp, Belgium. Created by the American artist Kurt Perschke, this traveling public art installation is considered to be the world's longest-running street artwork. Since 2001, the 15-foot inflated red ball has been wedged into dozens of landmarks in countries from Australia to England.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![World Art Day](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Art Day](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_1080x1920.jpg) |
+
 ### 20240414
 
 > Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Skagit Valley Tulip Festival](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Skagit Valley Tulip Festival](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_1080x1920.jpg) |
-
-### 20240408
-
-> Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)
-
-<details>
-<summary>Description</summary>
-
-> Put on your solar glasses and turn your eyes skyward. Today, you can witness a rare celestial event—a total solar eclipse! As the moon perfectly aligns between the Earth and the sun, daylight will shift eerily to twilight. The total solar eclipse will be visible across North America, from Mazatlán, Mexico, to eastern Canada's Newfoundland Island, for up to four and a half minutes between 10:57 AM PST and 4:47 PM ADT. It will be the first total solar eclipse visible in the continental United States since August 21, 2017, although one occurs somewhere on Earth approximately every 18 months. Astronomers study the sun's corona, which is the outermost part of its atmosphere, its magnetic fields, and the behavior of Earth's atmosphere during the eclipse. Keep an eye on the time today and find a good spot to put on eclipse-safe solar glasses and see the golden ring emerge.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Total solar eclipse](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Total solar eclipse](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |20.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_1080x1920.jpg) |EN-US2134131862_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |20.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
