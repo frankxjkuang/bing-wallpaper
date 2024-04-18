@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240416
+
+> Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 'These streets will make you feel brand new, big lights will inspire you.' Alicia Keys sure knows how to serenade the vibrant, bustling life of the Big Apple. Today's homepage image takes us to Union Square in lower Manhattan. At this historic intersection, you can find statues of George Washington—the oldest statue in any park in NYC—and Abraham Lincoln, crafted by the sculptor Henry Kirke Brown. In 1882, workers exercised their rights to free speech and assembly, organizing the first Labor Day parade here. In 1997, Union Square was recognized as a National Historic Landmark due to its importance in US labor history. These days, you're more likely to see street chess players, musicians, skateboarders, dance crews, and vendors of all types in the square.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Union Square, Manhattan](https://cn.bing.com/th?id=OHR.UnionSquareNYC_EN-US3633149979_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Union Square, Manhattan](https://cn.bing.com/th?id=OHR.UnionSquareNYC_EN-US3633149979_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.UnionSquareNYC_EN-US3633149979_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UnionSquareNYC_EN-US3633149979_1080x1920.jpg) |
+
 ### 20240415
 
 > The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Siblings Day](https://cn.bing.com/th?id=OHR.OwlSiblings_EN-US2594321387_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Siblings Day](https://cn.bing.com/th?id=OHR.OwlSiblings_EN-US2594321387_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OwlSiblings_EN-US2594321387_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OwlSiblings_EN-US2594321387_1080x1920.jpg) |
-
-### 20240409
-
-> Tulip fields in spring, Skagit Valley, Washington (© Claudia Cooper/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Walk through a real-life canvas where vibrant blossoms paint the Earth in the shadow of Mount Vernon. That's exactly what awaits you at the Skagit Valley Tulip Festival in Washington. Founded in 1984 by the Mount Vernon Chamber of Commerce, it began as a three-day event but has since grown into a month-long fiesta. The festival runs from April to May and draws visitors from all over the world. The floral show spans multiple gardens in the valley, so make sure you explore Tulip Town, Tulip Valley Farms, Garden Rosalyn, and the 50-acre display at RoozenGaarde. You can tour the tulip gardens by bicycle and explore the local wineries, breweries, and restaurants. Among the petals, life slows down just enough for us to remember the simple joys—breathe deeply, smile widely, and revel in the spectacle that is the Skagit Valley Tulip Festival.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Skagit Valley Tulip Festival](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Skagit Valley Tulip Festival](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_1080x1920.jpg) |EN-US2134131862_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |20.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OwlSiblings_EN-US2594321387_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OwlSiblings_EN-US2594321387_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_1080x1920.jpg) |EN-US2134131862_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |20.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
