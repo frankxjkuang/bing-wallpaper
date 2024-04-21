@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240419
+
+> The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> At the heart of the Orkney Islands, an archipelago in northern Scotland, lies an ancient riddle: the Ring of Brodgar. Dating back to sometime between 2500 and 2000 BCE, this Neolithic henge—a type of ancient circular earthwork—and stone circle measure about 340 feet across. Lying on a narrow strip of land between two lochs, the site initially comprised 60 stones, although today only 36 remain. The exact purpose of the structure is still unknown, despite an excavation project at the site in 2008. In 1999, the Heart of Neolithic Orkney group of monuments, which includes the Ring of Brodgar, was recognized as a UNESCO World Heritage Site. If you are planning a trip to Scotland, consider walking amid the echoes of history at the Ring of Brodgar while the crisp Scottish air embraces you.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Ring of Brodgar, Orkney, Scotland](https://cn.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ring of Brodgar, Orkney, Scotland](https://cn.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_1080x1920.jpg) |
+
 ### 20240418
 
 > Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Apple trees in spring, Germany](https://cn.bing.com/th?id=OHR.SpringApple_EN-US3148648329_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Apple trees in spring, Germany](https://cn.bing.com/th?id=OHR.SpringApple_EN-US3148648329_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringApple_EN-US3148648329_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringApple_EN-US3148648329_1080x1920.jpg) |
-
-### 20240412
-
-> Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> If you fancy a stroll through time, Arches National Park is the perfect gateway! With over 2,000 natural stone arches, hundreds of tall pinnacles, large rock fins, and giant balanced rocks, this park is among the world's most scenic destinations. In the popular Windows Section, covering just over 2 square miles, there are spectacular rock formations including North Window, Turret Arch, and Double Arch. Others include Garden of Eden, Elephant Butte, a 5,653-foot summit, and Parade of Elephants, so visitors are never short of awesome sights to enjoy.
-> 
-> The region was once a vast dry seabed hidden beneath thousands of feet of earth but was gradually transformed by geological forces to become the spectacular space we see today. Humans have explored and lived in this area for millennia. Around 2,000 years ago, its nomadic inhabitants began to cultivate crops. However, environmental challenges, possibly aggravated by climate shifts, eventually led to a decline in farming activities.
-> 
-> 
-
-</details>
-
-| ![Arches National Park, Utah](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-US2974318595_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arches National Park, Utah](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-US2974318595_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringApple_EN-US3148648329_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringApple_EN-US3148648329_1080x1920.jpg) |) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-US2974318595_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-US2974318595_1080x1920.jpg) |ng.com/th?id=OHR.DragonWaterfall_EN-US2799967886_1080x1920.jpg) |ng.com/th?id=OHR.OwlSiblings_EN-US2594321387_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
