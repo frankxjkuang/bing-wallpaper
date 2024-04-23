@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240421
+
+> Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> As National Park Week unfurls its green banners, let's take a stroll down Sparks Lane, a gem situated within the Great Smoky Mountains National Park, Tennessee. Established in 1934, the park encompasses over 522,419 acres of wilderness. The forests, which cover most of the park, are home to 1,500 species of flowering plants, 952 algae, 65 species of mammals, and over 240 species of birds, making it an International Biosphere Reserve.
+> 
+> Cades Cove—seen in today's photo—is a valley within the Great Smoky Mountains National Park renowned for its stunning scenery and historic structures, including log cabins, barns, and churches. While exploring the park, you can also visit historical areas like Roaring Fork, Cataloochee, and Elkmont. If you wish to watch fireflies, then Elkmont is the place for you, and if you are a geologist, there's something for you too: this park is home to late Precambrian rocks. So, set your spirit of adventure free and join others to celebrate the timeless American treasure: national parks!
+> 
+> 
+
+</details>
+
+| ![National Park Week continues](https://cn.bing.com/th?id=OHR.CadesCove_EN-US4359486356_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Park Week continues](https://cn.bing.com/th?id=OHR.CadesCove_EN-US4359486356_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CadesCove_EN-US4359486356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CadesCove_EN-US4359486356_1080x1920.jpg) |
+
 ### 20240420
 
 > Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![World Art Day](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Art Day](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_1080x1920.jpg) |
-
-### 20240414
-
-> Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to nature's bowling alley. Bowling Ball Beach on the Mendocino Coast in California is named after the striking rock formations strewn across the shore. These sandstone balls—a phenomenon known as concretions—formed over millions of years as sedimentary layers built up around a central core of sand and stone held together by mineral cements. Erosion gradually wore away the outer layers to expose the spherical shapes we see today. This created a fascinating spectacle that only appears at low tide. Concretions are rare, and there has been plenty of wild speculation about where they come from, with some believing them to be extraterrestrial debris while others wondering if they are dinosaur fossils. The answer, however, is quite simple: it is the forces of nature at play.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Bowling Ball Beach in Mendocino County, California](https://cn.bing.com/th?id=OHR.BowlingBallCali_EN-US3241530931_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bowling Ball Beach in Mendocino County, California](https://cn.bing.com/th?id=OHR.BowlingBallCali_EN-US3241530931_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BowlingBallCali_EN-US3241530931_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BowlingBallCali_EN-US3241530931_1080x1920.jpg) |80x1920.jpg) |ng.com/th?id=OHR.OwlSiblings_EN-US2594321387_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OwlSiblings_EN-US2594321387_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OwlSiblings_EN-US2594321387_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_1080x1920.jpg) |EN-US2134131862_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |20.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_1080x1920.jpg) |iblings_EN-US2594321387_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OwlSiblings_EN-US2594321387_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_1080x1920.jpg) |EN-US2134131862_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |20.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
