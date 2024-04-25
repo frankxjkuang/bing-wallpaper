@@ -1,13 +1,13 @@
 ## bing wallpaper
 
-### 20240423
+### 20240424
 
-> 三一学院图书馆，都柏林，爱尔兰 (© Lukas Bischoff/Getty Images)
+> 盛开的白延龄草，安大略省，加拿大 (© Jun Zhang/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在爱尔兰中心，在都柏林圣三一学院图书馆历史悠久的大厅里，卷轴和古籍低声诉说着久远的故事。今天，这些沉默的故事讲述者将大放异彩。世界图书日由联合国教科文组织于1995年设立，旨在提醒人们阅读、出版和版权的重要性。但为什么是4月23日呢？因为这一天是威廉·莎士比亚、米格尔·德·塞万提斯和其他几位文学巨匠共同的忌日！从每年在马里兰州肯辛顿举办的汇集众多作家、诗人和文学组织的街头庆祝活动，到世界各地许多国家向孩子们分发图书券，这一天在书页翻动的沙沙声中变得生机勃勃。有趣的是，联合国教科文组织每年都会推选一个城市为“世界图书之都”，被选中的城市将在被授予的一年中开展促进阅读的活动，今年当选是法国斯特拉斯堡。那么，你选好要读的书了吗？
+> 三片花瓣、三片叶子和三个柱头——这就是白延龄草，它的名字源自拉丁语中的“三”，原产于北美东部，是春季最常见的林地野花之一。与一些稍有暖意就绽放色彩的“冲动型”花朵不同，这种植物开花缓慢。从美国邮票上的图案到俄亥俄州的州花，再到加拿大安大略省的官方象征，白延龄草扎根于各国文化。除了美观之外，白延龄草在草药界也有一席之地。所以，你在林间漫步时，请留意这种花卉珍品！
 > 
 > 
 > 
@@ -15,9 +15,28 @@
 
 </details>
 
-| ![世界读书日](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界读书日](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![安大略省的白延龄草，加拿大](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![安大略省的白延龄草，加拿大](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_1080x1920.jpg) |
+
+### 20240423
+
+> 三一学院图书馆，都柏林，爱尔兰 (© Vincent Isore/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 在爱尔兰中心，在都柏林三一学院图书馆历史悠久的大厅里，卷轴和古籍低声诉说着久远的故事。今天，这些沉默的故事讲述者将大放异彩。世界图书日由联合国教科文组织于1995年设立，旨在提醒人们阅读、出版和版权的重要性。但为什么是4月23日呢？因为这一天是威廉·莎士比亚、米格尔·德·塞万提斯和其他几位文学巨匠共同的忌日！从每年在马里兰州肯辛顿举办的汇集众多作家、诗人和文学组织的街头庆祝活动，到世界各地许多国家向孩子们分发图书券，这一天在书页翻动的沙沙声中变得生机勃勃。有趣的是，联合国教科文组织每年都会推选一个城市为“世界图书之都”，被选中的城市将在被授予的一年中开展促进阅读的活动，今年当选是法国斯特拉斯堡。那么，你选好要读的书了吗？
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![世界读书日](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界读书日](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_1080x1920.jpg) |
 
 ### 20240422
 
@@ -112,26 +131,7 @@
 
 | ![国际古迹遗址日](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际古迹遗址日](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1080x1920.jpg) |
-
-### 20240417
-
-> 春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国 (© Scott Suriano/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 欢迎来到这个世界，可爱的熊宝宝！图中这只毛茸茸的美洲黑熊幼崽才从冬眠中醒来，它在巢穴中度过了生命最初的几个月，现在，它或许对外面的世界感到陌生又困惑。黑熊幼崽一般出生在一月份至二月份，而后一直呆在巢穴里，直到四月中旬或五月初才会离开。刚踏入春天时，小黑熊的体重只有5磅左右，等长到一岁时，体重会长到约80磅。成年黑熊的体重一般在100磅至600磅之间，具体能长到重，取决于它们的年龄、性别、季节、以及栖息地的食物资源。今天图片的背景是弗吉尼亚州仙纳度国家公园，迄今为止，黑熊是这里唯一被发现的熊类。
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![黑熊幼崽迎来春天](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![黑熊幼崽迎来春天](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |20.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1080x1920.jpg) |ape 4K](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |20.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
