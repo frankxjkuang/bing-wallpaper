@@ -2,12 +2,12 @@
 
 ### 20240424
 
-> 盛开的白延龄草，安大略省，加拿大 (© Jun Zhang/Getty Images)
+> White trilliums blooming in Ontario, Canada (© Jun Zhang/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 三片花瓣、三片叶子和三个柱头——这就是白延龄草，它的名字源自拉丁语中的“三”，原产于北美东部，是春季最常见的林地野花之一。与一些稍有暖意就绽放色彩的“冲动型”花朵不同，这种植物开花缓慢。从美国邮票上的图案到俄亥俄州的州花，再到加拿大安大略省的官方象征，白延龄草扎根于各国文化。除了美观之外，白延龄草在草药界也有一席之地。所以，你在林间漫步时，请留意这种花卉珍品！
+> Three petals, three leaves, and three stigmas—that's the white trillium for you, whose name derived from the Latin word for 'three.' Native to eastern North America, the spring-blooming species is one of the most common woodland wildflowers. Unlike some impulsive blossoms that burst into color at the slightest hint of warmth, this plant is a slow bloomer. From gracing US postage stamps to being the state wildflower of Ohio and an official symbol of Canada's Ontario, the white trillium is ingrained in our culture. Beyond its aesthetic appeal, the plant has earned its stripes in the world of herbal medicine. So, next time you find yourself wandering through the woodland realm, keep an eye out for this floral gem!
 > 
 > 
 > 
@@ -15,18 +15,18 @@
 
 </details>
 
-| ![安大略省的白延龄草，加拿大](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![安大略省的白延龄草，加拿大](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![White trilliums blooming in Ontario, Canada](https://cn.bing.com/th?id=OHR.TrilliumOntario_EN-US5180679465_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![White trilliums blooming in Ontario, Canada](https://cn.bing.com/th?id=OHR.TrilliumOntario_EN-US5180679465_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrilliumOntario_EN-US5180679465_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrilliumOntario_EN-US5180679465_1080x1920.jpg) |
 
 ### 20240423
 
-> 三一学院图书馆，都柏林，爱尔兰 (© Vincent Isore/Getty Images)
+> Library of Trinity College Dublin, Ireland (© Vincent Isore/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在爱尔兰中心，在都柏林三一学院图书馆历史悠久的大厅里，卷轴和古籍低声诉说着久远的故事。今天，这些沉默的故事讲述者将大放异彩。世界图书日由联合国教科文组织于1995年设立，旨在提醒人们阅读、出版和版权的重要性。但为什么是4月23日呢？因为这一天是威廉·莎士比亚、米格尔·德·塞万提斯和其他几位文学巨匠共同的忌日！从每年在马里兰州肯辛顿举办的汇集众多作家、诗人和文学组织的街头庆祝活动，到世界各地许多国家向孩子们分发图书券，这一天在书页翻动的沙沙声中变得生机勃勃。有趣的是，联合国教科文组织每年都会推选一个城市为“世界图书之都”，被选中的城市将在被授予的一年中开展促进阅读的活动，今年当选是法国斯特拉斯堡。那么，你选好要读的书了吗？
+> In the heart of Ireland, amidst the storied halls of the Library of Trinity College Dublin, scrolls and tomes whisper tales of long-gone eras. Today, these silent storytellers shine for World Book Day. Established by UNESCO in 1995, the day serves as a reminder of the importance of reading, publishing, and copyright. But why April 23? It marks the shared death anniversary of William Shakespeare, Miguel de Cervantes, and several other literary greats. From the annual street festival exhibiting authors, poets, and literary organizations in Kensington, Maryland, to the distribution of book vouchers to kids in many countries around the world, this day comes alive with the rustle of turning pages. Interestingly, each year, UNESCO crowns one city as the 'World Book Capital.' The chosen city then carries out activities aimed at promoting reading for the awarded year; this year it is Strasbourg, France. So, have you picked out a book to read yet?
 > 
 > 
 > 
@@ -34,75 +34,75 @@
 
 </details>
 
-| ![世界读书日](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界读书日](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Book Day](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Book Day](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_1080x1920.jpg) |
 
 ### 20240422
 
-> 绿海龟，圣地亚哥，加利福尼亚，美国 (© Ralph Pace/Minden Pictures)
+> Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 今天是“地球日”，一个专门为保护地球环境而设立的节日，旨在提高民众对于现有环境问题的认识。1969年，时任威斯康星州参议员的盖洛德·纳尔逊目睹了库亚霍加河着火和圣巴巴拉石油泄漏等事件，他认为世界需要一项环保倡议，于是埋下了设立“地球日”的种子。一年后，首届“地球日”活动举行。现在，“地球日”已经发展成为一年一度的活动，有超过193个国家的10亿多人参加。今年，这项活动的重点是塑料，因为塑料污染已经严重影响了陆地和海洋环境。许多物种，包括图片中的这只绿海龟，误将海洋中的塑料垃圾当作食物食用。并且，这些塑料垃圾还会带来缠绕风险，也有可能分解成微塑料。每年约有2500万吨塑料进入水生生态系统。因此，赶快行动起来吧！植树造林、清理海滩，倡导环境保护及可持续发展，为人类共同的家园贡献自己的一份力量。毕竟，没有第二个地球！
+> Today is Earth Day—a day dedicated to celebrating the planet we call home and raising awareness of environmental problems. The seeds of this day were planted back in 1969 when Senator Gaylord Nelson of Wisconsin witnessed events like the Cuyahoga River catching fire and the Santa Barbara oil spill and decided that the world needed an environmental initiative. A year later, the first Earth Day event was held. Now, it has grown into an annual event with more than a billion people in over 193 countries taking part.
 > 
-> 
+> This year, the campaign's focus is on plastics, which are a particularly serious form of pollution on land and in the oceans. Many species—including this green sea turtle—eat plastic waste, mistaking it for food. Plastics also pose an entanglement risk and can also break down to become microplastics. Every year, 25 million tons of plastic enter aquatic ecosystems. So, whether you're planting trees, cleaning up beaches, or simply spreading the word, let's remember to promote sustainable living. After all, there's no planet B!
 > 
 > 
 
 </details>
 
-| ![世界地球日](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界地球日](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Earth Day](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Earth Day](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_1080x1920.jpg) |
 
 ### 20240421
 
-> Cades Cove ，大雾山国家公园，田纳西州，美国 (© Richard Bernabe/Shutterstock)
+> Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 随着美国国家公园周活动的开展，让我们一起去田纳西州的大雾山国家公园走走吧！该公园成立于1934年，占地面积超过522,419英亩。这座公园的大部分地区都被森林覆盖着，是1500种开花植物、952种藻类、65种哺乳动物和240多种鸟类的家园，大雾山国家公也因此成为了国际生物圈保护区。
+> As National Park Week unfurls its green banners, let's take a stroll down Sparks Lane, in Great Smoky Mountains National Park, Tennessee. Established in 1934, the park encompasses over 522,419 acres of wilderness, mostly covered with forests. It is home to 1,500 species of flowering plants, 952 algae, 65 species of mammals, and over 240 species of birds, making it an International Biosphere Reserve.
 > 
-> 在今天的照片中看到的开字山凹是大雾山国家公园内的一个山谷，以其迷人的风景和历史建筑（包括小木屋、谷仓和教堂）而闻名。在探索公园的同时，你还可以参观咆哮叉机动车自然小径、卡特罗基山和埃尔克蒙特等历史名胜。如果你想看萤火虫，埃尔克蒙特就是你的不二之选。如果你是一名地质学家，这里也有适合你的东西：这个公园是前寒武纪晚期岩石的家园。所以，释放你的冒险精神，与其他人一起去探索国家公园吧！
+> Cades Cove—seen in today's photo—is a valley renowned for its scenery and historic structures, including log cabins, barns, and churches. While exploring the park, you can also visit historical areas like Roaring Fork, Cataloochee, and Elkmont. If you wish to watch fireflies, then Elkmont is the place for you, and if you are a geologist, there's something for you too: This park is home to late Precambrian rocks. So, set your spirit of adventure free and join others to celebrate the timeless American treasure: national parks!
 > 
 > 
 
 </details>
 
-| ![国家公园周活动继续开展](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国家公园周活动继续开展](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![National Park Week continues](https://cn.bing.com/th?id=OHR.CadesCove_EN-US4359486356_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Park Week continues](https://cn.bing.com/th?id=OHR.CadesCove_EN-US4359486356_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CadesCove_EN-US4359486356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CadesCove_EN-US4359486356_1080x1920.jpg) |
 
 ### 20240420
 
-> 日出时分的大棱镜泉，美国怀俄明州黄石国家公园 (© XIN WANG/Getty Images)
+> Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 准备好你的登山靴吧，因为美国国家公园周到了！美国各地最迷人的风景区已敞开大门，邀请大家免费拥抱大自然。在整个庆祝活动期间，美国国家公园管理局将组织各种活动，包括由护林员带领的参观活动、志愿者活动和教育研讨会。
+> Get ready to lace up your hiking boots, because National Park Week is upon us! Across the country, America's most stunning landscapes throw their gates wide open, inviting everyone to embrace the great outdoors for free. Throughout the celebration, various programs will be organized by the National Park Service, including ranger-led tours, volunteer opportunities, and educational workshops.
 > 
-> 如果你在怀俄明州，您可能想去黄石国家公园看看。作为世界上第一个国家公园，该公园以其植物群、动物群（包括落基山狼、灰熊和黑熊）、超级火山和许多地热景观而闻名，而今天的图片上的大棱镜泉正是其中之一。位于中间歇泉盆地的大棱镜泉从里向外呈现出蓝、绿、黄、橙、红等不同颜色，这种现象是由水体中生活的藻类和含色素的细菌等微生物造成的。外面有太多的东西等着你去探索，所以快召集你的朋友，到野外去吧。
+> If you are in Wyoming, you might want to visit Yellowstone, the world's first national park. Established in 1872 by President Ulysses S. Grant, the park is known for its flora, fauna—including Rocky Mountain wolves, and grizzly and black bears—supervolcano, and many geothermal features, including the one we see in today's image. The Grand Prismatic Spring is in the Midway Geyser Basin. Its display of colors is caused by multi-layered sheets of microorganisms, ranging from deep blues and greens to fiery oranges and reds. There is so much waiting to be explored out there, so gather your friends and get out into the wild.
 > 
 > 
 
 </details>
 
-| ![国家公园周开幕](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国家公园周开幕](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![National Park Week begins](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Park Week begins](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_1080x1920.jpg) |
 
 ### 20240419
 
-> 布罗德加环，奥克尼岛，苏格兰 (© Paul Williams - FunkyStock/Getty Images)
+> The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在苏格兰北部的奥克尼群岛的中心地带，有一个古老的谜团：布罗德加环。这个新石器时代的石圈是一种古老的圆形土方工程，可以追溯到公元前2500年到2000年之间，石圈的直径约为340英尺。该遗址位于两个湖泊之间的狭长地带，最初由60块石头组成，如今只剩下36块。该石圈的确切用途至今仍不得而知。为了进一步了解该遗址，一项名为“挖掘布罗德加环”的发掘项目于2008年启动，但该项目尚未取得任何结论性成果。1999年，包括布罗德加环在内的新石器时代的奥克尼中心地带被联合国教科文组织列为世界遗产。如果你计划去苏格兰旅行，不妨去布罗德加环逛逛。在这里，你不仅可以呼吸到清新的空气，还可以感受石圈的悠久历史。
+> At the heart of the Orkney Islands, an archipelago in northern Scotland, lies an ancient riddle: the Ring of Brodgar. Dating back to sometime between 2500 and 2000 BCE, this Neolithic henge—a type of ancient circular earthwork—and stone circle measure about 340 feet across. Lying on a narrow strip of land between two lochs, the site initially comprised 60 stones, although today only 36 remain. The exact purpose of the structure is still unknown, despite an excavation project at the site in 2008. In 1999, the Heart of Neolithic Orkney group of monuments, which includes the Ring of Brodgar, was recognized as a UNESCO World Heritage Site. If you are planning a trip to Scotland, consider walking amid the echoes of history at the Ring of Brodgar while the crisp Scottish air embraces you.
 > 
 > 
 > 
@@ -110,18 +110,18 @@
 
 </details>
 
-| ![布罗德加环，奥克尼岛，苏格兰](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![布罗德加环，奥克尼岛，苏格兰](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Ring of Brodgar, Orkney, Scotland](https://cn.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ring of Brodgar, Orkney, Scotland](https://cn.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_1080x1920.jpg) |
 
 ### 20240418
 
-> 中世纪城墙，阿维拉，西班牙 (© Scott Suriano/Getty Images)
+> Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 今天是一个具有纪念意义的日子：国际古迹遗址日。这一天也被称为“世界遗产日”，旨在强调保护文化遗产的重要性。从建筑物到雕塑，古迹可以是任何一样东西，只要它在历史、艺术或科学层面具有突出的价值。世界上有许多令人惊讶的古迹，例如秘鲁的马丘比丘和埃及的吉萨金字塔等，而今天的图片展示的是一个石头建筑，它是西班牙阿维拉中世纪城墙的其中一部分。这些碉堡修建于11世纪至14世纪，周长超8000英尺，最初的修建目的是保护城市，抵御外来者的进攻，如今这里成为了旅游圣地，游客们可以沿着城墙漫步，欣赏城市和周围乡村的美景。
+> Happy International Day for Monuments and Sites! Also called World Heritage Day, the event highlights efforts to conserve our cultural heritage. Some of the amazing heritage sites around the world include Machu Picchu in Peru and the Pyramids of Giza in Egypt. The stone structure in today's image is part of the medieval city walls of Ávila in Spain. Built between the 11th and 14th centuries to defend the city against attack, these fortifications stretch for 1.5 miles around Ávila. Nowadays, visitors can walk around sections of the walls, enjoying views of the city and the surrounding countryside.
 > 
 > 
 > 
@@ -129,9 +129,9 @@
 
 </details>
 
-| ![国际古迹遗址日](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际古迹遗址日](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Day for Monuments and Sites](https://cn.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Monuments and Sites](https://cn.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1080x1920.jpg) |ape 4K](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |20.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_1080x1920.jpg) |833378_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_1080x1920.jpg) |20.jpg) |om/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmericanWetlands_EN-US1844827155_1080x1920.jpg) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
