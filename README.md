@@ -2,12 +2,12 @@
 
 ### 20240428
 
-> 瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国 (© Adam Mowery/Tandem Stills + Motion)
+> El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 好好利用国家公园周的最后一天吧！如果你还没有时间参加为期九天的庆祝活动，请看过来！让我们带你去德克萨斯州西部的瓜达卢佩山脉国家公园看看。该公园于1972年正式成立，占地86,416英亩。在这里，瓜达卢佩山脉耸立在奇瓦瓦沙漠的盐丘之上。海拔8751英尺的瓜达卢佩峰是该山脉的最高点，也是德克萨斯州的最高点。当地另一个突出的地标是8085英尺高的酋长岩，经常被旅行者当作路标。而加利福尼亚州也有一个约3000英尺高的同名“酋长岩”，可别将二者混淆了。即使国家公园周结束了，一年中仍有很多日子可以参观这个国家丰富的自然风光。
+> Take advantage of the last day of National Park Week! If you haven't had time to take part, we've got your back. Let us take you to Guadalupe Mountains National Park in West Texas. The park, officially established in 1972, covers 86,416 acres. Here, the Guadalupe Mountains rise over the salt dunes of the Chihuahuan Desert and include the highest point in Texas, the 8,751-foot Guadalupe Peak. Pictured on today's homepage is another iconic landmark, El Capitan. Not to be confused with its famous namesake in California, this limestone cliff towers 8,085 feet high and is often used as a waymark for travelers. Even if National Park Week is over, there are plenty of days in the year to visit the country's abundant natural splendor.
 > 
 > 
 > 
@@ -15,18 +15,18 @@
 
 </details>
 
-| ![国家公园周最后一天](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国家公园周最后一天](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Last day of National Park Week](https://cn.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Last day of National Park Week](https://cn.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_1080x1920.jpg) |
 
 ### 20240427
 
-> 澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国 (© yhelfman/Getty Images)
+> Leucistic Anna's hummingbird in the Australian Garden, UC Santa Cruz Arboretum, California (© yhelfman/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 带上你的双筒望远镜和野外指南，到公园里去吧，因为今天是国家观鸟日！这个节日在四月的最后一个星期六举行，观鸟也是一项全世界数百万人都热衷的活动。世界上大约有18000种已知的鸟类。从雄伟的鹰到图中双翼雪白的蜂鸟，鸟类的形状、大小、颜色和行为多种多样，是地球上最多样化的动物群体之一。这些安娜蜂鸟通常颜色鲜艳，但亮色意味着它们的色素沉淀减少，导致它们的外表看起来更苍白。与白化鸟不同的是，这些蜂鸟的眼睛还保留着一些颜色。它们较浅的羽毛降低了保护性和伪装效果，使它们更容易受到鹰和野猫等掠食者的攻击。
+> Get your binoculars and field guide and head to a local park, as it's National Go Birding Day! Held on the last Saturday in April, this holiday celebrates birdwatching, an activity enjoyed by millions worldwide. There are approximately 18,000 known bird species around the world. Birds come in a wide range of sizes, colors, and behaviors, making them one of the most diverse groups of animals on Earth—from imposing eagles to today's tiny snowy-winged star, a leucistic Anna's hummingbird in the Australian Garden at the UC Santa Cruz Arboretum. These hummingbirds are typically vibrant in color, but leucism means some have decreased pigmentation, resulting in a paler appearance. Unlike albino birds, these hummingbirds do not have red or pink eyes. Their lighter plumage reduces protective camouflage, making them more vulnerable to predators such as hawks and feral cats.
 > 
 > 
 > 
@@ -34,37 +34,37 @@
 
 </details>
 
-| ![国家观鸟日](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国家观鸟日](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![National Go Birding Day](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_EN-US5796079642_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Go Birding Day](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_EN-US5796079642_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_EN-US5796079642_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_EN-US5796079642_1080x1920.jpg) |
 
 ### 20240426
 
-> 卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国 (© Abbie Warnock-Matthews/Shutterstock)
+> Tree of Life, Kalaloch Beach, Olympic National Park, Washington (© Abbie Warnock-Matthews/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 美国第一个植树节是在1872年举行的，从那以后，这项活动真正地生根发芽。每年四月的最后一个星期五，美国各地的人们都会通过植树来纪念这个节日，通常会把这些树献给所爱的人。这一天也是纪念树木的好日子——树木不仅为无数种动物提供家园，还能吸收二氧化碳，净化我们呼吸的空气，帮助城市保持凉爽，甚至还能起到预防洪水的作用。
+> The first Arbor Day in the US was held in 1872. Since then, the event has really taken root. On the last Friday of April, people across the country mark the occasion by planting trees, often dedicating them to a loved one. It's also a great day to celebrate trees themselves. As well as providing homes for countless species of animals, trees absorb carbon dioxide and clean the air we breathe. They also help to keep cities cooler and can even play a role in preventing floods.
 > 
-> 图中这棵神奇的树是位于华盛顿州福克斯的卡拉洛奇生命之树。这棵大型西提卡云杉的根系似乎不受地心引力的影响，紧紧贴在一条小沟壑的两侧。树下的土壤正在被流入太平洋的溪流慢慢冲刷，但不知何故，生命之树仍在继续生长。鉴于它的生命意志，不难理解这棵树是如何赢得这个绰号的。
+> The amazing tree in today's image is the Tree of Life at Kalaloch Beach on Washington's Pacific coast. Seemingly defying gravity, this large Sitka spruce's roots cling to the sides of a small gully. The soil under the tree is slowly being worn away by a stream that flows into the Pacific Ocean, yet, somehow, the Tree of Life continues to grow. Given its will to live, it's easy to understand how this tree earned its nickname.
 > 
 > 
 
 </details>
 
-| ![生命之树，华盛顿州，美国](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![生命之树，华盛顿州，美国](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Arbor Day](https://cn.bing.com/th?id=OHR.KalalochTree_EN-US5565386489_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arbor Day](https://cn.bing.com/th?id=OHR.KalalochTree_EN-US5565386489_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KalalochTree_EN-US5565386489_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KalalochTree_EN-US5565386489_1080x1920.jpg) |
 
 ### 20240425
 
-> 南极洲冰山上的阿德利企鹅 (© Patrick J. Endres/Getty Images)
+> Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 可以滑行，又何需飞行？世界企鹅日快乐！这些不会飞的鸟主要栖息在南极洲，从帝企鹅到今天的明星阿德利企鹅，种类繁多。1840年，法国冒险家儒勒·杜蒙·德维尔发现了阿德利企鹅，并决定以他心爱的妻子的名字“阿德利”来命名这种企鹅。阿德利企鹅虽然体型娇小，但游泳动作敏捷，可以潜入575英尺深的海底寻找长得像虾一样的磷虾或鱼类。它们是社会性动物，会聚集在小群中觅食、狩猎和保护自己。调皮捣蛋的阿德利企鹅还会偷窃附近巢穴中的鹅卵石来加固自己的巢穴，以保护自己的蛋和雏鸟免受南极洲恶劣环境和捕食者的伤害。
+> Why fly when you can slide? Happy World Penguin Day! There are 18 species of these flightless birds, 17 of which live in the Southern Hemisphere. Today's Antarctic image stars Adélie penguins, discovered in 1840 by French adventurer Jules Dumont d'Urville, who named them after his wife, Adèle. Despite their small size, Adélie penguins are sleek swimmers and can dive as deep as 575 feet in search of shrimp-like krill or fish. They are social animals that gather in small colonies for foraging, hunting, and protection. While it may seem mischievous, Adélies steal pebbles from nearby nests to strengthen their own, safeguarding their eggs and chicks from Antarctica's harsh conditions and predators.
 > 
 > 
 > 
@@ -72,18 +72,18 @@
 
 </details>
 
-| ![世界企鹅日](https://cn.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界企鹅日](https://cn.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Penguin Day](https://cn.bing.com/th?id=OHR.PenguinDirections_EN-US5469437415_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Penguin Day](https://cn.bing.com/th?id=OHR.PenguinDirections_EN-US5469437415_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PenguinDirections_EN-US5469437415_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PenguinDirections_EN-US5469437415_1080x1920.jpg) |
 
 ### 20240424
 
-> 盛开的白延龄草，安大略省，加拿大 (© Jun Zhang/Getty Images)
+> White trilliums blooming in Ontario, Canada (© Jun Zhang/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 三片花瓣、三片叶子和三个柱头——这就是白延龄草，它的名字源自拉丁语中的“三”，原产于北美东部，是春季最常见的林地野花之一。与一些稍有暖意就绽放色彩的“冲动型”花朵不同，这种植物开花缓慢。从美国邮票上的图案到俄亥俄州的州花，再到加拿大安大略省的官方象征，白延龄草扎根于各国文化。除了美观之外，白延龄草在草药界也有一席之地。所以，你在林间漫步时，请留意这种花卉珍品！
+> Three petals, three leaves, and three stigmas—that's the white trillium for you, whose name derived from the Latin word for 'three.' Native to eastern North America, the spring-blooming species is one of the most common woodland wildflowers. Unlike some impulsive blossoms that burst into color at the slightest hint of warmth, this plant is a slow bloomer. From gracing US postage stamps to being the state wildflower of Ohio and an official symbol of Canada's Ontario, the white trillium is ingrained in our culture. Beyond its aesthetic appeal, the plant has earned its stripes in the world of herbal medicine. So, next time you find yourself wandering through the woodland realm, keep an eye out for this floral gem!
 > 
 > 
 > 
@@ -91,18 +91,18 @@
 
 </details>
 
-| ![安大略省的白延龄草，加拿大](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![安大略省的白延龄草，加拿大](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![White trilliums blooming in Ontario, Canada](https://cn.bing.com/th?id=OHR.TrilliumOntario_EN-US5180679465_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![White trilliums blooming in Ontario, Canada](https://cn.bing.com/th?id=OHR.TrilliumOntario_EN-US5180679465_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrilliumOntario_EN-US5180679465_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrilliumOntario_EN-US5180679465_1080x1920.jpg) |
 
 ### 20240423
 
-> 三一学院图书馆，都柏林，爱尔兰 (© Vincent Isore/Getty Images)
+> Library of Trinity College Dublin, Ireland (© Vincent Isore/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在爱尔兰中心，在都柏林三一学院图书馆历史悠久的大厅里，卷轴和古籍低声诉说着久远的故事。今天，这些沉默的故事讲述者将大放异彩。世界图书日由联合国教科文组织于1995年设立，旨在提醒人们阅读、出版和版权的重要性。但为什么是4月23日呢？因为这一天是威廉·莎士比亚、米格尔·德·塞万提斯和其他几位文学巨匠共同的忌日！从每年在马里兰州肯辛顿举办的汇集众多作家、诗人和文学组织的街头庆祝活动，到世界各地许多国家向孩子们分发图书券，这一天在书页翻动的沙沙声中变得生机勃勃。有趣的是，联合国教科文组织每年都会推选一个城市为“世界图书之都”，被选中的城市将在被授予的一年中开展促进阅读的活动，今年当选是法国斯特拉斯堡。那么，你选好要读的书了吗？
+> In the heart of Ireland, amidst the storied halls of the Library of Trinity College Dublin, scrolls and tomes whisper tales of long-gone eras. Today, these silent storytellers shine for World Book Day. Established by UNESCO in 1995, the day serves as a reminder of the importance of reading, publishing, and copyright. But why April 23? It marks the shared death anniversary of William Shakespeare, Miguel de Cervantes, and several other literary greats. From the annual street festival exhibiting authors, poets, and literary organizations in Kensington, Maryland, to the distribution of book vouchers to kids in many countries around the world, this day comes alive with the rustle of turning pages. Interestingly, each year, UNESCO crowns one city as the 'World Book Capital.' The chosen city then carries out activities aimed at promoting reading for the awarded year; this year it is Strasbourg, France. So, have you picked out a book to read yet?
 > 
 > 
 > 
@@ -110,34 +110,28 @@
 
 </details>
 
-| ![世界读书日](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界读书日](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Book Day](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Book Day](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_1080x1920.jpg) |
 
 ### 20240422
 
-> 绿海龟，圣地亚哥，加利福尼亚，美国 (© Ralph Pace/Minden Pictures)
+> Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 今天是“地球日”，一个专门为保护地球环境而设立的节日，旨在提高民众对于现有环境问题的认识。1969年，时任威斯康星州参议员的盖洛德·纳尔逊目睹了库亚霍加河着火和圣巴巴拉石油泄漏等事件，他认为世界需要一项环保倡议，于是埋下了设立“地球日”的种子。一年后，首届“地球日”活动举行。现在，“地球日”已经发展成为一年一度的活动，有超过193个国家的10亿多人参加。今年，这项活动的重点是塑料，因为塑料污染已经严重影响了陆地和海洋环境。许多物种，包括图片中的这只绿海龟，误将海洋中的塑料垃圾当作食物食用。并且，这些塑料垃圾还会带来缠绕风险，也有可能分解成微塑料。每年约有2500万吨塑料进入水生生态系统。因此，赶快行动起来吧！植树造林、清理海滩，倡导环境保护及可持续发展，为人类共同的家园贡献自己的一份力量。毕竟，没有第二个地球！
+> Today is Earth Day—a day dedicated to celebrating the planet we call home and raising awareness of environmental problems. The seeds of this day were planted back in 1969 when Senator Gaylord Nelson of Wisconsin witnessed events like the Cuyahoga River catching fire and the Santa Barbara oil spill and decided that the world needed an environmental initiative. A year later, the first Earth Day event was held. Now, it has grown into an annual event with more than a billion people in over 193 countries taking part.
 > 
-> 
+> This year, the campaign's focus is on plastics, which are a particularly serious form of pollution on land and in the oceans. Many species—including this green sea turtle—eat plastic waste, mistaking it for food. Plastics also pose an entanglement risk and can also break down to become microplastics. Every year, 25 million tons of plastic enter aquatic ecosystems. So, whether you're planting trees, cleaning up beaches, or simply spreading the word, let's remember to promote sustainable living. After all, there's no planet B!
 > 
 > 
 
 </details>
 
-| ![世界地球日](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界地球日](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Earth Day](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Earth Day](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_1080x1920.jpg) |iends and get out into the wild.
-> 
-> 
-
-</details>
-
-| ![National Park Week begins](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Park Week begins](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_1080x1920.jpg) |ser_EN-US3470127711_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_1080x1920.jpg) |1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
