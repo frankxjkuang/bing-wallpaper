@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240429
+
+> Fujian Tulou complex of historical and cultural heritage buildings in Fujian province, China (© Hongjie Han/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Let's step into a world of giant earthen homes designed to house a village. These 'tulou' structures, built between the 12th and 20th centuries, are the dwellings of the Hakka community in China's mountainous southeastern Fujian region. The homes are constructed from clay, sandy soil, and gray tiles, with bamboo strips serving as the support. They were built to house a whole clan, up to 800 people each. From above, these round dwellings look like giant tires or reels lying on their sides, with light walls, dark roofs, and spacious interiors.
+> 
+> Historically, these buildings were communal living spaces and defensive zones for Hakka clans. They were built with uniformly sized and shaped family areas, fostering a sense of equality and community. In 2008, UNESCO added Fujian Tulou, which includes 46 of the buildings, to its list of World Heritage Sites, recognizing their unique building tradition. So, if you are longing for a getaway that transcends the ordinary, come to Fujian Tulou!
+> 
+> 
+
+</details>
+
+| ![Fujian Tulou, China](https://cn.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fujian Tulou, China](https://cn.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_1080x1920.jpg) |
+
 ### 20240428
 
 > El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![World Book Day](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Book Day](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_1080x1920.jpg) |
-
-### 20240422
-
-> Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Today is Earth Day—a day dedicated to celebrating the planet we call home and raising awareness of environmental problems. The seeds of this day were planted back in 1969 when Senator Gaylord Nelson of Wisconsin witnessed events like the Cuyahoga River catching fire and the Santa Barbara oil spill and decided that the world needed an environmental initiative. A year later, the first Earth Day event was held. Now, it has grown into an annual event with more than a billion people in over 193 countries taking part.
-> 
-> This year, the campaign's focus is on plastics, which are a particularly serious form of pollution on land and in the oceans. Many species—including this green sea turtle—eat plastic waste, mistaking it for food. Plastics also pose an entanglement risk and can also break down to become microplastics. Every year, 25 million tons of plastic enter aquatic ecosystems. So, whether you're planting trees, cleaning up beaches, or simply spreading the word, let's remember to promote sustainable living. After all, there's no planet B!
-> 
-> 
-
-</details>
-
-| ![Earth Day](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Earth Day](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_1080x1920.jpg) |ser_EN-US3470127711_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_1080x1920.jpg) |) |ser_EN-US3470127711_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_1080x1920.jpg) |1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
