@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240505
+
+> Colonnade in San Miguel de Allende, Guanajuato, Mexico (© Mint Images/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today's homepage takes us to the Mexican city of San Miguel de Allende, to toast Cinco de Mayo, or 'Fifth of May.' Not to be confused with Mexico's Independence Day, Cinco de Mayo instead marks Mexico’s 1862 triumph over France at the Battle of Puebla. The holiday is observed in Mexico but has become popular in the US since the 1980s thanks to various advertising campaigns. Here it has evolved into a wider celebration of Mexican culture, whether it is food, history, art, or the colorful architecture of cities like San Miguel de Allende, established in the 16th century, a UNESCO World Heritage Site.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Happy Cinco de Mayo!](https://cn.bing.com/th?id=OHR.SanMiguelAllende_EN-US9621237021_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Cinco de Mayo!](https://cn.bing.com/th?id=OHR.SanMiguelAllende_EN-US9621237021_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SanMiguelAllende_EN-US9621237021_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SanMiguelAllende_EN-US9621237021_1080x1920.jpg) |
+
 ### 20240504
 
 > Ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Fujian Tulou, China](https://cn.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fujian Tulou, China](https://cn.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_1080x1920.jpg) |
-
-### 20240428
-
-> El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Take advantage of the last day of National Park Week! If you haven't had time to take part, we've got your back. Let us take you to Guadalupe Mountains National Park in West Texas. The park, officially established in 1972, covers 86,416 acres. Here, the Guadalupe Mountains rise over the salt dunes of the Chihuahuan Desert and include the highest point in Texas, the 8,751-foot Guadalupe Peak. Pictured on today's homepage is another iconic landmark, El Capitan. Not to be confused with its famous namesake in California, this limestone cliff towers 8,085 feet high and is often used as a waymark for travelers. Even if National Park Week is over, there are plenty of days in the year to visit the country's abundant natural splendor.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Last day of National Park Week](https://cn.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Last day of National Park Week](https://cn.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_1080x1920.jpg) |pg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_EN-US5796079642_1080x1920.jpg) |巢穴，以保护自己的蛋和雏鸟免受南极洲恶劣环境和捕食者的伤害。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_1080x1920.jpg) |bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_1080x1920.jpg) |pg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_EN-US5796079642_1080x1920.jpg) |巢穴，以保护自己的蛋和雏鸟免受南极洲恶劣环境和捕食者的伤害。
 > 
 > 
 > 
