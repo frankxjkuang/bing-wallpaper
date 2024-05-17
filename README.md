@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240515
+
+> The Blue City of Jodhpur, India (© cinoby/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to Jodhpur, a city in the Thar Desert in India, where it isn't just the sky that's blue—it's the houses too! The buildings in Jodhpur's old district are painted light blue, giving rise to its nickname: The Blue City. For more than five centuries, this city in the state of Rajasthan has been known for its thriving textile industry, fine furniture shops, cuisine, and bustling markets. Among its forts, palaces, mausoleums, gardens, and lakes, are the famous Mehrangarh Fort and Umaid Bhawan Palace. Come and explore the wonders of this blue city!
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![The Blue City of Jodhpur, Rajasthan, India](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Blue City of Jodhpur, Rajasthan, India](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_1080x1920.jpg) |
+
 ### 20240514
 
 > Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Tulips at Emirgan Park in Istanbul, Türkiye](https://cn.bing.com/th?id=OHR.EmirganPark_EN-US0659286862_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tulips at Emirgan Park in Istanbul, Türkiye](https://cn.bing.com/th?id=OHR.EmirganPark_EN-US0659286862_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EmirganPark_EN-US0659286862_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EmirganPark_EN-US0659286862_1080x1920.jpg) |
-
-### 20240508
-
-> View of Château d'If in the port of Marseille, France (© Sergii Figurnyi/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Get ready to soak up the sun and Olympic spirit in Marseille, France. A coastal city rich in maritime heritage and cultural diversity, today it welcomes the arrival of the Olympic torch on French soil. The fire was lit in Olympia, Greece, on April 16. Symbolizing the link between the modern games and their ancient Greek heritage, the flame embarks on its journey around host nation France, ahead of the Paris Olympics. The Summer Olympics will begin on July 26. As Marseille prepares to host the Olympic sailing competition, the city pulsates with energy, blending tradition with innovation.
-> 
-> The Château d'If, seen from afar in today's image, featured in Alexandre Dumas' famous novel 'The Count of Monte Cristo.' Standing steadfast amidst the azure waters, the château, built in the 16th century, whispers tales of its past as a Renaissance fortress, prison, and literary muse.
-> 
-> 
-
-</details>
-
-| ![Marseille welcomes the Olympic torch](https://cn.bing.com/th?id=OHR.PortMarseille_EN-US0558123049_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Marseille welcomes the Olympic torch](https://cn.bing.com/th?id=OHR.PortMarseille_EN-US0558123049_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EmirganPark_EN-US0659286862_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EmirganPark_EN-US0659286862_1080x1920.jpg) |ic torch](https://cn.bing.com/th?id=OHR.PortMarseille_EN-US0558123049_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PortMarseille_EN-US0558123049_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PortMarseille_EN-US0558123049_1080x1920.jpg) |m/th?id=OHR.LittleDuckling_ZH-CN2922471258_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![一只小鸭子在水草地上游泳，萨福克郡，英国](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
