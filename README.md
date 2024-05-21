@@ -2,12 +2,12 @@
 
 ### 20240519
 
-> 韦尔纳扎村，五渔村，利古里亚，意大利 (© Roberto Moiola/Sysaworld/Getty Images)
+> Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 韦尔纳扎是意大利西北部五渔村的一个村庄，坐落在意大利里维埃拉崎岖的悬崖上。在这里，古建筑矗立在利古里亚海的海岸线上，生活中充满了渔民的喧嚣。韦尔纳扎（Vernazza）得名于当地一种名为“Vernaccia”的葡萄酒，“Vernaccia”这个词的意思是“本地的”或“我们的”。该地区最著名的古迹之一是多利亚城堡，建于15世纪，是一个防御堡垒，用于保护村庄免受频繁的海盗袭击。由于19世纪热那亚-拉斯佩齐亚铁路的修建，该村的陆路交通变得更加便利。鹅卵石铺就的街道没有汽车，非常适合步行游览。在这里，你可能想参观圣玛尔塔教堂和雷焦圣母圣殿。你知道吗，这里还是2021年动画电影《卢卡》的灵感来源！韦尔纳扎不仅仅是一个旅游胜地，它还是为那些追求意大利最纯粹灵魂的人准备的一片世外桃源。
+> Perched on the rugged cliffs of the Italian Riviera, Vernazza is one of the five villages of the Cinque Terre area of northwestern Italy. Here, ancient buildings stand along the coastline of the Ligurian Sea, and life is filled with the hustle and bustle of the fishing industry. Vernazza got its name from the indigenous wine, 'vernaccia,' meaning 'local' or 'ours.' One of the best-known monuments in the area is the medieval Doria Castle, built as a defensive fortress to protect the village from frequent pirate attacks. Thanks to the construction of the Genoa–La Spezia rail line in the 19th century, the village became more accessible by land. The car-free cobblestone streets are ideal for walking around. While here, you might want to visit the Chapel of Santa Marta and the Sanctuary of Madonna di Reggio. Vernazza is sometimes described as the pearl of the Cinque Terre with its natural port, colorful houses, and green terraces overlooking a sparkling sea.
 > 
 > 
 > 
@@ -15,75 +15,75 @@
 
 </details>
 
-| ![韦尔纳扎，五渔村，利古里亚，意大利](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![韦尔纳扎，五渔村，利古里亚，意大利](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Vernazza, Cinque Terre, Liguria, Italy](https://cn.bing.com/th?id=OHR.VernazzaItaly_EN-US2643430613_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vernazza, Cinque Terre, Liguria, Italy](https://cn.bing.com/th?id=OHR.VernazzaItaly_EN-US2643430613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VernazzaItaly_EN-US2643430613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VernazzaItaly_EN-US2643430613_1080x1920.jpg) |
 
 ### 20240518
 
-> 破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大 (© Ron Watts/Design Pics/Getty Images)
+> Blue whale skeleton in the Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 在温哥华岛的西海岸，深绿色的温带雨林与岩石海岸和沙滩交相辉映。让我们一起参观一下环太平洋国家公园保护区吧！该保护区占地511平方公里，于1970年被认定为国家公园。几个世纪以来，该地区的努查努阿特人一直在这片土地上生活。如今，努查努阿特人下属的15个部落中，有7个部落在公园内拥有至少22个小型保护区，有9个部落与公园接壤。保护区的另一个显著特征是沿海西部铁杉生物气候带。这片温带森林地带是黑熊、温哥华岛美洲狮和貂等多种动物的家园。
+> In the grand Hintze Hall of the Natural History Museum in London, UK, a skeleton named Hope soars overhead—a blue whale caught mid-dive above the heads of awestruck visitors. As we mark International Museum Day, there's no better time to celebrate our world's repositories of history, art, and science. The event emphasizes the importance of museums as a means of cultural exchange, the development of mutual understanding, and cooperation among people.
 > 
-> 从今天的图片中可以看到，破碎群岛是由散落在巴克利湾上的一系列小岛和礁石组成的。历史爱好者可以探索沉船之路，那是一条为遇难海员提供紧急救援的路线。在环太平洋国家公园保护区邂逅荒野，这里的探险经历将成为您珍贵的回忆。
+> The Natural History Museum in London, pictured, was established in 1881 and boasts 80 million specimens, including fossils, minerals, and taxidermy exhibits. Hope's 83-foot-long frame is the entrance hall's centerpiece. Let Hope inspire a visit to your local museum this International Museum Day, reignite curiosity, and spark wonder in your heart.
 > 
 > 
 
 </details>
 
-| ![环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Museum Day](https://cn.bing.com/th?id=OHR.MuseumWhale_EN-US2412212162_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Museum Day](https://cn.bing.com/th?id=OHR.MuseumWhale_EN-US2412212162_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumWhale_EN-US2412212162_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumWhale_EN-US2412212162_1080x1920.jpg) |
 
 ### 20240517
 
-> 塔兰吉雷国家公园的非洲象家族，坦桑尼亚 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+> A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 今天是“濒危物种日”，让我们齐心协力保护濒危物种。每年五月的第三个星期五，我们都会密切关注动物和植物。濒危物种联盟于2006年创立了这个活动，旨在为拯救濒危物种而努力。目前，濒临灭绝的物种已超过44,000种。世界上最濒危的动物包括爪哇犀牛、黑犀牛、山地大猩猩和玳瑁。
+> Today, on Endangered Species Day, we unite in a collective effort for conservation. Currently, there are over 44,000 species that are threatened with extinction. Among the world's most endangered animals are Javan and black rhinos, mountain gorillas, and Hawksbill turtles.
 > 
-> 今天，让我们带您前往坦桑尼亚的塔兰吉雷国家公园，那是非洲象自由漫步的地方。这些温顺的庞然大物的特点是大如蒲扇的耳朵、长长的鼻子和弯曲的象牙。非洲象喜欢群居，族长都是母象，成员之间会通过低频声波进行交流。不幸的是，栖息地的丧失和偷猎等威胁使它们濒临灭绝。正所谓“兔死狐悲，物伤其类”，让我们在地球的呼救声中，为这些我们尚能挽救的生命而努力吧！
+> Today, let us take you to the Tarangire National Park in Tanzania, where African elephants roam freely. These gentle giants are characterized by their large, flapping ears, long trunks, and curved tusks. They live in small family groups led by a matriarch and while they are known to noisily trumpet, they also communicate over distances through low-frequency sound waves. Unfortunately, threats like habitat loss and poaching have left them on the brink of extinction. Endangered Species Day highlights efforts to protect all endangered animal and plant species worldwide, big and small.
 > 
 > 
 
 </details>
 
-| ![濒危物种日](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![濒危物种日](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Endangered Species Day](https://cn.bing.com/th?id=OHR.TarangireElephants_EN-US8865263185_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Day](https://cn.bing.com/th?id=OHR.TarangireElephants_EN-US8865263185_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TarangireElephants_EN-US8865263185_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TarangireElephants_EN-US8865263185_1080x1920.jpg) |
 
 ### 20240516
 
-> 维戈的兰德大桥，西班牙 (© Julio Conde/Getty Images)
+> 'Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)
 
 <details>
 <summary>Description</summary>
 
-> 您准备好穿越时空了吗？为了纪念1809年维戈人民发动起义反对法国入侵，使维戈成为欧洲首个成功驱逐拿破仑军队的城市，每年春天，维戈的居民都会盛装打扮，回到1809年，庆祝他们重新夺回维戈。
+> Happy International Day of Light! Held on May 16, it marks the anniversary of the invention of the laser by the American physicist and engineer Theodore Maiman in 1960. This pioneering creation helped revolutionize fields from communications to health care and lasers are now found in everything from printers and barcode scanners to surgical devices. Today's event also celebrates light's presence in every aspect of human existence, from art and culture to science and technology.
 > 
-> 为了纪念这段历史，村民们会穿着农民和水手的服装，再现这场战役。在这个活动中，也有孩子们的一席之地。孩子们会穿着19世纪的服装，以寓教于乐的方式重温这段历史。
+> Today's image features 'Feelings Are Facts,' a collaborative installation by Danish-Icelandic artist Olafur Eliasson and Beijing-based architect Ma Yansong. In 2010 it filled the Great Hall of the Ullens Center for Contemporary Art in Beijing with illuminated fog. A grid of lights partitioned the haze into the primary colors of red, green, and blue, blending seamlessly at intersections to create transitional hues of cyan, magenta, and yellow. Gallery visitors relied solely on intersecting hues of colored fields to navigate the fog.
 > 
-> 在模拟战斗的喧嚣声中，你可以在200多个摊位品尝当地美食，这些摊位将该地区变成了19世纪的集市：伴随着传统音乐和舞蹈，这里有肉馅卷饼、巴西烤肉和美味的加利西亚葡萄酒。这个国家级旅游文化节吸引了成千上万的游客，是探索维哥河口和感受其历史的绝佳机会。
+> 
 
 </details>
 
-| ![庆祝重新夺回维戈](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![庆祝重新夺回维戈](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Day of Light](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Light](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
 
 ### 20240515
 
-> 焦特布尔蓝色之城，印度 (© cinoby/Getty Images)
+> The Blue City of Jodhpur, India (© cinoby/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 欢迎来到印度拉贾斯坦邦的第二大城市焦特布尔，这里不仅天空是蓝色的，房子也是蓝色的！焦特布尔位于塔尔沙漠中，老城区所有的建筑都被涂成了浅蓝色，因此这座城市也被称为蓝色之城。焦特布尔（Jodhpur）这个名字源于其创始人拉奥·乔达(Rao Jodha)（“Jodh”代表Rao Jodha，“pur”在梵文中是城市的意思，连在一起意为“乔达之城”。）拉奥·乔达属于拉索尔氏族，他创建了焦特布尔，推动了城市基础设施的建设，因此被人们熟知。建城五个多世纪以来，焦特布尔一直以繁荣的纺织业、精致的家具店、美食佳肴以及繁华的街市而闻名。在景点方面，它因堡垒、宫殿、陵墓、花园和湖泊而出名，部分景点颇有名气，如梅兰加尔城堡和乌麦巴旺皇宫。快来探索这座蓝色城市的奇观吧!
+> Welcome to Jodhpur, a city in the Thar Desert in India, where it isn't just the sky that's blue—it's the houses too! The buildings in Jodhpur's old district are painted light blue, giving rise to its nickname: The Blue City. For more than five centuries, this city in the state of Rajasthan has been known for its thriving textile industry, fine furniture shops, cuisine, and bustling markets. Among its forts, palaces, mausoleums, gardens, and lakes, are the famous Mehrangarh Fort and Umaid Bhawan Palace. Come and explore the wonders of this blue city!
 > 
 > 
 > 
@@ -91,18 +91,18 @@
 
 </details>
 
-| ![焦特布尔蓝色之城，拉贾斯坦邦，印度](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![焦特布尔蓝色之城，拉贾斯坦邦，印度](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![The Blue City of Jodhpur, Rajasthan, India](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Blue City of Jodhpur, Rajasthan, India](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_1080x1920.jpg) |
 
 ### 20240514
 
-> 通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州 (© Doug Meek/Getty Images)
+> Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 深邃的岩石峡谷，高耸的古代海礁，新墨西哥州的卡尔斯巴德洞窟国家公园拥有世界上最独特的岩层。在其沙漠美景下隐藏着119余个洞穴，这些洞穴是由硫酸溶解周围的石灰岩时形成的。1930年的今天，卡尔斯巴德洞窟国家公园正式成立，它拥有北美最大的地下洞室——“大房间”，洞室里每一个角落和缝隙都是经过数百万年时光雕琢而成的杰作，例如像枝形吊灯一样悬挂着的巨大钟乳石，以及直插“天花板”的钟乳石笋，因此它被联合国教科文组织指定为世界遗产保护地，除了拥有奇特的自然美景外，卡尔斯巴德洞窟国家公园还会组织“蝙蝠飞行观赏”等活动，游客们可以看到成千上万只蝙蝠在洞穴里飞进飞出，场面刺激又壮观。如果您向往地下探险，卡尔斯巴德洞窟国家公园一定会带给您一段独特的体验。
+> With deep rocky canyons and high ancient sea ledges, Carlsbad Caverns National Park in New Mexico boasts some of the most unique rock formations in the world. Hidden beneath its desert scenery are more than 119 caves—formed when sulfuric acid dissolved the surrounding limestone. This national park, founded on this day in 1930, is also home to North America's largest underground chamber—the Big Room. From colossal stalactite formations hanging like chandeliers to stalagmite structures reaching for the ceiling, every nook and cranny is a masterpiece crafted over millions of years. This UNESCO World Heritage Site also organizes events like bat flight viewings, which allow visitors to watch thousands of bats as they swoop in and out of the cavern. Are you ready to explore the depths?
 > 
 > 
 > 
@@ -110,18 +110,28 @@
 
 </details>
 
-| ![卡尔斯巴德洞窟国家公园](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![卡尔斯巴德洞窟国家公园](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Carlsbad Caverns National Park in New Mexico](https://cn.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Carlsbad Caverns National Park in New Mexico](https://cn.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_1080x1920.jpg) |
 
 ### 20240513
 
-> 鱼河大峡谷，纳米比亚 (© R. M. Nunes/Getty Images)
+> Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 从世界上最古老的沙漠——纳米布沙漠，到奇妙的箭袋树森林，南非的纳米比亚拥有许多宝藏旅游景点。该国家最长的河流——鱼河，在数百万年的时间里侵蚀出了欧洲大陆最大的峡谷：鱼河大峡谷，它长约100英里，深约1800英尺，蜿蜒曲折，穿过风化的片麻岩层和白云岩。作为纳米比亚的热门景点之一，鱼河大峡谷以其长达50多英里的徒步小径和“鱼河峡谷超级马拉松比赛”吸引了无数探险者。此外，峡谷里还生活着哈特曼山斑马、山羚、东部岩象鼩等大大小小的生物。无论您是来轻徒步、远足、露营或者只是欣赏美景，鱼河大峡谷一定会让您终身难忘的。
+> The longest river in Namibia—the Fish River—has carved out Africa's largest canyon over millions of years. Winding through weathered layers of gneiss and dolomite rocks, the Fish River Canyon is around 100 miles long and about 1,800 feet deep. Its hiking trail stretches for more than 50 miles, attracting adventure seekers and ultramarathon runners. Moreover, with Hartmann's mountain zebras, klipspringers, and eastern rock elephant shrews, the canyon is teeming with creatures big and small. So, whether you are there for hiking, trekking, camping, or just soaking in the scenery, one thing's for sure: Fish River Canyon is a catch you won't soon forget.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Fish River Canyon, Namibia](https://cn.bing.com/th?id=OHR.NamibiaCanyon_EN-US1337379319_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fish River Canyon, Namibia](https://cn.bing.com/th?id=OHR.NamibiaCanyon_EN-US1337379319_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_EN-US1337379319_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_EN-US1337379319_1080x1920.jpg) |此外，峡谷里还生活着哈特曼山斑马、山羚、东部岩象鼩等大大小小的生物。无论您是来轻徒步、远足、露营或者只是欣赏美景，鱼河大峡谷一定会让您终身难忘的。
 > 
 > 
 > 
