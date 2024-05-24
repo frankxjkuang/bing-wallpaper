@@ -1,5 +1,43 @@
 ## bing wallpaper
 
+### 20240522
+
+> Tasmanian snow gum trees, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today we're celebrating the biodiversity of our planet. What exactly is biodiversity? It refers to the variety of living things, from animals and plants to fungi and microorganisms, in one area. This delicate but vigorous balance in nature is what keeps us all alive. That's definitely worth celebrating! May 22 was named International Day for Biological Diversity by the United Nations in 2000. Unfortunately, the biodiversity of Earth is slowly decreasing due to climate change, the draining of natural resources, urbanization, and pollution, among other factors. Campaigners are urging governments, businesses and individuals to take action to boost biodiversity, to protect healthy ecosystems that supply us with water, food, medicines, and more. After all, we are blessed with intriguing species such as the Tasmanian snow gum—the tree seen in today's image—that takes root in one of the most biologically diverse places on the planet, the Mount Field National Park in Tasmania, Australia.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![International Day for Biological Diversity](https://cn.bing.com/th?id=OHR.SnowGumTasmania_EN-US4058572259_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biological Diversity](https://cn.bing.com/th?id=OHR.SnowGumTasmania_EN-US4058572259_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowGumTasmania_EN-US4058572259_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowGumTasmania_EN-US4058572259_1080x1920.jpg) |
+
+### 20240521
+
+> Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> There's nothing quite like a nice cup of tea. Whether you like Darjeeling, Earl Grey, oolong, matcha, or English breakfast, today's the day to celebrate this beloved brew: May 21 is International Tea Day. People have been drinking tea for at least 5,000 years. The drink originated in China, but in the 16th and 17th centuries, it was introduced to Western merchants, who helped to spread it around the world. It is now the second-most consumed drink in the world after water.
+> 
+> Today's photo takes us to Malaysia and the tea plantations of the Cameron Highlands. Located around 120 miles north of Kuala Lumpur, the Cameron Highlands' cooler climate and high altitude make it perfect for tea growing. The area is a popular tourist destination, offering visitors stunning landscapes to explore, including rolling hills, towering mountains, and an ancient cloud forest.
+> 
+> 
+
+</details>
+
+| ![International Tea Day](https://cn.bing.com/th?id=OHR.MalaysiaTea_EN-US3322214623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Tea Day](https://cn.bing.com/th?id=OHR.MalaysiaTea_EN-US3322214623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MalaysiaTea_EN-US3322214623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MalaysiaTea_EN-US3322214623_1080x1920.jpg) |
+
 ### 20240520
 
 > Bee tending a honeycomb (© Simun Ascic/Alamy)
@@ -94,52 +132,6 @@
 | ![International Day of Light](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Light](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
-
-### 20240515
-
-> The Blue City of Jodhpur, India (© cinoby/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to Jodhpur, a city in the Thar Desert in India, where it isn't just the sky that's blue—it's the houses too! The buildings in Jodhpur's old district are painted light blue, giving rise to its nickname: The Blue City. For more than five centuries, this city in the state of Rajasthan has been known for its thriving textile industry, fine furniture shops, cuisine, and bustling markets. Among its forts, palaces, mausoleums, gardens, and lakes, are the famous Mehrangarh Fort and Umaid Bhawan Palace. Come and explore the wonders of this blue city!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![The Blue City of Jodhpur, Rajasthan, India](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Blue City of Jodhpur, Rajasthan, India](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_1080x1920.jpg) |
-
-### 20240514
-
-> Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> With deep rocky canyons and high ancient sea ledges, Carlsbad Caverns National Park in New Mexico boasts some of the most unique rock formations in the world. Hidden beneath its desert scenery are more than 119 caves—formed when sulfuric acid dissolved the surrounding limestone. This national park, founded on this day in 1930, is also home to North America's largest underground chamber—the Big Room. From colossal stalactite formations hanging like chandeliers to stalagmite structures reaching for the ceiling, every nook and cranny is a masterpiece crafted over millions of years. This UNESCO World Heritage Site also organizes events like bat flight viewings, which allow visitors to watch thousands of bats as they swoop in and out of the cavern. Are you ready to explore the depths?
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Carlsbad Caverns National Park in New Mexico](https://cn.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Carlsbad Caverns National Park in New Mexico](https://cn.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_1080x1920.jpg) |峡谷里还生活着哈特曼山斑马、山羚、东部岩象鼩等大大小小的生物。无论您是来轻徒步、远足、露营或者只是欣赏美景，鱼河大峡谷一定会让您终身难忘的。
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![鱼河大峡谷，纳米比亚](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![鱼河大峡谷，纳米比亚](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1080x1920.jpg) |) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
