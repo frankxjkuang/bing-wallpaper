@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240525
+
+> Aït Benhaddou, Morocco (© Grant Faint/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Are you looking for sandy charms? Come to Aït Benhaddou, Morocco, on the old caravan route linking the Sahara to Marrakesh. This UNESCO World Heritage Site showcases Moroccan earthen clay architecture, made using sun-dried mud. Although none of the buildings here are believed to predate the 17th century, they are constructed using techniques and styles that are much older. Located on the gentle slopes overlooking the Asif Ounila (Ounila River) the Ksar of Aït Benhaddou is a fortified village, clustered within a defensive wall with corner towers. The ksar's communal landscape includes a public square, a mosque, grain-threshing areas beyond the fortifications, and a caravanserai—a type of roadside inn, among other features. So, if you are seeking a journey off the beaten path, Aït Benhaddou awaits you.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Aït Benhaddou, Morocco](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aït Benhaddou, Morocco](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_1080x1920.jpg) |
+
 ### 20240524
 
 > Añisclo Canyon, Ordesa y Monte Perdido National Park, Huesca, Spain (© Marisa Estivill/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Vernazza, Cinque Terre, Liguria, Italy](https://cn.bing.com/th?id=OHR.VernazzaItaly_EN-US2643430613_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vernazza, Cinque Terre, Liguria, Italy](https://cn.bing.com/th?id=OHR.VernazzaItaly_EN-US2643430613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VernazzaItaly_EN-US2643430613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VernazzaItaly_EN-US2643430613_1080x1920.jpg) |
-
-### 20240518
-
-> Blue whale skeleton in the Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> In the grand Hintze Hall of the Natural History Museum in London, UK, a skeleton named Hope soars overhead—a blue whale caught mid-dive above the heads of awestruck visitors. As we mark International Museum Day, there's no better time to celebrate our world's repositories of history, art, and science. The event emphasizes the importance of museums as a means of cultural exchange, the development of mutual understanding, and cooperation among people.
-> 
-> The Natural History Museum in London, pictured, was established in 1881 and boasts 80 million specimens, including fossils, minerals, and taxidermy exhibits. Hope's 83-foot-long frame is the entrance hall's centerpiece. Let Hope inspire a visit to your local museum this International Museum Day, reignite curiosity, and spark wonder in your heart.
-> 
-> 
-
-</details>
-
-| ![International Museum Day](https://cn.bing.com/th?id=OHR.MuseumWhale_EN-US2412212162_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Museum Day](https://cn.bing.com/th?id=OHR.MuseumWhale_EN-US2412212162_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumWhale_EN-US2412212162_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumWhale_EN-US2412212162_1080x1920.jpg) |S8865263185_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TarangireElephants_EN-US8865263185_1080x1920.jpg) |Light_EN-US1723401316_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Light](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VernazzaItaly_EN-US2643430613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VernazzaItaly_EN-US2643430613_1080x1920.jpg) |62_1080x1920.jpg) |S8865263185_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TarangireElephants_EN-US8865263185_1080x1920.jpg) |Light_EN-US1723401316_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Light](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
 |:---------:|:---------:|
