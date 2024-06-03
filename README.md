@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240601
+
+> San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> June is Pride Month, commemorating the Stonewall uprising, a series of protests by the LGBTQIA+ community that took place on June 28, 1969, in response to a police raid at the Stonewall Inn in Greenwich Village in New York City. Various events around the world are held in June to honor and celebrate the LGBTQIA+ community, their history, achievements, and ongoing pursuit for equality. This month, vibrant parades hit the streets, and buildings light up in the colors of the rainbow—a symbol of the LGBTQIA+ social movements—in numerous cities to praise freedom for all. Today's homepage shows the skyline of San Francisco, home to one of the largest and oldest Pride parades, with City Hall lit up in rainbow lights.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Pride Month](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride Month](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_1080x1920.jpg) |
+
 ### 20240531
 
 > Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Methow Valley, North Cascades, Washington](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Methow Valley, North Cascades, Washington](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_1080x1920.jpg) |
-
-### 20240525
-
-> Aït Benhaddou, Morocco (© Grant Faint/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Are you looking for sandy charms? Come to Aït Benhaddou, Morocco, on the old caravan route linking the Sahara to Marrakesh. This UNESCO World Heritage Site showcases Moroccan earthen clay architecture, made using sun-dried mud. Although none of the buildings here are believed to predate the 17th century, they are constructed using techniques and styles that are much older. Located on the gentle slopes overlooking the Asif Ounila (Ounila River) the Ksar of Aït Benhaddou is a fortified village, clustered within a defensive wall with corner towers. The ksar's communal landscape includes a public square, a mosque, grain-threshing areas beyond the fortifications, and a caravanserai—a type of roadside inn, among other features. So, if you are seeking a journey off the beaten path, Aït Benhaddou awaits you.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Aït Benhaddou, Morocco](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aït Benhaddou, Morocco](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_1080x1920.jpg) |://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_1080x1920.jpg) |://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1080x1920.jpg) |) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
