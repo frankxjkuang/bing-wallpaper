@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240602
+
+> Flowers blooming in a garden, Alaska (© jet 67/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> It's time to grab a trowel, roll up your sleeves, and get planting: National Gardening Week is starting today! Taking place in the first full week of June, this event was created by the National Garden Clubs, a nonprofit organization dedicated to the joys of horticulture. First celebrated in 1987 this week is all about getting more people involved in gardening and spreading awareness of how important gardens are. Being home to a wide range of trees, flowers, shrubs, and grasses, gardens can help the environment by absorbing carbon dioxide, filtering water, and encouraging insect life. Gardening clubs across the country celebrate this week by organizing workshops, visiting public gardens, or placing plants at public facilities. They're also great for people; tending to a garden is good exercise, and being outside in the sunshine is a great way to get more vitamin D. Gardening can even boost your mood, helping you to feel more relaxed and peaceful.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![National Gardening Week](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Gardening Week](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_1080x1920.jpg) |
+
 ### 20240601
 
 > San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Fallen but not forgotten](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fallen but not forgotten](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_1080x1920.jpg) |
-
-### 20240526
-
-> Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> If you're looking for meadows blanketed with vibrant wildflowers, the Methow Valley in the North Cascade Mountains, Washington, is the place for you. The spiky purple, blue, and white lupines and golden balsamroot flowers create a picturesque contrast with the area's rugged mountains. These flowers also play crucial roles in the valley's ecosystem. Lupines are nitrogen-fixing plants which help to improve soil fertility while balsamroot attracts pollinators like bees and butterflies, helping plants to reproduce and contributing to the biodiversity of the region. Whether you're a seasoned botanist or nature enthusiast, the wildflowers of the Methow Valley will surely leave a lasting impression of the enchanting wilderness.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Methow Valley, North Cascades, Washington](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Methow Valley, North Cascades, Washington](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_1080x1920.jpg) |://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1080x1920.jpg) |) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
