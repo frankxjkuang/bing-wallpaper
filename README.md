@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240603
+
+> Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Bicycles are the best! An environmentally friendly form of transportation that is affordable and good for your health. Once you learn to ride, you'll never forget how to wheel around. Thanks to Polish American scientist Leszek Sibiliski's initiative, the United Nations declared June 3 World Bicycle Day in 2018.
+> 
+> Karl von Drais, a German inventor, is credited with developing the first two-wheeler, known variously as the laufmaschine, draisine, and vélocipède, in 1817. It certainly needed some further thinking, since the wooden frame and wheels didn't have pedals. The modern versions of bikes were developed in the late 1800s, but the materials used for them are constantly evolving to make the ride easier and more secure. So, hop on a bike to find your crew on World Bicycle Day!
+> 
+> 
+
+</details>
+
+| ![World Bicycle Day](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bicycle Day](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_1080x1920.jpg) |
+
 ### 20240602
 
 > Flowers blooming in a garden, Alaska (© jet 67/Shutterstock)
@@ -7,7 +26,7 @@
 <details>
 <summary>Description</summary>
 
-> It's time to grab a trowel, roll up your sleeves, and get planting: National Gardening Week is starting today! Taking place in the first full week of June, this event was created by the National Garden Clubs, a nonprofit organization dedicated to the joys of horticulture. First celebrated in 1987 this week is all about getting more people involved in gardening and spreading awareness of how important gardens are. Being home to a wide range of trees, flowers, shrubs, and grasses, gardens can help the environment by absorbing carbon dioxide, filtering water, and encouraging insect life. Gardening clubs across the country celebrate this week by organizing workshops, visiting public gardens, or placing plants at public facilities. They're also great for people; tending to a garden is good exercise, and being outside in the sunshine is a great way to get more vitamin D. Gardening can even boost your mood, helping you to feel more relaxed and peaceful.
+> It's time to grab a trowel, roll up your sleeves, and get planting: National Gardening Week is starting today! First celebrated in 1987, the week is all about getting more people involved in gardening. Being home to a wide range of trees, flowers, shrubs, and grasses, gardens can help the environment by absorbing carbon dioxide, filtering water, and encouraging insect life. Gardening clubs across the country celebrate this week by organizing workshops, visiting public gardens, or placing plants at public facilities. Tending to a garden is also good exercise and being outside in the sunshine is a great way to get more vitamin D. Gardening can even boost your mood, helping you to feel more relaxed and peaceful. As the actress and keen gardener Audrey Hepburn put it: 'To plant a garden is to believe in tomorrow.'
 > 
 > 
 > 
@@ -26,7 +45,7 @@
 <details>
 <summary>Description</summary>
 
-> June is Pride Month, commemorating the Stonewall uprising, a series of protests by the LGBTQIA+ community that took place on June 28, 1969, in response to a police raid at the Stonewall Inn in Greenwich Village in New York City. Various events around the world are held in June to honor and celebrate the LGBTQIA+ community, their history, achievements, and ongoing pursuit for equality. This month, vibrant parades hit the streets, and buildings light up in the colors of the rainbow—a symbol of the LGBTQIA+ social movements—in numerous cities to praise freedom for all. Today's homepage shows the skyline of San Francisco, home to one of the largest and oldest Pride parades, with City Hall lit up in rainbow lights.
+> June is Pride Month, commemorating the Stonewall uprising, a series of protests by the LGBTQIA+ community that began on June 28, 1969, in response to a police raid at the Stonewall Inn in Greenwich Village in New York City. Various events around the world are held in June to honor and celebrate the LGBTQIA+ community, their history, achievements, and ongoing pursuit for equality. This month, vibrant parades hit the streets, and buildings light up in the colors of the rainbow—a symbol of the LGBTQIA+ social movements—in numerous cities to praise freedom for all. Today's homepage shows the skyline of San Francisco, home to one of the largest and oldest pride parades, with City Hall lit up in rainbow lights.
 > 
 > 
 > 
@@ -64,7 +83,7 @@
 <details>
 <summary>Description</summary>
 
-> On this day 90 years ago, Congress passed an act that would lead to the creation of one of America's natural gems: Everglades National Park in Florida. It would be another 13 years before enough land was acquired to make the park a reality but today, it encapsulates the largest subtropical wilderness in the US. Spanning more than 1.5 million acres, the park is a lifeline to 36 federally protected and endangered wildlife species, from the gentle manatee to the stealthy Florida panther. Here, the air thrums with the calls of over 350 bird species like limpkins and snail kites, while the waters teem with life including hundreds of species of fish, sea turtles, and American crocodiles. Beyond its biodiversity, the park is celebrated as a UNESCO World Heritage Site, an International Biosphere Reserve, and a Wetland of International Importance. Here's to Everglades National Park—may it continue to inspire wonder, curiosity, and appreciation for the wild world around us.
+> On this day 90 years ago, Congress passed an act that would lead to the creation of one of America's natural gems: Everglades National Park in Florida. It would be another 13 years before enough land was acquired to make the park a reality, but today it encapsulates the largest subtropical wilderness in the US. Spanning more than 1.5 million acres, the park is a lifeline to 36 federally protected and endangered wildlife species, from the gentle manatee to the stealthy Florida panther. Here, the air thrums with the calls of over 350 bird species like limpkins and snail kites, while the waters teem with life including hundreds of species of fish, sea turtles, and American crocodiles. Beyond its biodiversity, the park is celebrated as a UNESCO World Heritage Site, an International Biosphere Reserve, and a Wetland of International Importance. Here's to Everglades National Park—may it continue to inspire wonder, curiosity, and appreciation for the wild world around us.
 > 
 > 
 > 
@@ -112,24 +131,7 @@
 
 | ![The Monastery of Roussanou, Greece](https://cn.bing.com/th?id=OHR.MeteoraMonastery_EN-US5286293282_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Monastery of Roussanou, Greece](https://cn.bing.com/th?id=OHR.MeteoraMonastery_EN-US5286293282_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MeteoraMonastery_EN-US5286293282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeteoraMonastery_EN-US5286293282_1080x1920.jpg) |
-
-### 20240527
-
-> Field of flags set up for Memorial Day (© Andrew Seegmiller/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, as we observe Memorial Day, we pay tribute to the courageous individuals who gave their lives to defend our nation and uphold its values. The origins of this day date back to the 1860s, in the years following the Civil War and the first national observance was held in 1868. However, one of the earliest accounts is from October 1864, when three women in Boalsburg, Pennsylvania, placed flowers at the graves of two Union soldiers. They decided to decorate the graves of all the fallen soldiers and returned to do the same the following year.
-> 
-> While Memorial Day is a moment to remember the sacrifices of our armed forces, it also marks the unofficial beginning of the summer season. The long weekend offers families the perfect opportunity to get together for picnics, barbecues, and beach trips. Memorial Day is a celebration of patriotism, unity, and gratitude and reminds us that freedom is not free.
-> 
-> 
-
-</details>
-
-| ![Fallen but not forgotten](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fallen but not forgotten](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MeteoraMonastery_EN-US5286293282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeteoraMonastery_EN-US5286293282_1080x1920.jpg) |860_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
 |:---------:|:---------:|
