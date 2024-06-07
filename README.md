@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240605
+
+> Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Happy World Environment Day! First celebrated back in 1973, this UN event is now celebrated in more than 143 countries. This year's theme focuses on land restoration, desertification, and drought resilience.
+> 
+> Pictured here is Madagascar's Masoala National Park, part of the Rainforests of the Atsinanana UNESCO World Heritage Site. This park, which covers nearly 930 square miles, is a wildlife haven harboring hundreds of species including mammals like red ruffed lemurs and aye-ayes, birds like red owls and helmet vanga, reptiles like Madagascar day geckos and tomato frogs, and butterflies, coral species, fish, and sea turtles. The park has been at the forefront of conservation efforts to combat illegal logging, particularly of its rare rosewood trees. So, let's take inspiration from Masoala and champion the planet that cradles us all. After all, there is no planet B.
+> 
+> 
+
+</details>
+
+| ![World Environment Day](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Environment Day](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_1080x1920.jpg) |
+
 ### 20240604
 
 > Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Everglades National Park marks 90 years](https://cn.bing.com/th?id=OHR.Everglades90th_EN-US5663293086_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Everglades National Park marks 90 years](https://cn.bing.com/th?id=OHR.Everglades90th_EN-US5663293086_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Everglades90th_EN-US5663293086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Everglades90th_EN-US5663293086_1080x1920.jpg) |
-
-### 20240529
-
-> Eurasian otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Playful, strong swimmers, and expert hunters—meet the otters. They come in 13 species of various shapes and sizes, from the sea otters found in coastal waters to the river otters frolicking in freshwater habitats. Seen in today's image is a Eurasian otter on the beautiful Isle of Mull off the west coast of Scotland. With webbed feet, streamlined bodies, and dense fur coats, otters are built for speed and agility underwater. They can dive deep and hold their breath for several minutes.
-> 
-> From habitat loss and pollution to being hunted for their fur, these whiskered wonders are struggling to survive out in the wild. That's where World Otter Day, on the last Wednesday in May, comes in. It's our chance to raise awareness about the challenges otters face and what we can do to help protect our environment.
-> 
-> 
-
-</details>
-
-| ![World Otter Day](https://cn.bing.com/th?id=OHR.MullOtter_EN-US5451978021_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Otter Day](https://cn.bing.com/th?id=OHR.MullOtter_EN-US5451978021_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MullOtter_EN-US5451978021_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MullOtter_EN-US5451978021_1080x1920.jpg) |g.com/th?id=OHR.MemorialFlags_EN-US5086740860_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Everglades90th_EN-US5663293086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Everglades90th_EN-US5663293086_1080x1920.jpg) |com/th?id=OHR.MemorialFlags_EN-US5086740860_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1080x1920.jpg) |) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
