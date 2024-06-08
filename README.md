@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240606
+
+> Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Eighty years ago, on the beaches of Normandy, northern France, an event unfolded that would alter the course of history. The day was June 6, 1944, a date forever etched in time as D-Day. It marked the launch of Operation Overlord, the ambitious Allied invasion that became a turning point in World War II. The audacious assault by sea, air, and land involved nearly 160,000 troops.
+> 
+> Today, on this 80th anniversary, we are featuring Les Braves, a sculpture that pays tribute to the courageous troops who landed here. One such symbol is Les Braves, a sculpture gracing Omaha Beach. French artist Anilore Banon's design features three sections called 'Wings of Hope,' 'Rise, Freedom!,' and 'Wings of Fraternity.' In addition, across the ocean in Michigan, its twin, 'Les Braves II: At Water's Edge,' resonates with the same spirit at The War Memorial. These sister sculptures stand as guardians of memory, inviting a moment of silence from a world that benefited from the bravest of the brave.
+> 
+> 
+
+</details>
+
+| ![The 80th anniversary of D-Day](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The 80th anniversary of D-Day](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |
+
 ### 20240605
 
 > Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Gunnerside, Yorkshire Dales National Park, England](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gunnerside, Yorkshire Dales National Park, England](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_1080x1920.jpg) |
-
-### 20240530
-
-> A stand of slash pines and sawgrass prairie, Everglades National Park, Florida (© Jonathan Gewirtz/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> On this day 90 years ago, Congress passed an act that would lead to the creation of one of America's natural gems: Everglades National Park in Florida. It would be another 13 years before enough land was acquired to make the park a reality, but today it encapsulates the largest subtropical wilderness in the US. Spanning more than 1.5 million acres, the park is a lifeline to 36 federally protected and endangered wildlife species, from the gentle manatee to the stealthy Florida panther. Here, the air thrums with the calls of over 350 bird species like limpkins and snail kites, while the waters teem with life including hundreds of species of fish, sea turtles, and American crocodiles. Beyond its biodiversity, the park is celebrated as a UNESCO World Heritage Site, an International Biosphere Reserve, and a Wetland of International Importance. Here's to Everglades National Park—may it continue to inspire wonder, curiosity, and appreciation for the wild world around us.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Everglades National Park marks 90 years](https://cn.bing.com/th?id=OHR.Everglades90th_EN-US5663293086_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Everglades National Park marks 90 years](https://cn.bing.com/th?id=OHR.Everglades90th_EN-US5663293086_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Everglades90th_EN-US5663293086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Everglades90th_EN-US5663293086_1080x1920.jpg) |com/th?id=OHR.MemorialFlags_EN-US5086740860_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_1080x1920.jpg) |EN-US5663293086_1080x1920.jpg) |com/th?id=OHR.MemorialFlags_EN-US5086740860_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1080x1920.jpg) |) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
