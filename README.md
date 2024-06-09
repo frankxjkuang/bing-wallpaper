@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240607
+
+> Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)
+
+<details>
+<summary>Description</summary>
+
+> Today, let's embark on a watery adventure as we celebrate World Oceans Day. This day is about honoring and protecting the world's oceans and serves as a reminder of the critical role oceans play in supporting life on Earth. These gargantuan water bodies, after all, teem with wonders, from the tiniest plankton to the grandest whales like the humpbacks we see here. The oceans also produce almost half of the oxygen on our planet thanks to the photosynthesis of plankton—tiny plants, algae, and bacteria. Moreover, they absorb a significant amount of carbon dioxide from the atmosphere, helping mitigate the impacts of climate change caused by human activities.
+> 
+> Oceans face many threats, including rising sea temperatures thanks to global warming, plastic pollution, and ocean acidification, which threatens many marine species. The theme for this year's World Oceans Day is 'Awaken New Depths.' This motto encourages us to delve deeper into the ocean's complexities and take urgent actions to ensure that these fascinating, ocean-dwelling animals continue to grace our planet for generations to come. So, are you ready to take the plunge?
+> 
+> 
+
+</details>
+
+| ![World Oceans Day](https://cn.bing.com/th?id=OHR.HumpbackFamily_EN-US6789097648_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Oceans Day](https://cn.bing.com/th?id=OHR.HumpbackFamily_EN-US6789097648_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HumpbackFamily_EN-US6789097648_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HumpbackFamily_EN-US6789097648_1080x1920.jpg) |
+
 ### 20240606
 
 > Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Pride Month](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride Month](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_1080x1920.jpg) |
-
-### 20240531
-
-> Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> In Yorkshire Dales National Park, the ancient village of Gunnerside is brimming with English charm and history. Picture yourself strolling through its narrow lanes, surrounded by rolling hills, lush pastures, and stone cottages, with the roar of the Swale River your only soundtrack. Designated in 1954, the national park is spread across 841 square miles, and there are over 1,000 farms in this area. One of the area's most distinctive features are its dry stone walls; built without any kind of mortar, they can last hundreds of years. There are thought to be over 5,000 miles of these walls in the Dales.
-> 
-> The village's name comes from 'Gunnar's saetr,' Old Norse for Gunnar's hill or pasture. The valley of Gunnerside Gill was a thriving center for the lead mining industry from the 17th to the 19th century. In the village, the Old Working Smithy & Museum, which is 229 years old, houses historic blacksmith tools and mining implements. Whether you're seeking a peaceful retreat or exploring England's storied past, Gunnerside beckons with a promise of unforgettable memories.
-> 
-> 
-
-</details>
-
-| ![Gunnerside, Yorkshire Dales National Park, England](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gunnerside, Yorkshire Dales National Park, England](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_1080x1920.jpg) |EN-US5663293086_1080x1920.jpg) |com/th?id=OHR.MemorialFlags_EN-US5086740860_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_1080x1920.jpg) |080x1920.jpg) |EN-US5663293086_1080x1920.jpg) |com/th?id=OHR.MemorialFlags_EN-US5086740860_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1080x1920.jpg) |) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
