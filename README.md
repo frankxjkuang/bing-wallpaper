@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240608
+
+> Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The lush greenery of June is here, and so is National Rivers Month, a 30-day tribute to the veins of our planet that was created by Canadian activist Mark Angelo. Just like the confluence featured here today, where Alaska's Easter Creek and Killik River unite in a beautiful display, we too come together every year to help preserve the nation's rivers. With increasing threats such as pollution, habitat destruction, and overuse, it's more important than ever to advocate for the protection of our waterways. Whether you're paddling down a gentle stream, casting a line for some fishing fun, or simply enjoying a leisurely stroll along the riverbank, there are countless ways to connect with these flowing wonders. The US alone boasts a vast network of over 250,000 rivers that stretches more than 3 million miles across diverse terrains. Which one are you heading to?
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![National Rivers Month](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Rivers Month](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_1080x1920.jpg) |
+
 ### 20240607
 
 > Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)
@@ -112,26 +131,7 @@
 
 | ![National Gardening Week](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Gardening Week](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_1080x1920.jpg) |
-
-### 20240601
-
-> San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> June is Pride Month, commemorating the Stonewall uprising, a series of protests by the LGBTQIA+ community that began on June 28, 1969, in response to a police raid at the Stonewall Inn in Greenwich Village in New York City. Various events around the world are held in June to honor and celebrate the LGBTQIA+ community, their history, achievements, and ongoing pursuit for equality. This month, vibrant parades hit the streets, and buildings light up in the colors of the rainbow—a symbol of the LGBTQIA+ social movements—in numerous cities to praise freedom for all. Today's homepage shows the skyline of San Francisco, home to one of the largest and oldest pride parades, with City Hall lit up in rainbow lights.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Pride Month](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride Month](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_1080x1920.jpg) |080x1920.jpg) |EN-US5663293086_1080x1920.jpg) |com/th?id=OHR.MemorialFlags_EN-US5086740860_1080x1920.jpg) |6_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_1080x1920.jpg) |x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1080x1920.jpg) |) |9784_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_1080x1920.jpg) |r claw is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
 > 
