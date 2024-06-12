@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240610
+
+> Osaka at night, Japan (© wichianduangsri/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In the heart of Japan, where the past and future intertwine, lies a city pulsating with life and culture—Osaka. Traditionally an economic hub, Osaka has twice served briefly as the imperial capital, once in the 7th and once in the 8th century. It flourished culturally during the Edo period (1603–1867) and became a major industrial center after the Meiji Restoration in1868, which restored imperial rule to Japan.
+> 
+> Known as the 'Nation's Kitchen,' Osaka boasts a culinary scene that tantalizes taste buds with dishes like takoyaki, a ball-shaped fried cake stuffed with chopped octopus, and okonomiyaki, a savory pancake loaded with cabbage, meat, and various toppings. But the city's charm isn't just in its gastronomic delights. Step into the past's embrace at Osaka Castle, a majestic relic of Japan's rich history and a symbol of unwavering resilience. Wander through the gardens of Shitenno-ji Temple, one of the oldest Buddhist temples in the country and an oasis of tranquility amidst the bustling city. Explore Dōtonbori, a district known for its dazzling neon billboards, including the famous Glico Running Man and the towering mechanized crab sign of Kani Dōraku restaurant. Every corner of Osaka is a journey through time and flavors.
+> 
+> 
+
+</details>
+
+| ![The city of Osaka at night, Japan](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The city of Osaka at night, Japan](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_1080x1920.jpg) |
+
 ### 20240609
 
 > Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)
@@ -112,32 +131,7 @@
 
 | ![Chestnut-headed bee-eaters, Bardia National Park, Nepal](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chestnut-headed bee-eaters, Bardia National Park, Nepal](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_1080x1920.jpg) |
-
-### 20240603
-
-> Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Bicycles are the best! An environmentally friendly form of transportation that is affordable and good for your health. Once you learn to ride, you'll never forget how to wheel around. Thanks to Polish American scientist Leszek Sibiliski's initiative, the United Nations declared June 3 World Bicycle Day in 2018.
-> 
-> Karl von Drais, a German inventor, is credited with developing the first two-wheeler, known variously as the laufmaschine, draisine, and vélocipède, in 1817. It certainly needed some further thinking, since the wooden frame and wheels didn't have pedals. The modern versions of bikes were developed in the late 1800s, but the materials used for them are constantly evolving to make the ride easier and more secure. So, hop on a bike to find your crew on World Bicycle Day!
-> 
-> 
-
-</details>
-
-| ![World Bicycle Day](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bicycle Day](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_1080x1920.jpg) |is often cultivated as an ornamental plant for tropical gardens. Gardeners looking to attract birds love the Heliconia because its plentiful nectar draws hummingbirds to its downward-facing flowers. Those same flowers have special recognition in Bolivia as 'patujú,' the national flower, which appears on one of the country's flags.
-> 
-> 
-
-</details>
-
-| ![Cecropia leaf and lobster claw petals in Mexico](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cecropia leaf and lobster claw petals in Mexico](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_1080x1920.jpg) |89937_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cecropia leaf and lobster claw petals in Mexico](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
