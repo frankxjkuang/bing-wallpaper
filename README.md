@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240611
+
+> Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Horns up, heads high! Featured here is a group of gemsboks, a large antelope, reigning over the sprawling savannas in southwestern Africa. Indigenous to the arid territories of Botswana, Namibia, South Africa, and parts of Zimbabwe, they thrive mainly within the Kalahari and Namib Deserts. They can survive in extremely dry conditions and can go without water for weeks, getting moisture from the food they eat. Moreover, gemsboks are adept runners, achieving speeds of up to 37 miles per hour. Their distinguishing trait is their notably elongated, straight horns. Although both genders possess these formidable defenses, the females' horns tend to be slightly longer and sleeker while the males' horns are thicker with broader bases. So, if you ever find yourself in the sandy plains of the Kalahari, keep an eye out for these desert gems.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Southern gemsbok in the savannah, Botswana](https://cn.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Southern gemsbok in the savannah, Botswana](https://cn.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_1080x1920.jpg) |
+
 ### 20240610
 
 > Osaka at night, Japan (© wichianduangsri/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Environment Day](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Environment Day](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_1080x1920.jpg) |
-
-### 20240604
-
-> Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> It's not just a name. Chestnut-headed bee-eaters spend their days swooping after stinging insects. As well as bees, they also feast on wasps, hornets, and other bugs. The birds in today's image are in Bardia National Park in Nepal, but they're found across many other South Asian countries, from India and Bangladesh to Sri Lanka and Thailand. They catch their prey in mid-flight, returning to a perch where they beat insects to stun them and remove the stinger, which makes them safe to eat. These birds are designed to hunt: Their dazzling green plumage helps camouflage them in dappled jungle light, their curved beak is perfect for picking off insects with precision, and their eyes can move individually, which makes them all the better for spotting bees.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Chestnut-headed bee-eaters, Bardia National Park, Nepal](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chestnut-headed bee-eaters, Bardia National Park, Nepal](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_1080x1920.jpg) |89937_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cecropia leaf and lobster claw petals in Mexico](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_1080x1920.jpg) |pia leaf and lobster claw petals in Mexico](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
