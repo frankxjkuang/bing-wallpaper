@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240612
+
+> Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> Ready to channel your inner nature enthusiast? Let's explore Big Bend National Park in West Texas, which is celebrating its 80th birthday today. This park is the largest protected area in the Chihuahuan Desert, covering over 1,250 square miles. The Big Bend State Park was established on June 12, 1944, when the state of Texas transferred this land to the federal government.
+> 
+> Within the park lie not only historic landmarks like the Castolon Historic District and the Hot Springs Historic District, but also the footprints of modern pioneers, ranchers, and miners. This land is also one of North America's premier destinations for stargazing. The absence of human activity in the surrounding regions results in low-level light pollution and some of the darkest night skies in the area. Bring your binoculars along and enjoy an evening full of Milky Way vistas, meteor showers, star sightings, and taking pictures of the stunning night sky.
+> 
+> 
+
+</details>
+
+| ![Big Bend National Park anniversary](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Big Bend National Park anniversary](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_1080x1920.jpg) |
+
 ### 20240611
 
 > Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![The 80th anniversary of D-Day](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The 80th anniversary of D-Day](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |
-
-### 20240605
-
-> Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Happy World Environment Day! First celebrated back in 1973, this UN event is now celebrated in more than 143 countries. This year's theme focuses on land restoration, desertification, and drought resilience.
-> 
-> Pictured here is Madagascar's Masoala National Park, part of the Rainforests of the Atsinanana UNESCO World Heritage Site. This park, which covers nearly 930 square miles, is a wildlife haven harboring hundreds of species including mammals like red ruffed lemurs and aye-ayes, birds like red owls and helmet vanga, reptiles like Madagascar day geckos and tomato frogs, and butterflies, coral species, fish, and sea turtles. The park has been at the forefront of conservation efforts to combat illegal logging, particularly of its rare rosewood trees. So, let's take inspiration from Masoala and champion the planet that cradles us all. After all, there is no planet B.
-> 
-> 
-
-</details>
-
-| ![World Environment Day](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Environment Day](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_1080x1920.jpg) |pia leaf and lobster claw petals in Mexico](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
