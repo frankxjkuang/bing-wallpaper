@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240615
+
+> Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, everybody's hitting the waves for International Surfing Day! This event is about celebrating surfing while also drawing attention to the importance of protecting ocean environments to keep their waters pristine for wildlife and surfers alike. Surfing has a long history; around 5,000 years ago in Peru, people used reed watercraft to surf the waves when they were out fishing. It was in pre-colonial Hawaii, however, that modern surfing was born. Here, people started to stand on their boards and to surf for fun. Historians believe that surfing made its way to the US in 1885, when three teenage Hawaiian princes surfed on redwood boards while on a break from boarding school in California.
+> 
+> Today's image shows an intrepid surfer riding a wave at Nazaré, Portugal. This town on the Atlantic coast is known for its giant waves, which can reach over 100 feet in height. Thanks to these impressive breakers, several surf records have been broken here, including the biggest wave ever surfed—an incredible 86 feet. So, wax down your surfboards and go out and catch some waves!
+> 
+> 
+
+</details>
+
+| ![International Surfing Day](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Surfing Day](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_1080x1920.jpg) |
+
 ### 20240614
 
 > Flag display at the Washington Monument, Washington, DC (© tristanbnz/Adobe Stock)
@@ -112,28 +131,7 @@
 
 | ![Bardenas Reales Biosphere Reserve and Natural Park, Spain](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bardenas Reales Biosphere Reserve and Natural Park, Spain](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |
-
-### 20240608
-
-> Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The lush greenery of June is here, and so is National Rivers Month, a 30-day tribute to the veins of our planet that was created by Canadian activist Mark Angelo. Just like the confluence featured here today, where Alaska's Easter Creek and Killik River unite in a beautiful display, we too come together every year to help preserve the nation's rivers. With increasing threats such as pollution, habitat destruction, and overuse, it's more important than ever to advocate for the protection of our waterways. Whether you're paddling down a gentle stream, casting a line for some fishing fun, or simply enjoying a leisurely stroll along the riverbank, there are countless ways to connect with these flowing wonders. The US alone boasts a vast network of over 250,000 rivers that stretches more than 3 million miles across diverse terrains. Which one are you heading to?
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![National Rivers Month](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Rivers Month](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_1080x1920.jpg) |155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
