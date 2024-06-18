@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240616
+
+> Red fox father and kit, Washington (© Chase Dekker/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Today's all about the dads. Father's Day is the perfect time to celebrate everything they do for us, how they look after us, help us grow up, and tell the best dad jokes. There are also great dads in the animal kingdom, like the foxy father seen in today's image. Female red foxes need to stay in their dens with their young after giving birth, so males spend their time going out to bring her food. When the pups are a little older, their father takes time to play with them, teaching them survival skills they'll need in later life, like hunting and scavenging. The foxes seen here don't look red because they are melanistic, a genetic mutation causing an excess of dark pigmentation. This type of red fox is commonly called a silver fox. He might not get a card for his troubles but we're sure he is much appreciated. On Father's Day, why not call your dad, take him out for a meal, and show him how much he means to you.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_1080x1920.jpg) |
+
 ### 20240615
 
 > Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)
@@ -7,7 +26,7 @@
 <details>
 <summary>Description</summary>
 
-> Today, everybody's hitting the waves for International Surfing Day! This event is about celebrating surfing while also drawing attention to the importance of protecting ocean environments to keep their waters pristine for wildlife and surfers alike. Surfing has a long history; around 5,000 years ago in Peru, people used reed watercraft to surf the waves when they were out fishing. It was in pre-colonial Hawaii, however, that modern surfing was born. Here, people started to stand on their boards and to surf for fun. Historians believe that surfing made its way to the US in 1885, when three teenage Hawaiian princes surfed on redwood boards while on a break from boarding school in California.
+> Let's hit the waves for International Surfing Day! This event both celebrates the sport and promotes protecting the ocean for wildlife and surfers alike. Surfing has a long history; around 5,000 years ago in Peru, people used reed watercraft to surf the waves when they were out fishing. Polynesians are believed to have brought their version of surfing to Hawaii, where modern surfing was born. Here, people started to stand on their boards and to surf for fun. Historians believe that surfing made its way to the US in 1885, when three teenage Hawaiian princes surfed on redwood boards while on a break from boarding school in California.
 > 
 > Today's image shows an intrepid surfer riding a wave at Nazaré, Portugal. This town on the Atlantic coast is known for its giant waves, which can reach over 100 feet in height. Thanks to these impressive breakers, several surf records have been broken here, including the biggest wave ever surfed—an incredible 86 feet. So, wax down your surfboards and go out and catch some waves!
 > 
@@ -26,9 +45,9 @@
 <details>
 <summary>Description</summary>
 
-> Wave our national symbol today; it's Flag Day! On June 14, 1777, by resolution of the Second Continental Congress, the nation's first official flag was approved. Throughout US history, the flag's design has changed. In its current arrangement, the 13 stripes represent the original colonies, and the stars stand for the states. The flag was last modified in 1960 when Hawaii became a state, and the number of white stars on a blue background increased from 49 to 50.
+> Wave our national symbol today; it's Flag Day! On June 14, 1777, by resolution of the Second Continental Congress, the nation's first official flag was approved. Throughout US history, the flag's design has changed. In its current arrangement, the 13 stripes represent the original colonies, and the stars stand for the states. The flag was last modified in 1960, when Hawaii became a state, and the number of stars increased from 49 to 50.
 > 
-> Some states have always celebrated the adoption of the Stars and Stripes with parades or by displaying the national flag in their homes; however, the official observance of Flag Day dates back to 1949, thanks to legislation passed by President Harry Truman. On the 75th anniversary of the national commemoration, we wish our flag to fly high!
+> Some states have always celebrated the adoption of the Stars and Stripes with parades or by displaying the national flag in their homes; however, the official observance of Flag Day dates back to 1949, thanks to legislation passed by President Harry Truman. We're flying flags on our homepage to mark the 75th anniversary of the national commemoration.
 > 
 > 
 
@@ -40,20 +59,20 @@
 
 ### 20240613
 
-> Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)
+> Mosaic façade in the Registan, Samarkand, Uzbekistan (© da-kuk/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Gather 'round, explorers, as we tiptoe into the Registan Square in the city of Samarkand, Uzbekistan! Meaning 'sandy place' or 'desert' in Persian, Registan was the center of activity during the Timurid Empire. The square embodied the essence of the Timurid Renaissance, a period of cultural and intellectual revival, which spread throughout the Muslim world between the 14th and early 16th centuries CE.
+> Welcome to the blue hues of the Registan, a public square at the heart of the city of Samarkand, Uzbekistan. Meaning 'sandy place' in Persian, Registan was a center of activity during the Timurid Renaissance, a period of cultural and intellectual revival in the Muslim world between the 14th and early 16th centuries.
 > 
-> In this grand square, citizens came together to hear royal proclamations, announced with resounding blasts from colossal copper pipes known as dzharchis. The Registan Square is encircled by three Islamic schools, namely the Ulugh Beg Madrasah, the Sher-Dor Madrasah, and the Tilya-Kori Madrasah, characterized by the Islamic architectural style, which typically features elaborate repetitive patterns and ornamental forms. The influence of Registan's magnificence is seen everywhere, from the Safavid monuments of Persia to the Mughal buildings of India and Pakistan. The square's architectural impact can also be seen in far-off places, like the early 20th-century Saint Petersburg Mosque in Russia.
+> In this grand square, citizens came together to hear royal proclamations, announced with resounding blasts from colossal copper pipes known as dzharchis. The square is encircled by three Islamic schools, namely the Ulugh Beg Madrasah, the Sher-Dor Madrasah, and the Tilya-Kori Madrasah, characterized by the Islamic architectural style, which typically features elaborate repetitive patterns and ornamental forms. Registan's architectural influence is seen far and wide, from the Safavid monuments of Persia and the Mughal buildings of India and Pakistan to the early 20th-century Saint Petersburg Mosque in Russia.
 > 
 > 
 
 </details>
 
-| ![Registan Square, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Registan Square, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Registan, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Registan, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_1080x1920.jpg) |
 
@@ -64,26 +83,26 @@
 <details>
 <summary>Description</summary>
 
-> Ready to channel your inner nature enthusiast? Let's explore Big Bend National Park in West Texas, which is celebrating its 80th birthday today. This park is the largest protected area in the Chihuahuan Desert, covering over 1,250 square miles. The Big Bend State Park was established on June 12, 1944, when the state of Texas transferred this land to the federal government.
+> Ready to channel your inner nature enthusiast? Let's explore Big Bend National Park in West Texas, which is celebrating its 80th birthday today. The park is the largest protected area in the Chihuahuan Desert, covering over 1,250 square miles. It was established on June 12, 1944, when the state of Texas transferred this land to the federal government.
 > 
-> Within the park lie not only historic landmarks like the Castolon Historic District and the Hot Springs Historic District, but also the footprints of modern pioneers, ranchers, and miners. This land is also one of North America's premier destinations for stargazing. The absence of human activity in the surrounding regions results in low-level light pollution and some of the darkest night skies in the area. Bring your binoculars along and enjoy an evening full of Milky Way vistas, meteor showers, star sightings, and taking pictures of the stunning night sky.
+> Within the park lie landmarks like the Castolon Historic District, where US and Mexican cultures met in one rural border community, and the Hot Springs Historic District, developed in the early 1900s, but with evidence of human occupation dating back thousands of years. Here you can walk in the footprints of modern pioneers, ranchers, and miners. This land is also one of North America's premier destinations for stargazing. With little light pollution from the surrounding areas, it has some of the darkest night skies in the area. Bring your binoculars and enjoy an evening full of Milky Way vistas, meteor showers, and taking pictures of the stunning night sky.
 > 
 > 
 
 </details>
 
-| ![Big Bend National Park anniversary](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Big Bend National Park anniversary](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Big Bend National Park turns 80](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Big Bend National Park turns 80](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_1080x1920.jpg) |
 
 ### 20240611
 
-> Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)
+> Gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> Horns up, heads high! Featured here is a group of gemsboks, a large antelope, reigning over the sprawling savannas in southwestern Africa. Indigenous to the arid territories of Botswana, Namibia, South Africa, and parts of Zimbabwe, they thrive mainly within the Kalahari and Namib Deserts. They can survive in extremely dry conditions and can go without water for weeks, getting moisture from the food they eat. Moreover, gemsboks are adept runners, achieving speeds of up to 37 miles per hour. Their distinguishing trait is their notably elongated, straight horns. Although both genders possess these formidable defenses, the females' horns tend to be slightly longer and sleeker while the males' horns are thicker with broader bases. So, if you ever find yourself in the sandy plains of the Kalahari, keep an eye out for these desert gems.
+> These majestic gemsbok are large antelopes that reign over the sprawling savannas of southwestern Africa. Pictured in Botswana, these animals are also found in Namibia, South Africa, and parts of Zimbabwe. They thrive in the Kalahari and Namib Deserts as they can go without water for weeks, getting moisture from the food they eat. Moreover, gemsbok are adept runners, achieving speeds of up to 37 miles per hour. Their distinguishing trait is their elongated, straight horns, used to protect themselves from predators. If you ever find yourself in the sandy plains of the Kalahari, keep an eye out for these desert gems.
 > 
 > 
 > 
@@ -91,7 +110,7 @@
 
 </details>
 
-| ![Southern gemsbok in the savannah, Botswana](https://cn.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Southern gemsbok in the savannah, Botswana](https://cn.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Gemsbok in the savannah, Botswana](https://cn.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gemsbok in the savannah, Botswana](https://cn.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_1080x1920.jpg) |
 
@@ -102,9 +121,9 @@
 <details>
 <summary>Description</summary>
 
-> In the heart of Japan, where the past and future intertwine, lies a city pulsating with life and culture—Osaka. Traditionally an economic hub, Osaka has twice served briefly as the imperial capital, once in the 7th and once in the 8th century. It flourished culturally during the Edo period (1603–1867) and became a major industrial center after the Meiji Restoration in1868, which restored imperial rule to Japan.
+> In the heart of Japan lies a city pulsating with life and culture—Osaka. Having twice served briefly as the imperial capital in the 7th and 8th centuries, by the late 19th century it had become a major industrial center.
 > 
-> Known as the 'Nation's Kitchen,' Osaka boasts a culinary scene that tantalizes taste buds with dishes like takoyaki, a ball-shaped fried cake stuffed with chopped octopus, and okonomiyaki, a savory pancake loaded with cabbage, meat, and various toppings. But the city's charm isn't just in its gastronomic delights. Step into the past's embrace at Osaka Castle, a majestic relic of Japan's rich history and a symbol of unwavering resilience. Wander through the gardens of Shitenno-ji Temple, one of the oldest Buddhist temples in the country and an oasis of tranquility amidst the bustling city. Explore Dōtonbori, a district known for its dazzling neon billboards, including the famous Glico Running Man and the towering mechanized crab sign of Kani Dōraku restaurant. Every corner of Osaka is a journey through time and flavors.
+> Now known as the 'Nation's Kitchen,' Osaka boasts a culinary scene that tantalizes taste buds with dishes like takoyaki, a ball-shaped fried cake stuffed with octopus, and okonomiyaki, a savory pancake. But the city boasts more than gastronomic delights. Step into the past's embrace at Osaka Castle, a majestic relic of Japanese history built in the late 16th century. Wander through the gardens of Shitenno-ji Temple, one of Japan's oldest Buddhist temples and an oasis of tranquility amidst the bustling city. Explore Dōtonbori, a district known for its dazzling neon billboards, including the famous Glico Running Man and the towering mechanized crab sign of Kani Dōraku restaurant. Every corner of Osaka is a journey through time and flavors.
 > 
 > 
 
@@ -112,18 +131,7 @@
 
 | ![The city of Osaka at night, Japan](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The city of Osaka at night, Japan](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_1080x1920.jpg) |
-
-### 20240609
-
-> Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Within the scenic landscape of Navarra, northern Spain, the Bardenas Reales Biosphere Reserve and Natural Park is like a surrealist painting come to life! This park is renowned for its desert-like landscapes sculpted by millennia of erosion. Featuring rocky plateaus, canyons, and whimsically shaped clay structures called cabezos, the park is a playground of geological wonders.
-> 
-> Designated as a natural park in 1999 and a Biosphere Reserve by UNESCO in 2000, Bardenas Reales is also a haven for diverse flora and fauna adapted to its arid conditions. The park is home to a variety of birds and animals, such as the great bustard, golden eagles, vultures, mountain cats, wild boars, and numerous reptiles. Spread across around 104,000 acres, the park's semi-desert environment and unique geological formations make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_1080x1920.jpg) |n eagles, vultures, mountain cats, wild boars, and numerous reptiles. Spread across around 104,000 acres, the park's semi-desert environment and unique geological formations make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
 > 
 > 
 
