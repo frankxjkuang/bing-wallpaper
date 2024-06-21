@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240619
+
+> Jacob Lawrence's mosaic 'Community,' Joseph P. Addabbo Federal Building, Jamaica, Queens, New York (© Alpha Stock/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Juneteenth commemorates the end of slavery in the US. On June 19, 1865, Union troops arrived in Galveston, Texas, to enforce the Emancipation Proclamation issued by Abraham Lincoln. Juneteenth became a federal holiday in 2021, an acknowledgment of its indelible imprint on the country.
+> 
+> Today, we're featuring the New York mosaic 'Community,' by African American artist Jacob Lawrence. Lawrence was born in New Jersey to parents who, along with about 6 million African Americans, moved from the rural south to cities like New York City, Chicago, and Detroit during the Great Migration (1910-1970). He viewed the Black American experience as integral to American heritage and depicted its struggles and triumphs through vibrant, angular paintings, including his famed 'The Migration Series.' Lawrence was also inspired by the Harlem Renaissance, a revival of African American culture in the 1920s and 30s. His groundbreaking works broke racial barriers and continue to educate and inspire today.
+> 
+> 
+
+</details>
+
+| ![Juneteenth](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Juneteenth](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_1080x1920.jpg) |
+
 ### 20240618
 
 > Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Registan, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Registan, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_1080x1920.jpg) |
-
-### 20240612
-
-> Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> Ready to channel your inner nature enthusiast? Let's explore Big Bend National Park in West Texas, which is celebrating its 80th birthday today. The park is the largest protected area in the Chihuahuan Desert, covering over 1,250 square miles. It was established on June 12, 1944, when the state of Texas transferred this land to the federal government.
-> 
-> Within the park lie landmarks like the Castolon Historic District, where US and Mexican cultures met in one rural border community, and the Hot Springs Historic District, developed in the early 1900s, but with evidence of human occupation dating back thousands of years. Here you can walk in the footprints of modern pioneers, ranchers, and miners. This land is also one of North America's premier destinations for stargazing. With little light pollution from the surrounding areas, it has some of the darkest night skies in the area. Bring your binoculars and enjoy an evening full of Milky Way vistas, meteor showers, and taking pictures of the stunning night sky.
-> 
-> 
-
-</details>
-
-| ![Big Bend National Park turns 80](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Big Bend National Park turns 80](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_1080x1920.jpg) |--:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_1080x1920.jpg) |S7213876995_1080x1920.jpg) |--:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_1080x1920.jpg) |n eagles, vultures, mountain cats, wild boars, and numerous reptiles. Spread across around 104,000 acres, the park's semi-desert environment and unique geological formations make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
 > 
 > 
