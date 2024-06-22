@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240620
+
+> Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> It's that time of year again when the daylight stretches long into the evening hours. Today is the longest day of the year, known as the summer solstice, which happens when one of the Earth's poles is most inclined toward the sun. Today's image features the Kokino megalithic observatory, part of a wider archaeological site in North Macedonia. It is believed that it marked the position of the sun during summer and winter solstices, as well as the equinox, and consists of two platforms. A stone block on the upper platform of the observatory indicates the summer solstice sunrise direction when seen from a seat on the lower platform. This Bronze Age astronomical wonder sits more than 3,300 feet above sea level, on a hill overlooking the hamlet of Kokino.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Summer solstice](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Summer solstice](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_1080x1920.jpg) |
+
 ### 20240619
 
 > Jacob Lawrence's mosaic 'Community,' Joseph P. Addabbo Federal Building, Jamaica, Queens, New York (© Alpha Stock/Alamy)
@@ -112,25 +131,7 @@
 
 | ![Flag Day](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Flag Day](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_1080x1920.jpg) |
-
-### 20240613
-
-> Mosaic façade in the Registan, Samarkand, Uzbekistan (© da-kuk/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to the blue hues of the Registan, a public square at the heart of the city of Samarkand, Uzbekistan. Meaning 'sandy place' in Persian, Registan was a center of activity during the Timurid Renaissance, a period of cultural and intellectual revival in the Muslim world between the 14th and early 16th centuries.
-> 
-> In this grand square, citizens came together to hear royal proclamations, announced with resounding blasts from colossal copper pipes known as dzharchis. The square is encircled by three Islamic schools, namely the Ulugh Beg Madrasah, the Sher-Dor Madrasah, and the Tilya-Kori Madrasah, characterized by the Islamic architectural style, which typically features elaborate repetitive patterns and ornamental forms. Registan's architectural influence is seen far and wide, from the Safavid monuments of Persia and the Mughal buildings of India and Pakistan to the early 20th-century Saint Petersburg Mosque in Russia.
-> 
-> 
-
-</details>
-
-| ![Registan, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Registan, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_1080x1920.jpg) ||
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_1080x1920.jpg) |S7213876995_1080x1920.jpg) |--:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_1080x1920.jpg) |n eagles, vultures, mountain cats, wild boars, and numerous reptiles. Spread across around 104,000 acres, the park's semi-desert environment and unique geological formations make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
 > 
