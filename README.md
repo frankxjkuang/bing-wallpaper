@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240621
+
+> Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Today is about honoring the tallest creatures on Earth and highlighting the importance of conservation efforts. Giraffes have fascinated travelers from around the world for a long time. These animals were once viewed as status symbols and were treasured as pets among royalty.
+> 
+> Featured here are reticulated giraffes, found mostly in Kenya, but also in parts of Somalia and Ethiopia. Reticulated means to resemble a network or net, and these majestic creatures are named after their coats, which feature large spots that extend onto the lower legs, tail, and face. Only around 16,000 reticulated giraffes remain in the wild, less than half of those recorded in the 1980s. Nevertheless, in recent years there has been a promising trend in northern Kenya, where populations are rebounding thanks to places like the Lewa Wildlife Conservancy. So, let's pledge to protect these creatures and their habitats.
+> 
+> 
+
+</details>
+
+| ![World Giraffe Day](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Giraffe Day](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_1080x1920.jpg) |
+
 ### 20240620
 
 > Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)
@@ -112,27 +131,7 @@
 
 | ![International Surfing Day](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Surfing Day](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_1080x1920.jpg) |
-
-### 20240614
-
-> Flag display at the Washington Monument, Washington, DC (© tristanbnz/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> Wave our national symbol today; it's Flag Day! On June 14, 1777, by resolution of the Second Continental Congress, the nation's first official flag was approved. Throughout US history, the flag's design has changed. In its current arrangement, the 13 stripes represent the original colonies, and the stars stand for the states. The flag was last modified in 1960, when Hawaii became a state, and the number of stars increased from 49 to 50.
-> 
-> Some states have always celebrated the adoption of the Stars and Stripes with parades or by displaying the national flag in their homes; however, the official observance of Flag Day dates back to 1949, thanks to legislation passed by President Harry Truman. We're flying flags on our homepage to mark the 75th anniversary of the national commemoration.
-> 
-> 
-
-</details>
-
-| ![Flag Day](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Flag Day](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_1080x1920.jpg) ||
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_1080x1920.jpg) |S7213876995_1080x1920.jpg) |--:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_1080x1920.jpg) |zbekistan_EN-US7287760362_1080x1920.jpg) |S7213876995_1080x1920.jpg) |--:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_1080x1920.jpg) |n eagles, vultures, mountain cats, wild boars, and numerous reptiles. Spread across around 104,000 acres, the park's semi-desert environment and unique geological formations make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
 > 
 > 
