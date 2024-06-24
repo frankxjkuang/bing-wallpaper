@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240622
+
+> Amazon rainforest, Brazil (© Claus Meyer/plainpicture)
+
+<details>
+<summary>Description</summary>
+
+> Fresh air, rustling leaves, and thousands of wildlife species—welcome to the Amazon rainforest. Covering more than 2,100,000 square miles, this South America treasure extends its branches across nine nations—Brazil, Peru, Colombia, Bolivia, Ecuador, French Guiana, Guyana, Suriname, and Venezuela. Today, the Amazon is home to more than 30 million people, but it also carries secrets of lost civilizations. Archaeologists recently discovered a network of cities here dating back 2,500 years.
+> 
+> However, deforestation has peeled away 20% of the Amazon's cover, jeopardizing local and global climates. This forest, housing an estimated 390 billion trees, has a critical cooling effect on the planet, absorbing and storing huge amounts of carbon dioxide. World Rainforest Day highlights the need for action to protect all rainforests and help these important ecosystems continue to play a vital role in the health of our planet.
+> 
+> 
+
+</details>
+
+| ![World Rainforest Day](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rainforest Day](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_1080x1920.jpg) |
+
 ### 20240621
 
 > Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_1080x1920.jpg) |
-
-### 20240615
-
-> Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Let's hit the waves for International Surfing Day! This event both celebrates the sport and promotes protecting the ocean for wildlife and surfers alike. Surfing has a long history; around 5,000 years ago in Peru, people used reed watercraft to surf the waves when they were out fishing. Polynesians are believed to have brought their version of surfing to Hawaii, where modern surfing was born. Here, people started to stand on their boards and to surf for fun. Historians believe that surfing made its way to the US in 1885, when three teenage Hawaiian princes surfed on redwood boards while on a break from boarding school in California.
-> 
-> Today's image shows an intrepid surfer riding a wave at Nazaré, Portugal. This town on the Atlantic coast is known for its giant waves, which can reach over 100 feet in height. Thanks to these impressive breakers, several surf records have been broken here, including the biggest wave ever surfed—an incredible 86 feet. So, wax down your surfboards and go out and catch some waves!
-> 
-> 
-
-</details>
-
-| ![International Surfing Day](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Surfing Day](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_1080x1920.jpg) |zbekistan_EN-US7287760362_1080x1920.jpg) |S7213876995_1080x1920.jpg) |--:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_1080x1920.jpg) |zbekistan_EN-US7287760362_1080x1920.jpg) |S7213876995_1080x1920.jpg) |--:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_1080x1920.jpg) |n eagles, vultures, mountain cats, wild boars, and numerous reptiles. Spread across around 104,000 acres, the park's semi-desert environment and unique geological formations make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
 > 
 > 
