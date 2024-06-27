@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240625
+
+> Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Amid the arid expanse of the Mojave Desert in Nevada lies Valley of Fire State Park. Named after its red Aztec Sandstone, an Early Jurassic formation made from ancient sand dunes, the park stretches across 46,000 acres. Featured on our homepage is one of its highlights, Fire Wave, a geological marvel that appears like a frozen wave with its red, pink, and white stripes.
+> 
+> In the park, you will also come across mysterious petroglyphs, rock carvings left by the Ancestral Puebloans, farmers from the nearby Moapa Valley. It is likely they practiced hunting and performed religious ceremonies in this area. If you are a history buff, you might want to try and decode the messages carved on the rock faces. This forbidding landscape is also home to ancient, petrified trees, natural sandstone arches, and narrow slot canyons carved by water over millions of years.
+> 
+> 
+
+</details>
+
+| ![Valley of Fire State Park, Nevada](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Valley of Fire State Park, Nevada](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_1080x1920.jpg) |
+
 ### 20240624
 
 > Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)
@@ -112,28 +131,7 @@
 
 | ![Juneteenth](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Juneteenth](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_1080x1920.jpg) |
-
-### 20240618
-
-> Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As spring gives way to summer in Iceland, the rugged landscape bursts into color. Lupines were introduced here in the 1940s for their soil-binding properties, to reduce erosion. The plant flourishes in sandy and salty soils and spreads rapidly, bringing hues of purple, pink, and blue. Although some consider lupine to be a threat to native plants, it is welcomed by many as a cherished part of the summer landscape. You can find lupine fields in Reykjavík, near the Skógafoss waterfall, and lining the road to the Hellissandur Church in the Snæfellsnes Peninsula, as seen in today's image.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Lupine fields, Snæfellsnes, Iceland](https://cn.bing.com/th?id=OHR.LupinIceland_EN-US0093427185_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lupine fields, Snæfellsnes, Iceland](https://cn.bing.com/th?id=OHR.LupinIceland_EN-US0093427185_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LupinIceland_EN-US0093427185_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LupinIceland_EN-US0093427185_1080x1920.jpg) |��田和教堂，斯奈山半岛，冰岛](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_1080x1920.jpg) |pg) |S7213876995_1080x1920.jpg) |--:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_1080x1920.jpg) |29147708_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_1080x1920.jpg) |pg) |S7213876995_1080x1920.jpg) |--:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_1080x1920.jpg) |n eagles, vultures, mountain cats, wild boars, and numerous reptiles. Spread across around 104,000 acres, the park's semi-desert environment and unique geological formations make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
 > 
 > 
