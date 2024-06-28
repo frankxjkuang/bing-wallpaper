@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240626
+
+> Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Dive deep beneath the waves surrounding the Banggai Islands in Indonesia and meet the Banggai cardinalfish. Cardinalfish have tiny, shimmery bodies with black vertical stripes and white-edged fins, which help to disguise them. Unlike some finned creatures that migrate long distances, these pint-sized fish inhabit a small world, rarely straying far from their local reefs.
+> 
+> Each young cardinalfish begins life being guarded by their fathers, who carry the eggs in their mouths for up to 30 days to shield them from the aquatic perils. Within these jaws, young fish embark on a silent metamorphosis, soon to emerge, ready to explore the currents. In their early stages, they form dense schools for protection against predators and hide among the spines of sea urchins and anemones. The diet of these opportunistic feeders primarily consists of small fish, crustaceans, and plankton. Their existence whispers tales of resilience—a creature to cherish and protect for the spectacle of life it presents.
+> 
+> 
+
+</details>
+
+| ![Banggai cardinalfish with sea anemone](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Banggai cardinalfish with sea anemone](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |
+
 ### 20240625
 
 > Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Summer solstice](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Summer solstice](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_1080x1920.jpg) |
-
-### 20240619
-
-> Jacob Lawrence's mosaic 'Community,' Joseph P. Addabbo Federal Building, Jamaica, Queens, New York (© Alpha Stock/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Juneteenth commemorates the end of slavery in the US. On June 19, 1865, Union troops arrived in Galveston, Texas, to enforce the Emancipation Proclamation issued by Abraham Lincoln. Juneteenth became a federal holiday in 2021, an acknowledgment of its indelible imprint on the country.
-> 
-> Today, we're featuring the New York mosaic 'Community,' by African American artist Jacob Lawrence. Lawrence was born in New Jersey to parents who, along with about 6 million African Americans, moved from the rural south to cities like New York City, Chicago, and Detroit during the Great Migration (1910-1970). He viewed the Black American experience as integral to American heritage and depicted its struggles and triumphs through vibrant, angular paintings, including his famed 'The Migration Series.' Lawrence was also inspired by the Harlem Renaissance, a revival of African American culture in the 1920s and 30s. His groundbreaking works broke racial barriers and continue to educate and inspire today.
-> 
-> 
-
-</details>
-
-| ![Juneteenth](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Juneteenth](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_1080x1920.jpg) |29147708_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_1080x1920.jpg) |pg) |S7213876995_1080x1920.jpg) |--:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_1080x1920.jpg) |47708_1080x1920.jpg) |pg) |S7213876995_1080x1920.jpg) |--:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_1080x1920.jpg) |n eagles, vultures, mountain cats, wild boars, and numerous reptiles. Spread across around 104,000 acres, the park's semi-desert environment and unique geological formations make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
 > 
 > 
