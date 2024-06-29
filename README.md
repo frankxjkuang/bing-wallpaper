@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240627
+
+> Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to Florence, the cradle of the Renaissance. Let the Cathedral of Santa Maria del Fiore transport you through time. More than just a church, this Gothic structure, with its red-tiled dome, is steeped in centuries of history. Built over an older cathedral, construction began in 1296 under the supervision of architect Arnolfo di Cambio. Italian architect Filippo Brunelleschi engineered its dome, the largest brick dome ever constructed. Its completion in 1436 was the final stage of the cathedral's construction. It's not just the outside that dazzles; inside there are artistic treasures to discover, from Giorgio Vasari's fresco 'The Last Judgment' to Paolo Uccello's intricate clock face. The cathedral complex is also home to the Baptistery, a small basilica, and Giotto's Campanile, a free-standing bell tower.
+> 
+> Step inside, and you're walking on history—every visit gives a glimpse of the past and a demonstration of human potential.
+> 
+> 
+
+</details>
+
+| ![Duomo Santa Maria del Fiore, Florence](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Duomo Santa Maria del Fiore, Florence](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_1080x1920.jpg) |
+
 ### 20240626
 
 > Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)
@@ -112,27 +131,7 @@
 
 | ![World Giraffe Day](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Giraffe Day](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_1080x1920.jpg) |
-
-### 20240620
-
-> Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> It's that time of year again when the daylight stretches long into the evening hours. Today is the longest day of the year, known as the summer solstice, which happens when one of the Earth's poles is most inclined toward the sun. Today's image features the Kokino megalithic observatory, part of a wider archaeological site in North Macedonia. It is believed that it marked the position of the sun during summer and winter solstices, as well as the equinox, and consists of two platforms. A stone block on the upper platform of the observatory indicates the summer solstice sunrise direction when seen from a seat on the lower platform. This Bronze Age astronomical wonder sits more than 3,300 feet above sea level, on a hill overlooking the hamlet of Kokino.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Summer solstice](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Summer solstice](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_1080x1920.jpg) |47708_1080x1920.jpg) |pg) |S7213876995_1080x1920.jpg) |--:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_1080x1920.jpg) |n eagles, vultures, mountain cats, wild boars, and numerous reptiles. Spread across around 104,000 acres, the park's semi-desert environment and unique geological formations make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_1080x1920.jpg) |N-US7022302235_1080x1920.jpg) |n eagles, vultures, mountain cats, wild boars, and numerous reptiles. Spread across around 104,000 acres, the park's semi-desert environment and unique geological formations make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
 > 
 > 
 
