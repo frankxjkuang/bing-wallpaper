@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240628
+
+> Pride flags at Christopher Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Fifty-five years ago today, an act of resistance marked a turning point in the fight for LGBTQIA+ rights. In the early hours of June 28, 1969, New York City Police raided the Stonewall Inn, a gay bar in Greenwich Village. At the time, homosexuality was illegal, and such raids were common. However, that night, the patrons of the Stonewall Inn, fed up with the continued harassment, stood their ground. Violence escalated, leading to clashes between protesters and police. In the following days, there was more rioting as people gathered to protest the raids.
+> 
+> On June 28 the following year, gay pride marches were held in New York City, Los Angeles, and Chicago to mark the anniversary of the riots. Similar marches began to be held annually across the US and the rest of the world. June 28 is now celebrated as International LGBTQIA+ Pride Day. In 2016, the Stonewall Inn, Christopher Park, and nearby streets were officially dedicated as the Stonewall National Monument. So, today is the perfect time to remember those who have fought for LGBTQIA+ rights before, during, and after Stonewall.
+> 
+> 
+
+</details>
+
+| ![Pride 2024](https://cn.bing.com/th?id=OHR.ChristopherPark_EN-US9362447266_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride 2024](https://cn.bing.com/th?id=OHR.ChristopherPark_EN-US9362447266_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChristopherPark_EN-US9362447266_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChristopherPark_EN-US9362447266_1080x1920.jpg) |
+
 ### 20240627
 
 > Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Rainforest Day](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rainforest Day](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_1080x1920.jpg) |
-
-### 20240621
-
-> Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Today is about honoring the tallest creatures on Earth and highlighting the importance of conservation efforts. Giraffes have fascinated travelers from around the world for a long time. These animals were once viewed as status symbols and were treasured as pets among royalty.
-> 
-> Featured here are reticulated giraffes, found mostly in Kenya, but also in parts of Somalia and Ethiopia. Reticulated means to resemble a network or net, and these majestic creatures are named after their coats, which feature large spots that extend onto the lower legs, tail, and face. Only around 16,000 reticulated giraffes remain in the wild, less than half of those recorded in the 1980s. Nevertheless, in recent years there has been a promising trend in northern Kenya, where populations are rebounding thanks to places like the Lewa Wildlife Conservancy. So, let's pledge to protect these creatures and their habitats.
-> 
-> 
-
-</details>
-
-| ![World Giraffe Day](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Giraffe Day](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_1080x1920.jpg) |N-US7022302235_1080x1920.jpg) |n eagles, vultures, mountain cats, wild boars, and numerous reptiles. Spread across around 104,000 acres, the park's semi-desert environment and unique geological formations make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_1080x1920.jpg) |al formations make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
 > 
 > 
 
