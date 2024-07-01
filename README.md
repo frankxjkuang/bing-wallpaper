@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240629
+
+> Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> It's time to get pedaling. The Tour de France, the world's most famous bike race, is starting today. Beginning in Florence, Italy, the 2024 Tour will cover 2,170 miles and will be a little different from previous years. The final finish line has always been in Paris; however, this year the French capital will be busy getting ready for the Olympic Games so the race will end in Nice, on France's Mediterranean coast.
+> 
+> The route changes every year but always follows the same format: 21 day-long stages held over 23 or 24 days to give the riders a few rest days. The race covers a range of terrains, and there are always mountain stages in the Alps and the Pyrenees. The Tour de France has passed through every French region, including the French island of Corsica for the 100th edition in 2013. In today's image, riders take on the third stage of the 2013 Tour, between Ajaccio and Calvi on Corsica.
+> 
+> 
+
+</details>
+
+| ![Tour de France 2024 begins](https://cn.bing.com/th?id=OHR.TourCorsica_EN-US3437831281_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tour de France 2024 begins](https://cn.bing.com/th?id=OHR.TourCorsica_EN-US3437831281_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TourCorsica_EN-US3437831281_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TourCorsica_EN-US3437831281_1080x1920.jpg) |
+
 ### 20240628
 
 > Pride flags at Christopher Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Dhaka, Bangladesh](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dhaka, Bangladesh](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_1080x1920.jpg) |
-
-### 20240622
-
-> Amazon rainforest, Brazil (© Claus Meyer/plainpicture)
-
-<details>
-<summary>Description</summary>
-
-> Fresh air, rustling leaves, and thousands of wildlife species—welcome to the Amazon rainforest. Covering more than 2,100,000 square miles, this South America treasure extends its branches across nine nations—Brazil, Peru, Colombia, Bolivia, Ecuador, French Guiana, Guyana, Suriname, and Venezuela. Today, the Amazon is home to more than 30 million people, but it also carries secrets of lost civilizations. Archaeologists recently discovered a network of cities here dating back 2,500 years.
-> 
-> However, deforestation has peeled away 20% of the Amazon's cover, jeopardizing local and global climates. This forest, housing an estimated 390 billion trees, has a critical cooling effect on the planet, absorbing and storing huge amounts of carbon dioxide. World Rainforest Day highlights the need for action to protect all rainforests and help these important ecosystems continue to play a vital role in the health of our planet.
-> 
-> 
-
-</details>
-
-| ![World Rainforest Day](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rainforest Day](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_1080x1920.jpg) |al formations make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_1080x1920.jpg) | make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
 > 
 > 
 
