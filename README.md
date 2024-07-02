@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240630
+
+> Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)
+
+<details>
+<summary>Description</summary>
+
+> Among untamed rainforests, rice paddies, and steep ravines lies the village of Ubud, the cultural heart of Bali, Indonesia. According to legend, a Hindu priest, Rsi Markandaya, arrived at the island of Bali in the 8th century, discovering an area abundant in medicinal herbs and plants. The village's name derives from the word 'ubad,' meaning medicine. Nestled within the verdant landscape, the village is rich in Hindu temples and local mythology. The mythical character seen in today’s image is Barong, a panther-like creature, the king of spirits, and a symbol of good fortune and prosperity. The Barong dance, performed in a decorated animal mask, is native to Bali.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Ubud, Bali, Indonesia](https://cn.bing.com/th?id=OHR.UbudBali_EN-US3541248173_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ubud, Bali, Indonesia](https://cn.bing.com/th?id=OHR.UbudBali_EN-US3541248173_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.UbudBali_EN-US3541248173_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_EN-US3541248173_1080x1920.jpg) |
+
 ### 20240629
 
 > Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Kelimutu, Flores, Indonesia](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kelimutu, Flores, Indonesia](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_1080x1920.jpg) |
-
-### 20240623
-
-> Aerial view of an intersection in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to Dhaka, capital of Bangladesh. This South Asian megacity on the Ganges Delta, home to over 10.2 million people, is one of the world's most densely populated cities. Dhaka has been nicknamed 'City of Mosques' because of the hundreds of elegant minarets that dot the city. Here, the cheers from football and cricket stadiums fill the air, and colorfully decorated rickshaws, recognized by UNESCO as an important example of cultural heritage, meander through the streets. Even by rickshaw, it might take you a while to reach your destination: Dhaka has been recognized as the world's slowest city. So, whether you're weaving through its alleys or sampling its spicy street foods, take the time to savor everything Dhaka has to offer.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Dhaka, Bangladesh](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dhaka, Bangladesh](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_1080x1920.jpg) | make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_1080x1920.jpg) | make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
 > 
 > 
 
