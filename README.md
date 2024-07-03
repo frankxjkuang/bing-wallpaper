@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240701
+
+> Fisgard Lighthouse, Esquimalt Harbor, Colwood, British Columbia, Canada (© davemantel/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, Canada celebrates its national day. It commemorates the passing of the Constitution Act of 1867, which joined three British colonies, the Province of Canada (later Quebec and Ontario), New Brunswick, and Nova Scotia, to become the self-governing country of Canada.
+> 
+> Canada is the second-largest country by landmass after Russia. Eighty percent of its land is unoccupied and every corner abounds in natural treasures—like the Great Bear Rainforest, the Northwest Passage, the Columbia Icefield or the Haida Gwaii archipelago. Celebrations including parades, fireworks, and other patriotic festivities will be held across this huge country today. Among those hosting events will be the Fisgard Lighthouse, pictured on our homepage looking out over Esquimalt Harbor in Colwood, British Columbia. The tower was the first lighthouse on the west coast of Canada, built on Fisgard Island in 1860.
+> 
+> 
+
+</details>
+
+| ![Canada Day](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Canada Day](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_1080x1920.jpg) |
+
 ### 20240630
 
 > Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)
@@ -112,26 +131,7 @@
 
 | ![Valley of Fire State Park, Nevada](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Valley of Fire State Park, Nevada](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_1080x1920.jpg) |
-
-### 20240624
-
-> Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Atop Kelimutu, a volcano on the Indonesian island of Flores, sit three lakes, each with its own hue and folklore. Volcanic vents deep within the Earth release steam and gas that alter the lakes' mineral compositions, creating different colors, which can change independently. The westernmost lake, Tiwu Ata Bupu (Lake of Old People), not pictured, normally has a dark blue hue. Meanwhile, Tiwu Ko'o Fai Nuwa Muri (Lake of Young Men and Maidens), tends to be light green or light blue and Tiwu Ata Polo (Bewitched or Enchanted Lake) can be red, dark green, blue or brown. The local Lio people revere these lakes, believing them to be the resting place of souls.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Kelimutu, Flores, Indonesia](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kelimutu, Flores, Indonesia](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_1080x1920.jpg) | make it an important site for scientific research and conservation efforts. If you wish to discover a place where natural beauty meets wild surprises around every bend, Bardenas Reales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_1080x1920.jpg) | wild surprises around every bend, Bardenas Reales should be on your bucket list!
 > 
 > 
 
