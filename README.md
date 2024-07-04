@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240702
+
+> The Roman amphitheater of Italica, near Seville, Spain (© Moses Palermo/Amazing Aerial Agency)
+
+<details>
+<summary>Description</summary>
+
+> It was the year 206 BCE. In the wake of the decisive Roman victory against the Carthaginians at the Battle of Ilipa, General Publius Cornelius Scipio built a settlement for veterans on the banks of the Guadalquivir River, in modern-day Spain. It was named Italica and was the first Roman settlement on the Iberian Peninsula. The city flourished in the following centuries and was the birthplace of two Roman emperors, Trajan and Hadrian.
+> 
+> The ruins of Italica, close to Seville, include the impressive amphitheater seen in today's image. One of the largest in the Roman Empire, it could accommodate up to 25,000 spectators, more than double the city's population. Beyond this, there are remains of public buildings, a temple built in honor of Trajan, baths, and villas decorated with stunning mosaics. Italica is an archeological gem, offering a glimpse into the grandeur of the Roman Empire.
+> 
+> 
+
+</details>
+
+| ![The ruins of Italica, Andalusia, Spain](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The ruins of Italica, Andalusia, Spain](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_1080x1920.jpg) |
+
 ### 20240701
 
 > Fisgard Lighthouse, Esquimalt Harbor, Colwood, British Columbia, Canada (© davemantel/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Banggai cardinalfish with sea anemone](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Banggai cardinalfish with sea anemone](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |
-
-### 20240625
-
-> Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Amid the arid expanse of the Mojave Desert in Nevada lies Valley of Fire State Park. Named after its red Aztec Sandstone, an Early Jurassic formation made from ancient sand dunes, the park stretches across 46,000 acres. Featured on our homepage is one of its highlights, Fire Wave, a geological marvel that appears like a frozen wave with its red, pink, and white stripes.
-> 
-> In the park, you will also come across mysterious petroglyphs, rock carvings left by the Ancestral Puebloans, farmers from the nearby Moapa Valley. It is likely they practiced hunting and performed religious ceremonies in this area. If you are a history buff, you might want to try and decode the messages carved on the rock faces. This forbidding landscape is also home to ancient, petrified trees, natural sandstone arches, and narrow slot canyons carved by water over millions of years.
-> 
-> 
-
-</details>
-
-| ![Valley of Fire State Park, Nevada](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Valley of Fire State Park, Nevada](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_1080x1920.jpg) | wild surprises around every bend, Bardenas Reales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
 > 
 
