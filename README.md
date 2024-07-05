@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240703
+
+> Meerkat family (© anetapics/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> It is World Meerkat Day, a celebration of these adorably upstanding creatures. Despite the name, they are not related to cats. They're small carnivores of the mongoose family, native to the deserts and grasslands of southwestern Africa. Meerkats live in mobs, tight-knit groups of up to 30 individuals that forage together, groom each other, and take turns watching for predators. These critters create huge burrows where they spend the night and retreat to escape the midday heat.
+> 
+> World Meerkat Day, founded in 2018, raises awareness about meerkats and their ecological importance, which includes controlling insect populations in their desert habitats. So, let's spread the word, ensuring future generations continue to be captivated by these remarkable creatures.
+> 
+> 
+
+</details>
+
+| ![World Meerkat Day](https://cn.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Meerkat Day](https://cn.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_1080x1920.jpg) |
+
 ### 20240702
 
 > The Roman amphitheater of Italica, near Seville, Spain (© Moses Palermo/Amazing Aerial Agency)
@@ -112,24 +131,7 @@
 
 | ![Duomo Santa Maria del Fiore, Florence](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Duomo Santa Maria del Fiore, Florence](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_1080x1920.jpg) |
-
-### 20240626
-
-> Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Dive deep beneath the waves surrounding the Banggai Islands in Indonesia and meet the Banggai cardinalfish. Cardinalfish have tiny, shimmery bodies with black vertical stripes and white-edged fins, which help to disguise them. Unlike some finned creatures that migrate long distances, these pint-sized fish inhabit a small world, rarely straying far from their local reefs.
-> 
-> Each young cardinalfish begins life being guarded by their fathers, who carry the eggs in their mouths for up to 30 days to shield them from the aquatic perils. Within these jaws, young fish embark on a silent metamorphosis, soon to emerge, ready to explore the currents. In their early stages, they form dense schools for protection against predators and hide among the spines of sea urchins and anemones. The diet of these opportunistic feeders primarily consists of small fish, crustaceans, and plankton. Their existence whispers tales of resilience—a creature to cherish and protect for the spectacle of life it presents.
-> 
-> 
-
-</details>
-
-| ![Banggai cardinalfish with sea anemone](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Banggai cardinalfish with sea anemone](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_1080x1920.jpg) |=1&c=4) | ![Banggai cardinalfish with sea anemone](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
