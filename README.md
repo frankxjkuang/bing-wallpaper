@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240706
+
+> 从康威河眺望康威城堡，威尔士 (© David Chapman/Alamy Stock Photo)
+
+<details>
+<summary>Description</summary>
+
+> 在康威河节上穿越时空，扬帆起航！这项活动于1993年首次在康威城堡下的康威码头举行，体现了威尔士航海传统的精髓。在码头日这一免费露天活动中，划船爱好者们可以尽情体验传统船只和现代船只进行友谊赛的乐趣。人们聚集在一起观看航海游行，品尝当地美食，如用茶、干果和香料调味的茶面包，以及由可食用海藻组成的海藻面包。
+> 
+> 康威城堡建于1283年至1287年，由国王爱德华一世在征服威尔士时建造。这座城堡由被誉为欧洲中世纪最伟大的建筑师之一的圣乔治·詹姆斯设计，被联合国教科文组织列为世界文化遗产。下方的康威河全长34英里，其名称来源于威尔士语中的“cyn”（首领）和“gwy”（水）。康威城堡和这条河是对威尔士丰富而动荡的过去的永恒致敬。
+> 
+> 
+
+</details>
+
+| ![康威河，威尔士](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![康威河，威尔士](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_1080x1920.jpg) |
+
 ### 20240705
 
 > 丹翠雨林的诺亚海滩，昆士兰州，澳大利亚 (© bjeayes/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![乌布，巴厘岛，印度尼西亚](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![乌布，巴厘岛，印度尼西亚](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg) |
-
-### 20240629
-
-> 宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国 (© Martin Ruegner/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 在德国北部梅克伦堡-前波美拉尼亚州的宁哈根有一处独特的宝藏，名叫“幽灵森林”，它是波罗的海沿岸的一片由山毛榉、橡树和白蜡树组成的混交林。春天，神秘的树木焕发出勃勃生机，就像一个个警惕的幽灵。连绵起伏的丘陵和涛声是这一神奇景色的背景。在这里，空气中弥漫着咸咸的泥土气息，春天绽放出灿烂的光芒。参天的山毛榉树将枝条伸向天空，仿佛在庆祝时间的流逝。树叶在轻风中翩翩起舞，空气中弥漫着淡淡的神秘气息。在长满青苔的小径间，树木低声诉说着过去的故事，而海浪则唱着新生之歌。欢迎来到宁哈根的幽灵森林，春天将手指伸向大地，将灵魂包裹在无限美丽的大自然中。
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![宁哈根的山毛榉林，德国](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![宁哈根的山毛榉林，德国](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1080x1920.jpg) |d=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg) ||d=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
