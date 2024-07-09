@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240707
+
+> Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Amid the rolling hills of northern Vietnam's Yên Bái province, the rice terraces of Mù Cang Chải district are a mosaic of agricultural excellence. The Hmong people, an ethnic minority who migrated here from China in the 19th century, have meticulously carved these cascading hills for generations. Mù Cang Chải boasts approximately 5,500 acres of terraced rice fields, which flood with water between September and October, reflecting the surrounding mountains and sky. Visitors can also indulge in Vietnamese dishes and colorful souvenirs at the local markets or climb to the peak of La Pan Tan village to enjoy views of this stunning landscape.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_1080x1920.jpg) |
+
 ### 20240706
 
 > Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy)
@@ -112,34 +131,7 @@
 
 | ![Canada Day](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Canada Day](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_1080x1920.jpg) |
-
-### 20240630
-
-> Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)
-
-<details>
-<summary>Description</summary>
-
-> Among untamed rainforests, rice paddies, and steep ravines lies the village of Ubud, the cultural heart of Bali, Indonesia. According to legend, a Hindu priest, Rsi Markandaya, arrived at the island of Bali in the 8th century, discovering an area abundant in medicinal herbs and plants. The village's name derives from the word 'ubad,' meaning medicine. Nestled within the verdant landscape, the village is rich in Hindu temples and local mythology. The mythical character seen in today’s image is Barong, a panther-like creature, the king of spirits, and a symbol of good fortune and prosperity. The Barong dance, performed in a decorated animal mask, is native to Bali.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Ubud, Bali, Indonesia](https://cn.bing.com/th?id=OHR.UbudBali_EN-US3541248173_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ubud, Bali, Indonesia](https://cn.bing.com/th?id=OHR.UbudBali_EN-US3541248173_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.UbudBali_EN-US3541248173_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_EN-US3541248173_1080x1920.jpg) |��蹈，表演时要戴上装饰好的动物面具。
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![乌布，巴厘岛，印度尼西亚](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![乌布，巴厘岛，印度尼西亚](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_1080x1920.jpg) |�，印度尼西亚](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![乌布，巴厘岛，印度尼西亚](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg) ||d=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
