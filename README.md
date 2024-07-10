@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240708
+
+> Blueberries growing in the wild (© Baac3nes/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Celebrate National Blueberry Day by indulging in the sweet, tangy flavors of this beloved fruit. Wild blueberries are native to North America and have been around for over 13,000 years. However, they weren't commercially farmed until the early 20th century, when the first domesticated variety was bred in New Jersey by Elizabeth Coleman White, an agricultural specialist, and botanist Frederick Coville.
+> 
+> The United States is a leading blueberry producer, with bountiful harvests from states including Maine, Michigan, and Oregon. Blueberries are North America's second-most popular berry, after strawberries. They're not just delicious—they are also fiber-rich and packed with antioxidants and vitamin C. So, toss them in your smoothies, sprinkle them over oatmeal, or savor them fresh and flaunt your blue-stained smile.
+> 
+> 
+
+</details>
+
+| ![National Blueberry Day](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Blueberry Day](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_1080x1920.jpg) |
+
 ### 20240707
 
 > Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![The ruins of Italica, Andalusia, Spain](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The ruins of Italica, Andalusia, Spain](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_1080x1920.jpg) |
-
-### 20240701
-
-> Fisgard Lighthouse, Esquimalt Harbor, Colwood, British Columbia, Canada (© davemantel/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, Canada celebrates its national day. It commemorates the passing of the Constitution Act of 1867, which joined three British colonies, the Province of Canada (later Quebec and Ontario), New Brunswick, and Nova Scotia, to become the self-governing country of Canada.
-> 
-> Canada is the second-largest country by landmass after Russia. Eighty percent of its land is unoccupied and every corner abounds in natural treasures—like the Great Bear Rainforest, the Northwest Passage, the Columbia Icefield or the Haida Gwaii archipelago. Celebrations including parades, fireworks, and other patriotic festivities will be held across this huge country today. Among those hosting events will be the Fisgard Lighthouse, pictured on our homepage looking out over Esquimalt Harbor in Colwood, British Columbia. The tower was the first lighthouse on the west coast of Canada, built on Fisgard Island in 1860.
-> 
-> 
-
-</details>
-
-| ![Canada Day](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Canada Day](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_1080x1920.jpg) |�，印度尼西亚](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![乌布，巴厘岛，印度尼西亚](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_1080x1920.jpg) |�，印度尼西亚](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![乌布，巴厘岛，印度尼西亚](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg) ||d=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
