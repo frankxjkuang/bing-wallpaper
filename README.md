@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240709
+
+> Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As Argentina celebrates Independence Day, Talampaya National Park invites us to venture into the country's ancient heart. Here, towering red rock formations reach skyward, and cliffs and caves feature petroglyphs created by the Ciénaga, Diaguita, and other Indigenous cultures more than 1,000 years ago. This 830-square-mile park in La Rioja province is also home to some of the oldest dinosaur remains ever found. Moreover, nature's beauty is shown in the local flora, like xeric shrubs and cactus, and fauna. Guanacos, hares, and foxes roam free, while condors, white-throated cacholotes, and sandy gallitos grace the skies above this UNESCO World Heritage Site.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Talampaya National Park, Argentina](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Talampaya National Park, Argentina](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_1080x1920.jpg) |
+
 ### 20240708
 
 > Blueberries growing in the wild (© Baac3nes/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![World Meerkat Day](https://cn.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Meerkat Day](https://cn.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_1080x1920.jpg) |
-
-### 20240702
-
-> The Roman amphitheater of Italica, near Seville, Spain (© Moses Palermo/Amazing Aerial Agency)
-
-<details>
-<summary>Description</summary>
-
-> It was the year 206 BCE. In the wake of the decisive Roman victory against the Carthaginians at the Battle of Ilipa, General Publius Cornelius Scipio built a settlement for veterans on the banks of the Guadalquivir River, in modern-day Spain. It was named Italica and was the first Roman settlement on the Iberian Peninsula. The city flourished in the following centuries and was the birthplace of two Roman emperors, Trajan and Hadrian.
-> 
-> The ruins of Italica, close to Seville, include the impressive amphitheater seen in today's image. One of the largest in the Roman Empire, it could accommodate up to 25,000 spectators, more than double the city's population. Beyond this, there are remains of public buildings, a temple built in honor of Trajan, baths, and villas decorated with stunning mosaics. Italica is an archeological gem, offering a glimpse into the grandeur of the Roman Empire.
-> 
-> 
-
-</details>
-
-| ![The ruins of Italica, Andalusia, Spain](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The ruins of Italica, Andalusia, Spain](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_1080x1920.jpg) |w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_1080x1920.jpg) |�，印度尼西亚](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![乌布，巴厘岛，印度尼西亚](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
