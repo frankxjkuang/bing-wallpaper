@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240713
+
+> Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Are you ready to make some noise? Wait, not that sort of rock. Today, we're all about granite, limestone, and slate. There are three types of rock: igneous rocks formed from magma and lava; sedimentary rocks made from a mixture of particles like sand and mud; and metamorphic rocks that are the result of heat and pressure on other kinds of rock.
+> 
+> Today's image takes us to the 'fairy chimneys' of Cappadocia in central Türkiye. These cone-shaped pillars are made of tuff, a sedimentary rock formed from volcanic ash and debris. In the sides of the rocks, ancient residents carved homes and churches. The area is also famous for its underground cities, which were cut out of the tuff to provide shelter and safety. This is just one of the many uses for rocks that humans have come up with throughout history.
+> 
+> 
+
+</details>
+
+| ![International Rock Day](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Rock Day](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_1080x1920.jpg) |
+
 ### 20240712
 
 > Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_1080x1920.jpg) |
-
-### 20240706
-
-> Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to walled town of Conwy, on the north coast of Wales, UK, and its spectacular medieval castle. Conwy Castle was built between 1283 and 1287 on the orders of English King Edward I, during his conquest of Wales. Designed by James of St. George, one of the greatest architects of the time, the castle is a UNESCO World Heritage Site which draws visitors from across the world.
-> 
-> The castle towers over the River Conwy, which this weekend hosts the annual Conwy River Festival, including boat races and other water-based events. Spectators gather to witness the nautical parade and enjoy local delicacies like bara brith, a tea bread flavored with tea, dried fruits, and spices, and laverbread made from edible seaweed. The name Conwy is from the Welsh words 'cyn' (chief) and 'gwy' (water) and the town sits at the mouth of the river. It is also the gateway to Eryri National Park, home to Wales's highest mountain Yr Wyddfa, or Snowdon in English.
-> 
-> 
-
-</details>
-
-| ![Conwy, Wales](https://cn.bing.com/th?id=OHR.ConwyRiver_EN-US4472231451_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Conwy, Wales](https://cn.bing.com/th?id=OHR.ConwyRiver_EN-US4472231451_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ConwyRiver_EN-US4472231451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ConwyRiver_EN-US4472231451_1080x1920.jpg) |兰州，澳大利亚](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![丹翠雨林的诺亚海滩，昆士兰州，澳大利亚](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.ConwyRiver_EN-US4472231451_1080x1920.jpg) |兰州，澳大利亚](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![丹翠雨林的诺亚海滩，昆士兰州，澳大利亚](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1080x1920.jpg) |d=OHR.UbudBali_ZH-CN4891348277_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg) ||d=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
