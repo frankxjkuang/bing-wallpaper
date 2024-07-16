@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240714
+
+> Volcanic vineyard in the La Geria wine region of Lanzarote, Canary Islands, Spain (© Pol Albarrán/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Surrounded by rugged, dark landscapes, La Geria is a marvel of viticulture. Most of the Spanish island of Lanzarote is treeless and covered with black-gray soil. This thick blanket of volcanic gravel is the result of a series of eruptions in the 1700s. By 1775, farmers started growing crops in the new layer of nutrient-rich soil. Volcanic soil absorbs and retains moisture, and the ash keeps its temperature favorable for growing grapes. The holes surrounded by stones you see in our image were dug to protect young grape plants from strong winds. La Geria's innovative approach to cultivation in an arid climate has been rewarded with its abundance of fine wine, fermented from Malvasia grapes.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![La Geria wine region, Lanzarote, Canary Islands](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![La Geria wine region, Lanzarote, Canary Islands](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_1080x1920.jpg) |
+
 ### 20240713
 
 > Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![National Blueberry Day](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Blueberry Day](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_1080x1920.jpg) |
-
-### 20240707
-
-> Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Amid the rolling hills of northern Vietnam's Yên Bái province, the rice terraces of Mù Cang Chải district are a mosaic of agricultural excellence. The Hmong people, an ethnic minority who migrated here from China in the 19th century, have meticulously carved these cascading hills for generations. Mù Cang Chải boasts approximately 5,500 acres of terraced rice fields, which flood with water between September and October, reflecting the surrounding mountains and sky. Visitors can also indulge in Vietnamese dishes and colorful souvenirs at the local markets or climb to the peak of La Pan Tan village to enjoy views of this stunning landscape.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.ConwyRiver_EN-US4472231451_1080x1920.jpg) |兰州，澳大利亚](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![丹翠雨林的诺亚海滩，昆士兰州，澳大利亚](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_1080x1920.jpg) |?id=OHR.ConwyRiver_EN-US4472231451_1080x1920.jpg) |兰州，澳大利亚](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![丹翠雨林的诺亚海滩，昆士兰州，澳大利亚](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1080x1920.jpg) |d=OHR.UbudBali_ZH-CN4891348277_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg) ||d=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
