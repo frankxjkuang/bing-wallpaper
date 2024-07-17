@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240715
+
+> Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Today, we're floating across the waves, following the ocean currents to Japan. Marine Day—海の日, Umi no Hi in Japanese—is celebrated on the third Monday in July. Japan has 14,125 islands and has over 18,400 miles of coastline, so it's no wonder the sea plays such a key role in its culture. It provides much of the country's food and is vital for trading and communicating with other nations.
+> 
+> One Marine Day tradition is to give thanks by throwing mud balls into the water; these balls are packed with microorganisms that help to purify the sea. Today's image takes us to Tateishi Park on Japan's largest island, Honshu. This scenic spot has stunning views of Sagami Bay and Mount Fuji, making it the perfect place to celebrate Japan's coastal waters.
+> 
+> 
+
+</details>
+
+| ![Marine Day, Japan](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Marine Day, Japan](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_1080x1920.jpg) |
+
 ### 20240714
 
 > Volcanic vineyard in the La Geria wine region of Lanzarote, Canary Islands, Spain (© Pol Albarrán/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Talampaya National Park, Argentina](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Talampaya National Park, Argentina](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_1080x1920.jpg) |
-
-### 20240708
-
-> Blueberries growing in the wild (© Baac3nes/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Celebrate National Blueberry Day by indulging in the sweet, tangy flavors of this beloved fruit. Wild blueberries are native to North America and have been around for over 13,000 years. However, they weren't commercially farmed until the early 20th century, when the first domesticated variety was bred in New Jersey by Elizabeth Coleman White, an agricultural specialist, and botanist Frederick Coville.
-> 
-> The United States is a leading blueberry producer, with bountiful harvests from states including Maine, Michigan, and Oregon. Blueberries are North America's second-most popular berry, after strawberries. They're not just delicious—they are also fiber-rich and packed with antioxidants and vitamin C. So, toss them in your smoothies, sprinkle them over oatmeal, or savor them fresh and flaunt your blue-stained smile.
-> 
-> 
-
-</details>
-
-| ![National Blueberry Day](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Blueberry Day](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_1080x1920.jpg) |?id=OHR.ConwyRiver_EN-US4472231451_1080x1920.jpg) |兰州，澳大利亚](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![丹翠雨林的诺亚海滩，昆士兰州，澳大利亚](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_1080x1920.jpg) |?id=OHR.ConwyRiver_EN-US4472231451_1080x1920.jpg) |兰州，澳大利亚](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![丹翠雨林的诺亚海滩，昆士兰州，澳大利亚](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1080x1920.jpg) |d=OHR.UbudBali_ZH-CN4891348277_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg) ||d=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
