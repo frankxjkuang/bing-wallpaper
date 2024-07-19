@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240717
+
+> Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to Rothenburg ob der Tauber, or 'Red Fortress above the Tauber River,' where medieval charm is around every cobbled corner. A self-ruling city in the Middle Ages, this walled Bavarian town once flourished with 6,000 inhabitants, the Holy Roman Empire's second-largest city at the time. The growth of Rothenburg ob der Tauber slowed in the 17th century, preserving its original character.
+> 
+> Pictured here is the Burgtor (castle gate), which was built after the original Rothenburg Castle was destroyed by an earthquake in 1356. Within the castle gate is an 'eye-of-the-needle' door, designed to be the only way in and out once the main gates closed at night. But Rothenburg's magic isn't confined to its walls. It's also a gateway to the 290-mile Romantic Road that runs from Würzburg to Füssen, covering Bavaria's castle-studded valleys.
+> 
+> 
+
+</details>
+
+| ![Rothenburg ob der Tauber, Bavaria, Germany](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rothenburg ob der Tauber, Bavaria, Germany](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_1080x1920.jpg) |
+
 ### 20240716
 
 > The Neolithic settlement of Skara Brae, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_1080x1920.jpg) |
-
-### 20240710
-
-> Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Black and yellow plumage, bright eyes, and an oversized bill—meet the collared aracari, a fascinating tropical bird. Gracing the forests from Mexico through Costa Rica, where today's image was taken, to Colombia and Venezuela, this toucan gets its name from the red marking on the back of the neck. These birds circle through the air in groups of up to 15, and at night, snuggle together in tree cavities. Their song is as unique as their look—a high squeaky note that sounds like 'seek,' sometimes a 'purr' or even a raspy 'grhhrr.' Although deforestation and hunting pose threats to these birds, they are not endangered. For now, collared aracaris remain a captivating sight, a splash of color, and a burst of life amid the sprawling branches.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Collared aracari in Costa Rica](https://cn.bing.com/th?id=OHR.CollaredAracari_EN-US4924599176_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Collared aracari in Costa Rica](https://cn.bing.com/th?id=OHR.CollaredAracari_EN-US4924599176_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CollaredAracari_EN-US4924599176_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CollaredAracari_EN-US4924599176_1080x1920.jpg) |州，澳大利亚](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_1080x1920.jpg) |--:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1080x1920.jpg) |d=OHR.UbudBali_ZH-CN4891348277_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg) ||d=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
