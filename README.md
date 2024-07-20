@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240718
+
+> Coral reef in the Indian Ocean, overseas department of Mayotte, France (© Gabriel Barathieu/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Blooming pillar corals, green sea turtles, and colorful reef fishes—welcome to the underwater universe of coral reefs. They are formed by tiny marine organisms called coral polyps, which create vast colonies housing many species. As we celebrate their beauty and benefits, it's vital to recognize the lurking threats of climate change, pollution, and harmful human activities.
+> 
+> This underwater scene was photographed at Mayotte, a French island region in the Indian Ocean. Mayotte boasts one of the world's largest and deepest lagoons, encircled by a coral reef nearly 100 miles long. It is home to over 250 species of coral and more than 3,500 marine species. But it is facing numerous threats, including overfishing and coral bleaching, where corals expel the algae that live in their tissues, leading to a loss of color and essential energy sources. So, in Coral Reef Awareness Week, let's pledge to preserve coral reefs like this one.
+> 
+> 
+
+</details>
+
+| ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_1080x1920.jpg) |
+
 ### 20240717
 
 > Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Mount Rainier National Park](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Rainier National Park](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_1080x1920.jpg) |
-
-### 20240711
-
-> Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)
-
-<details>
-<summary>Description</summary>
-
-> In 1987, sometime around July 11, the world population reached the 5-billion mark. The United Nations recognized the need to address issues like family planning, infrastructure, waste, and pollution and established World Population Day in 1989. It is estimated that we hit 8 billion people in November 2022 and the UN expects the world to reach 9.7 billion people in 2050. But not everywhere faces the same challenges. While some areas struggle with overcrowding, others grapple with decreasing populations. The Italian town of Gangi, Sicily, seen in today's image, had about 16,000 residents in the 1950s. Today, it is home to little more than 6,000. Keen on revitalization, Gangi attracts new residents by giving away abandoned houses, on the condition that the properties are then restored.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![World Population Day](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_1080x1920.jpg) |--:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1080x1920.jpg) |d=OHR.UbudBali_ZH-CN4891348277_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg) ||d=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_1080x1920.jpg) |_ZH-CN4891348277_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg) ||d=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
