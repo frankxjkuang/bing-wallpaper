@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240719
+
+> A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Spot the wildlife star in today's image. The jaguar is the largest cat in the Americas and is seen here in the world's largest tropical wetland, the Pantanal in Brazil. Jaguars arrived in the Americas some 2 million years ago, migrating from Eurasia through the Bering Strait. Today, they live in various habitats from the woodlands of the southwestern US to the rainforests of northern Argentina. Brazil is home to about half of the world's wild jaguars.
+> 
+> Often found near bodies of water, jaguars are excellent swimmers, ambushing prey by leaping into the water. They feed on a wide range of animals, including deer, armadillos, monkeys, and lizards and their strong teeth and jaws can bite through turtle shells. In the Brazilian Pantanal, a population of jaguars feeds on aquatic reptiles and fish. So, the next time you are on a jungle trail, keep your eyes peeled and your senses sharp: Every rustle of leaves could be a jaguar on the prowl.
+> 
+> 
+
+</details>
+
+| ![A young jaguar on a riverbank, Pantanal, Brazil](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A young jaguar on a riverbank, Pantanal, Brazil](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_1080x1920.jpg) |
+
 ### 20240718
 
 > Coral reef in the Indian Ocean, overseas department of Mayotte, France (© Gabriel Barathieu/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![International Rock Day](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Rock Day](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_1080x1920.jpg) |
-
-### 20240712
-
-> Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In the shadow of Mount Rainier, a carpet of wildflowers bursts into life. Every summer, the meadows around this mountain are colored with vivid shades of blooming subalpine flowers: purple asters, pink coralroot, and yellow tiger lilies, and more. Also known as Tahoma, at over 14,400 feet, Mount Rainier is the tallest mountain in the state of Washington. It is covered by 36 square miles of glaciers and permanent snowfields, the highest glacier ice cover of any mountain in the lower 48 states.
-> 
-> Mount Rainier National Park encompasses mountains, waterfalls, meadows, and old-growth forests and teems with life, from cougars and beavers to bald eagles and peregrine falcons. It is also a popular climbing destination, with some 10,000 people attempting to scale the mountain every year while others enjoy hiking along its trails. It's never sunnier in Rainier than in July and August, making summer the perfect time to visit.
-> 
-> 
-
-</details>
-
-| ![Mount Rainier National Park](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Rainier National Park](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_1080x1920.jpg) |_ZH-CN4891348277_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg) ||d=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg) ||d=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
