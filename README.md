@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240720
+
+> The moon (© Victor Blum/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today we're celebrating small steps and giant leaps—it's International Moon Day. This day honors the legacy of the Apollo 11 mission. Initially celebrated as National Moon Day, it was recognized by the United Nations in 2021. Human civilizations have gazed at the sky for millennia, contemplating the origins and mysteries of the moon. The advent of space exploration transformed it into the target of numerous missions.
+> 
+> On July 20, 1969, the pioneering Apollo 11 space mission culminated in astronauts Neil Armstrong and Buzz Aldrin taking the first steps on the moon. Moon Day commemorates this historic event, and the significant efforts required to launch the space program. Moon missions have found no signs of life, but it could be a future site for human colonization. The discovery of water ice, especially in the dark craters at the poles, makes it more hospitable for potential settlers. So, until you have a chance to live there, keep dreaming under the same moon that has captivated humanity since time immemorial.
+> 
+> 
+
+</details>
+
+| ![International Moon Day](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Moon Day](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_1080x1920.jpg) |
+
 ### 20240719
 
 > A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![La Geria wine region, Lanzarote, Canary Islands](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![La Geria wine region, Lanzarote, Canary Islands](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_1080x1920.jpg) |
-
-### 20240713
-
-> Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Are you ready to make some noise? Wait, not that sort of rock. Today, we're all about granite, limestone, and slate. There are three types of rock: igneous rocks formed from magma and lava; sedimentary rocks made from a mixture of particles like sand and mud; and metamorphic rocks that are the result of heat and pressure on other kinds of rock.
-> 
-> Today's image takes us to the 'fairy chimneys' of Cappadocia in central Türkiye. These cone-shaped pillars are made of tuff, a sedimentary rock formed from volcanic ash and debris. In the sides of the rocks, ancient residents carved homes and churches. The area is also famous for its underground cities, which were cut out of the tuff to provide shelter and safety. This is just one of the many uses for rocks that humans have come up with throughout history.
-> 
-> 
-
-</details>
-
-| ![International Rock Day](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Rock Day](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_1080x1920.jpg) |Download portrait 4K](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1080x1920.jpg) ||d=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
