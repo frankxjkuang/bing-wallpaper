@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240721
+
+> Wooden fishing boats at Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Off the coast of East Africa in the archipelago of Zanzibar is the village of Kendwa. This serene village plays a modest role in the islands' fishing industry, with traditional wooden boats, known as dhows, etching patterns across the waters. The local dhow builders offer a glimpse into an artisanal craft that has sailed through generations. Venture deeper and you'll find lush spice farms where the air tingles with the scent of nutmeg and black pepper. Here, traditional Swahili dishes, including nyama choma, a roasted meat dish, and samaki wa kaupaka, fish with coconut sauce, blend spices with the bounty of the sea and land. As the sun sets, bonfires flicker into life and the island pulses with Taarab, a fusion of African, Arabic, and Indian music. With so much to see, Zanzibar proves that variety really is the spice of life.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Kendwa village, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kendwa village, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_1080x1920.jpg) |
+
 ### 20240720
 
 > The moon (© Victor Blum/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Marine Day, Japan](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Marine Day, Japan](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_1080x1920.jpg) |
-
-### 20240714
-
-> Volcanic vineyard in the La Geria wine region of Lanzarote, Canary Islands, Spain (© Pol Albarrán/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Surrounded by rugged, dark landscapes, La Geria is a marvel of viticulture. Most of the Spanish island of Lanzarote is treeless and covered with black-gray soil. This thick blanket of volcanic gravel is the result of a series of eruptions in the 1700s. By 1775, farmers started growing crops in the new layer of nutrient-rich soil. Volcanic soil absorbs and retains moisture, and the ash keeps its temperature favorable for growing grapes. The holes surrounded by stones you see in our image were dug to protect young grape plants from strong winds. La Geria's innovative approach to cultivation in an arid climate has been rewarded with its abundance of fine wine, fermented from Malvasia grapes.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![La Geria wine region, Lanzarote, Canary Islands](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![La Geria wine region, Lanzarote, Canary Islands](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_1080x1920.jpg) |landscape 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
 > 
 
