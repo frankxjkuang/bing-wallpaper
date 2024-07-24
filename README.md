@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240722
+
+> Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Imagine swaying gently under a canopy of leaves, a soft breeze coaxing you into a serene slumber while you gaze at the stars above. Observed every July 22, Hammock Day is not just a nod to the lazy lull of summer days, but an homage to an ancient tradition. Invented by the Indigenous peoples of Central and South America, hammocks were called 'hamacas' and were originally woven for sleep and relaxation.
+> 
+> Back then hammocks were made from tree bark, whereas now they can be made of various materials like cotton, nylon, and canvas. These sleeping swings have crossed oceans as beds for sailors, swung from the trees, and nowadays, add a touch of chill to hip outdoor retreats. They have health benefits, too; gentle rocking can improve your sleep and even relieve stress. So go ahead, jump into a hammock, and let it sway your worries away.
+> 
+> 
+
+</details>
+
+| ![Hammock Day](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hammock Day](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_1080x1920.jpg) |
+
 ### 20240721
 
 > Wooden fishing boats at Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Festival of British Archaeology](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Festival of British Archaeology](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1080x1920.jpg) |
-
-### 20240715
-
-> Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Today, we're floating across the waves, following the ocean currents to Japan. Marine Day—海の日, Umi no Hi in Japanese—is celebrated on the third Monday in July. Japan has 14,125 islands and has over 18,400 miles of coastline, so it's no wonder the sea plays such a key role in its culture. It provides much of the country's food and is vital for trading and communicating with other nations.
-> 
-> One Marine Day tradition is to give thanks by throwing mud balls into the water; these balls are packed with microorganisms that help to purify the sea. Today's image takes us to Tateishi Park on Japan's largest island, Honshu. This scenic spot has stunning views of Sagami Bay and Mount Fuji, making it the perfect place to celebrate Japan's coastal waters.
-> 
-> 
-
-</details>
-
-| ![Marine Day, Japan](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Marine Day, Japan](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_1080x1920.jpg) |landscape 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
 > 
 
