@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240723
+
+> Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Perched on a rocky headland is Methoni Castle, a symbol of medieval might on the shores of the Ionian Sea. The fortress, on the Peloponnese peninsula in southern Greece, was built by the Venetians in the early 13th century as a trading post and defensive bastion, protecting the coastline from invaders. Its Bourtzi tower, an extension of the fortress standing on a small islet, was once connected to the main castle by a stone bridge.
+> 
+> Many conquerors, from the Ottomans in 1500 to the French in 1828, aimed to win Methoni's strategic position. Some original structures, like the castle itself, still stand, allowing visitors to walk through the same gates where soldiers once marched. The village's blend of architecture, with Byzantine, Venetian, and Ottoman influences, narrates a storied past where European powers battled for dominance.
+> 
+> 
+
+</details>
+
+| ![Methoni Castle, Messenia, Greece](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Methoni Castle, Messenia, Greece](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_1080x1920.jpg) |
+
 ### 20240722
 
 > Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Rothenburg ob der Tauber, Bavaria, Germany](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rothenburg ob der Tauber, Bavaria, Germany](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_1080x1920.jpg) |
-
-### 20240716
-
-> The Neolithic settlement of Skara Brae, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Archaeology might not be the first thing that comes to mind when you think of festivals, but the Festival of British Archaeology, July 13-28, is here to change that. Since its inception in 1990, it has evolved into a two-week event. A clever shift from September to July has made it easier for archaeological buffs to explore summer digs and heritage wonders. This year's theme of 'Archaeology and Community' invites enthusiasts across the United Kingdom for an array of in-person and virtual events. Imagine standing amid Skara Brae's ancient stone houses on Scotland's Orkney archipelago, pictured here, where Neolithic settlers thrived over 5,000 years ago. Exposed by an 1850 storm, this prehistoric marvel is dubbed the 'Scottish Pompeii' due to its astonishing preservation—older than Stonehenge and even the Great Pyramids. So, grab your trowel, and get ready to dig deep into the incredible, storied past. Who knows what you'll discover!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Festival of British Archaeology](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Festival of British Archaeology](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_1080x1920.jpg) |ncientOrkney_EN-US8469766447_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
 > 
 
