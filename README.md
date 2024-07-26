@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240724
+
+> Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Family gatherings wouldn't be the same without them. Today, we are celebrating the unique bond between cousins. Cousins Day offers the perfect opportunity to reminisce about those shared adventures, secrets, and the countless memories that have brought you closer together. First cousins share about 12.5% of their DNA; this could explain why you often have so much love and understanding with them. So, go ahead and make some plans with your cousins, whether it is a picnic or a shared meal at your favorite local haunt. And while you are at it, don't forget to pose for a photo, much like this group of Swaledale sheep in the North Yorkshire dales of England. Chances are, there are at least a few cousins in this flock.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Cousins Day](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cousins Day](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_1080x1920.jpg) |
+
 ### 20240723
 
 > Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_1080x1920.jpg) |
-
-### 20240717
-
-> Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to Rothenburg ob der Tauber, or 'Red Fortress above the Tauber River,' where medieval charm is around every cobbled corner. A self-ruling city in the Middle Ages, this walled Bavarian town once flourished with 6,000 inhabitants, the Holy Roman Empire's second-largest city at the time. The growth of Rothenburg ob der Tauber slowed in the 17th century, preserving its original character.
-> 
-> Pictured here is the Burgtor (castle gate), which was built after the original Rothenburg Castle was destroyed by an earthquake in 1356. Within the castle gate is an 'eye-of-the-needle' door, designed to be the only way in and out once the main gates closed at night. But Rothenburg's magic isn't confined to its walls. It's also a gateway to the 290-mile Romantic Road that runs from Würzburg to Füssen, covering Bavaria's castle-studded valleys.
-> 
-> 
-
-</details>
-
-| ![Rothenburg ob der Tauber, Bavaria, Germany](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rothenburg ob der Tauber, Bavaria, Germany](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_1080x1920.jpg) |ncientOrkney_EN-US8469766447_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_1080x1920.jpg) |ownload landscape 4K](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_1080x1920.jpg) |ncientOrkney_EN-US8469766447_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
 > 
 
