@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240725
+
+> Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Fancy a walk through the Smokies in Tennessee, seen in today's image? Spanning over 522,000 acres between North Carolina and Tennessee, the Great Smoky Mountains National Park is a treasure trove of natural beauty and biodiversity. Home to more than 19,000 documented species, scientists estimate that tens of thousands more remain undiscovered. Miles of hiking trails wind through the dense woodlands, leading adventurers to cascading waterfalls and scenic overlooks. The park also boasts some of the highest mountains in the eastern United States, including Clingmans Dome, which rises to 6,643 feet. Visitors are often enchanted by the mist that blankets the peaks each morning, giving the park its mystical name. The park is a UNESCO World Heritage Site and an International Biosphere Reserve.
+> 
+> In every season, it offers a unique spectacle: the wildflower bloom in spring, vibrant foliage in fall, and serene snow-covered landscapes in winter. Great Smoky Mountains National Park is a haven for nature lovers and adventurers alike, promising unforgettable experiences and a deeper connection to the natural world.
+> 
+> 
+
+</details>
+
+| ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |
+
 ### 20240724
 
 > Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![A young jaguar on a riverbank, Pantanal, Brazil](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A young jaguar on a riverbank, Pantanal, Brazil](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_1080x1920.jpg) |
-
-### 20240718
-
-> Coral reef in the Indian Ocean, overseas department of Mayotte, France (© Gabriel Barathieu/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Blooming pillar corals, green sea turtles, and colorful reef fishes—welcome to the underwater universe of coral reefs. They are formed by tiny marine organisms called coral polyps, which create vast colonies housing many species. As we celebrate their beauty and benefits, it's vital to recognize the lurking threats of climate change, pollution, and harmful human activities.
-> 
-> This underwater scene was photographed at Mayotte, a French island region in the Indian Ocean. Mayotte boasts one of the world's largest and deepest lagoons, encircled by a coral reef nearly 100 miles long. It is home to over 250 species of coral and more than 3,500 marine species. But it is facing numerous threats, including overfishing and coral bleaching, where corals expel the algae that live in their tissues, leading to a loss of color and essential energy sources. So, in Coral Reef Awareness Week, let's pledge to preserve coral reefs like this one.
-> 
-> 
-
-</details>
-
-| ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_1080x1920.jpg) |ownload landscape 4K](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_1080x1920.jpg) |ncientOrkney_EN-US8469766447_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_1080x1920.jpg) |6447_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
 > 
 
