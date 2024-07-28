@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240726
+
+> Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to Paris, the City of Light, which is hosting the Summer Olympics for the third time. What makes these Games unique is the opening ceremony, which will be held outside a stadium for the first time. Participants will parade along the Seine on a flotilla of boats, passing under the Pont Neuf, pictured here, and cheered by spectators lining both banks. Paris is no stranger to historic firsts; the 1900 Games included women competing for the first time, although they made up only 22 of 997 athletes.
+> 
+> These Games are set to be rather special: Breakdancing will make its Summer Olympic debut in Paris. Competitors will be scored by a panel of nine judges who will look out for creativity and personality, along with other criteria. This could be a one-off, as breakdancing hasn't been included in the 2028 Olympics in Los Angeles. The surfing event at Paris 2024 is also rather unique: the competition will take place in Tahiti, part of French Polynesia. Almost 10,000 miles away from the host city, Tahiti was chosen because the island's huge waves make it perfect for surfing.
+> 
+> 
+
+</details>
+
+| ![Summer Olympics begin in Paris](https://cn.bing.com/th?id=OHR.PontNeuf_EN-US5735328254_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Summer Olympics begin in Paris](https://cn.bing.com/th?id=OHR.PontNeuf_EN-US5735328254_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PontNeuf_EN-US5735328254_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PontNeuf_EN-US5735328254_1080x1920.jpg) |
+
 ### 20240725
 
 > Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Moon Day](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Moon Day](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_1080x1920.jpg) |
-
-### 20240719
-
-> A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Spot the wildlife star in today's image. The jaguar is the largest cat in the Americas and is seen here in the world's largest tropical wetland, the Pantanal in Brazil. Jaguars arrived in the Americas some 2 million years ago, migrating from Eurasia through the Bering Strait. Today, they live in various habitats from the woodlands of the southwestern US to the rainforests of northern Argentina. Brazil is home to about half of the world's wild jaguars.
-> 
-> Often found near bodies of water, jaguars are excellent swimmers, ambushing prey by leaping into the water. They feed on a wide range of animals, including deer, armadillos, monkeys, and lizards and their strong teeth and jaws can bite through turtle shells. In the Brazilian Pantanal, a population of jaguars feeds on aquatic reptiles and fish. So, the next time you are on a jungle trail, keep your eyes peeled and your senses sharp: Every rustle of leaves could be a jaguar on the prowl.
-> 
-> 
-
-</details>
-
-| ![A young jaguar on a riverbank, Pantanal, Brazil](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A young jaguar on a riverbank, Pantanal, Brazil](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_1080x1920.jpg) |6447_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_1080x1920.jpg) |ntOrkney_EN-US8469766447_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
 > 
 
