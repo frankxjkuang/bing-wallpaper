@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240727
+
+> Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to the Palatinate, a wine lover's dream come true. This wine-growing region in western Germany has rolling hills, fertile soils, and a warm climate, allowing the cultivation of a diverse variety of grapes. While riesling reigns supreme, other notable varieties include chardonnay, sauvignon blanc, pinot blanc, Müller-Thurgau, and Dornfelder. The Palatinate is the largest red wine-producing region in the country, with over 40% of the vineyards devoted to it.
+> 
+> Visitors can try schorle, a drink made by mixing wine with sparkling water that is a popular choice at annual wine festivals held in the Palatinate's wine-producing towns. The region is also home to the Wurstmarkt, recognized as the world's largest wine festival, held in Bad Dürkheim. It draws over 600,000 visitors every year. So, let's raise a toast to the Palatinate. Prost!
+> 
+> 
+
+</details>
+
+| ![Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_1080x1920.jpg) |
+
 ### 20240726
 
 > Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Kendwa village, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kendwa village, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_1080x1920.jpg) |
-
-### 20240720
-
-> The moon (© Victor Blum/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today we're celebrating small steps and giant leaps—it's International Moon Day. This day honors the legacy of the Apollo 11 mission. Initially celebrated as National Moon Day, it was recognized by the United Nations in 2021. Human civilizations have gazed at the sky for millennia, contemplating the origins and mysteries of the moon. The advent of space exploration transformed it into the target of numerous missions.
-> 
-> On July 20, 1969, the pioneering Apollo 11 space mission culminated in astronauts Neil Armstrong and Buzz Aldrin taking the first steps on the moon. Moon Day commemorates this historic event, and the significant efforts required to launch the space program. Moon missions have found no signs of life, but it could be a future site for human colonization. The discovery of water ice, especially in the dark craters at the poles, makes it more hospitable for potential settlers. So, until you have a chance to live there, keep dreaming under the same moon that has captivated humanity since time immemorial.
-> 
-> 
-
-</details>
-
-| ![International Moon Day](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Moon Day](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_1080x1920.jpg) |ntOrkney_EN-US8469766447_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_1080x1920.jpg) |600169_1080x1920.jpg) |ntOrkney_EN-US8469766447_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
 > 
 
