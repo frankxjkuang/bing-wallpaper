@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240728
+
+> Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> When it comes to vibrant beach scenes, Skåne County in Sweden, doesn't disappoint. Today's image features pastel huts in Skanörs Havsbad, a sandy beach section in the town of Skanör. This is one of the most popular parts of the beach, which stretches for over 6 miles, on the western side of the Falsterbonäset peninsula. Located near the Skanör marina, this part of the beach is a favorite spot for bathers in the summer months.
+> 
+> Along with sandy shores, this area is home to rapeseed fields, beech forests, ancient monuments, castles, and museums that bring the region's history to life, from the Romanesque grandeur of Lund's cathedral to the modern energy of Malmö. So, next time you're in Skåne, don't forget to take a stroll along the shore and soak in the colorful charm of these iconic beach huts.
+> 
+> 
+
+</details>
+
+| ![Bathing huts in Skåne County, Sweden](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bathing huts in Skåne County, Sweden](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg) |
+
 ### 20240727
 
 > Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Hammock Day](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hammock Day](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_1080x1920.jpg) |
-
-### 20240721
-
-> Wooden fishing boats at Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Off the coast of East Africa in the archipelago of Zanzibar is the village of Kendwa. This serene village plays a modest role in the islands' fishing industry, with traditional wooden boats, known as dhows, etching patterns across the waters. The local dhow builders offer a glimpse into an artisanal craft that has sailed through generations. Venture deeper and you'll find lush spice farms where the air tingles with the scent of nutmeg and black pepper. Here, traditional Swahili dishes, including nyama choma, a roasted meat dish, and samaki wa kaupaka, fish with coconut sauce, blend spices with the bounty of the sea and land. As the sun sets, bonfires flicker into life and the island pulses with Taarab, a fusion of African, Arabic, and Indian music. With so much to see, Zanzibar proves that variety really is the spice of life.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Kendwa village, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kendwa village, Zanzibar, Tanzania](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_1080x1920.jpg) |600169_1080x1920.jpg) |ntOrkney_EN-US8469766447_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_1080x1920.jpg) |g) |600169_1080x1920.jpg) |ntOrkney_EN-US8469766447_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
 > 
 > 
 
