@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240730
+
+> San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> These medieval towers stand tall over San Gimignano, a small town near Siena in north central Italy. In the Middle Ages, a town grew up around a church dedicated to St. Geminianus (San Gimignano in Italian). As well as being a popular stop for pilgrims on their way to Rome, the town prospered thanks to its trade in local Vernaccia wine and in saffron, which is grown in the nearby hills. However, when the Black Death struck in 1348, half the population was lost, slowing the town's development and preserving its medieval character to this day.
+> 
+> San Gimignano's most recognizable feature is its skyline, made up of 14 towers. These impressive structures were the result of a rivalry between two families, each competing to build the tallest tower-house. By the end of the medieval period, there were 72 towers in the town, although because of wars, other catastrophes, and building projects, many were lost. Today, the tallest tower still standing is the Torre Grossa (Big Tower). Built in 1310, it stands at an incredible 177 feet. It's no wonder that the town is sometimes called the Manhattan of the Middle Ages.
+> 
+> 
+
+</details>
+
+| ![San Gimignano, Siena Tuscany, Italy](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![San Gimignano, Siena Tuscany, Italy](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_1080x1920.jpg) |
+
 ### 20240729
 
 > Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)
@@ -112,32 +131,7 @@
 
 | ![Cousins Day](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cousins Day](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_1080x1920.jpg) |
-
-### 20240723
-
-> Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Perched on a rocky headland is Methoni Castle, a symbol of medieval might on the shores of the Ionian Sea. The fortress, on the Peloponnese peninsula in southern Greece, was built by the Venetians in the early 13th century as a trading post and defensive bastion, protecting the coastline from invaders. Its Bourtzi tower, an extension of the fortress standing on a small islet, was once connected to the main castle by a stone bridge.
-> 
-> Many conquerors, from the Ottomans in 1500 to the French in 1828, aimed to win Methoni's strategic position. Some original structures, like the castle itself, still stand, allowing visitors to walk through the same gates where soldiers once marched. The village's blend of architecture, with Byzantine, Venetian, and Ottoman influences, narrates a storied past where European powers battled for dominance.
-> 
-> 
-
-</details>
-
-| ![Methoni Castle, Messenia, Greece](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Methoni Castle, Messenia, Greece](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1080x1920.jpg) |ales should be on your bucket list!
-> 
-> 
-
-</details>
-
-| ![Bardenas Reales Biosphere Reserve and Natural Park, Spain](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bardenas Reales Biosphere Reserve and Natural Park, Spain](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_1080x1920.jpg) |d=hp&w=400&h=224&rs=1&c=4) | ![Bardenas Reales Biosphere Reserve and Natural Park, Spain](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
