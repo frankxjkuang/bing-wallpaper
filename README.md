@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240731
+
+> Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Let's take a trip to a forest of stones. Sunset Point, seen in today's image, offers sweeping views of the hoodoos of Utah's Bryce Canyon National Park. These rock formations are created by frost weathering and stream erosion, which shape the stone into an otherworldly landscape. Perched at 8,000 to 9,000 feet, this overlook offers a panoramic view of rocky spires in red, orange, and white. The most iconic of them is Thor's Hammer, a hoodoo that overlooks a part of the park known as the 'Silent City.' The Queen's Garden Trail, which leads from Sunset Point to Sunrise Point, offers even more vistas and rock formations, including the Queen Victoria hoodoo. According to the legend told by the Paiute Indigenous people who inhabited this area, hoodoos are people who have been turned to stone for their misdeeds by the trickster Coyote. Whether you're a hiker, a photographer, or simply a traveler, the hoodoos are waiting.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Hoodoos, Sunset Point, Bryce Canyon National Park, Utah](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hoodoos, Sunset Point, Bryce Canyon National Park, Utah](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_1080x1920.jpg) |
+
 ### 20240730
 
 > San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |
-
-### 20240724
-
-> Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Family gatherings wouldn't be the same without them. Today, we are celebrating the unique bond between cousins. Cousins Day offers the perfect opportunity to reminisce about those shared adventures, secrets, and the countless memories that have brought you closer together. First cousins share about 12.5% of their DNA; this could explain why you often have so much love and understanding with them. So, go ahead and make some plans with your cousins, whether it is a picnic or a shared meal at your favorite local haunt. And while you are at it, don't forget to pose for a photo, much like this group of Swaledale sheep in the North Yorkshire dales of England. Chances are, there are at least a few cousins in this flock.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Cousins Day](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cousins Day](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_1080x1920.jpg) |d=hp&w=400&h=224&rs=1&c=4) | ![Bardenas Reales Biosphere Reserve and Natural Park, Spain](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
