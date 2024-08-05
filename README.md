@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240803
+
+> Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Carved by nature over centuries, the Three Natural Bridges tower over a deep gorge in Wulong Karst. This part of China is known for its karst landscape, which includes towering arches, extensive caves, and other rock formations. These limestone bridges are named after three dragons: Tianlong (Sky Dragon), Heilong (Black Dragon), and Qinglong (Azure Dragon), which is the tallest at 922 feet. Visitors can explore the mossy gorge beneath and the wider Wulong Karst National Geology Park, including the 9,337-foot Furong Cave with its huge limestone stalactites. Standing beneath these magnificent natural bridges, you can't help but be humbled by the sheer power of time and nature.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Three Natural Bridges, Wulong Karst, China](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Three Natural Bridges, Wulong Karst, China](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_1080x1920.jpg) |
+
 ### 20240802
 
 > Trunk Bay, St. John, Virgin Islands National Park (© cdwheatley/Getty Images)
@@ -112,25 +131,7 @@
 
 | ![Bathing huts in Skåne County, Sweden](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bathing huts in Skåne County, Sweden](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg) |
-
-### 20240727
-
-> Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to the Palatinate, a wine lover's dream come true. This wine-growing region in western Germany has rolling hills, fertile soils, and a warm climate, allowing the cultivation of a diverse variety of grapes. While riesling reigns supreme, other notable varieties include chardonnay, sauvignon blanc, pinot blanc, Müller-Thurgau, and Dornfelder. The Palatinate is the largest red wine-producing region in the country, with over 40% of the vineyards devoted to it.
-> 
-> Visitors can try schorle, a drink made by mixing wine with sparkling water that is a popular choice at annual wine festivals held in the Palatinate's wine-producing towns. The region is also home to the Wurstmarkt, recognized as the world's largest wine festival, held in Bad Dürkheim. It draws over 600,000 visitors every year. So, let's raise a toast to the Palatinate. Prost!
-> 
-> 
-
-</details>
-
-| ![Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg) |----:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1080x1920.jpg) |> 
 
 </details>
