@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240804
+
+> Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Friendship comes in all shapes and sizes. This impala and the red-billed oxpecker, pictured in South Africa, both get something out of buddying up. The oxpecker gets food by eating ticks from the impala's skin, while the impala gets to stay clean.
+> 
+> From exchanging friendship bracelets to sharing social media posts and messages, Americans have come up with their own special traditions to appreciate their pals. And this is a good day to reflect on the many ways friendship impacts our lives. The first Sunday of August is Friendship Day. So, let's learn from our homepage duo and reach out to our friends, to catch up on each other's lives or to simply say, 'I appreciate you.'
+> 
+> 
+
+</details>
+
+| ![Friendship Day](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Friendship Day](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_1080x1920.jpg) |
+
 ### 20240803
 
 > Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![International Tiger Day](https://cn.bing.com/th?id=OHR.CorbettTigers_EN-US6183924498_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Tiger Day](https://cn.bing.com/th?id=OHR.CorbettTigers_EN-US6183924498_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CorbettTigers_EN-US6183924498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CorbettTigers_EN-US6183924498_1080x1920.jpg) |
-
-### 20240728
-
-> Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> When it comes to vibrant beach scenes, Skåne County in Sweden, doesn't disappoint. Today's image features pastel huts in Skanörs Havsbad, a sandy beach section in the town of Skanör. This is one of the most popular parts of the beach, which stretches for over 6 miles, on the western side of the Falsterbonäset peninsula. Located near the Skanör marina, this part of the beach is a favorite spot for bathers in the summer months.
-> 
-> Along with sandy shores, this area is home to rapeseed fields, beech forests, ancient monuments, castles, and museums that bring the region's history to life, from the Romanesque grandeur of Lund's cathedral to the modern energy of Malmö. So, next time you're in Skåne, don't forget to take a stroll along the shore and soak in the colorful charm of these iconic beach huts.
-> 
-> 
-
-</details>
-
-| ![Bathing huts in Skåne County, Sweden](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bathing huts in Skåne County, Sweden](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg) |----:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CorbettTigers_EN-US6183924498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CorbettTigers_EN-US6183924498_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg) |----:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1080x1920.jpg) |> 
 
 </details>
