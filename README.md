@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240806
+
+> Molokini Crater, Maui, Hawaii (© Douglas Peebles/eStock Photo)
+
+<details>
+<summary>Description</summary>
+
+> Today we're at Molokini Crater. This pleasant crescent in the Pacific Ocean lies in the 'Alalākeiki Channel between the Hawaiian islands of Maui and Kaho'olawe. The islet is all that remains of a volcano that erupted about 230,000 years ago. According to Hawaiian mythology, Pele the fire goddess was in love with a man named Mo'o. The trouble was that Mo'o was in love with another woman. Pele's revenge was typically violent: She cut her rival in two, her body becoming Molokini, while her head became Pu'u Olai, a cinder cone on Maui.
+> 
+> Molokini Crater these days is a prime scuba and snorkeling destination; the islet's crescent shape protects divers from waves and currents, allowing them to enjoy the reef. This habitat is home to at least 250 species of fish, including black triggerfish and parrotfish, as well as 38 species of hard coral, and some 100 species of algae. So, come on in, the water's lovely. Just be sure not to anger Pele.
+> 
+> 
+
+</details>
+
+| ![Molokini Crater, Maui, Hawaii](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Molokini Crater, Maui, Hawaii](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_1080x1920.jpg) |
+
 ### 20240805
 
 > Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Hoodoos, Sunset Point, Bryce Canyon National Park, Utah](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hoodoos, Sunset Point, Bryce Canyon National Park, Utah](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_1080x1920.jpg) |
-
-### 20240730
-
-> San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> These medieval towers stand tall over San Gimignano, a small town near Siena in north central Italy. In the Middle Ages, a town grew up around a church dedicated to St. Geminianus (San Gimignano in Italian). As well as being a popular stop for pilgrims on their way to Rome, the town prospered thanks to its trade in local Vernaccia wine and in saffron, which is grown in the nearby hills. However, when the Black Death struck in 1348, half the population was lost, slowing the town's development and preserving its medieval character to this day.
-> 
-> San Gimignano's most recognizable feature is its skyline, made up of 14 towers. These impressive structures were the result of a rivalry between two families, each competing to build the tallest tower-house. By the end of the medieval period, there were 72 towers in the town, although because of wars, other catastrophes, and building projects, many were lost. Today, the tallest tower still standing is the Torre Grossa (Big Tower). Built in 1310, it stands at an incredible 177 feet. It's no wonder that the town is sometimes called the Manhattan of the Middle Ages.
-> 
-> 
-
-</details>
-
-| ![San Gimignano, Siena Tuscany, Italy](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![San Gimignano, Siena Tuscany, Italy](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_1080x1920.jpg) |N-US6029381108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg) |----:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_1080x1920.jpg) |N-US6029381108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg) |----:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1080x1920.jpg) |> 
 
 </details>
