@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240807
+
+> St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Amid dusky hues, lighthouses mark where a Great Lake meets a river. Two piers were built on Lake Michigan, one either side of the mouth of the St. Joseph River to help protect ships sailing upstream. In the early 20th century, a lighthouse was built at the end of each pier; the St. Joseph North Pier Inner and Outer Lights, pictured here.
+> 
+> Congress designated August 7 as National Lighthouse Day in 1989 to commemorate the 200th anniversary of the Lighthouse Act and to celebrate these iconic structures. Lighthouses not only mark hazards, and safe entries to harbors; these striking buildings also add a touch of romance to coastal scenes and shine a light onto our maritime history.
+> 
+> 
+
+</details>
+
+| ![St. Joseph North Pier Inner and Outer Lights, Michigan](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. Joseph North Pier Inner and Outer Lights, Michigan](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_1080x1920.jpg) |
+
 ### 20240806
 
 > Molokini Crater, Maui, Hawaii (© Douglas Peebles/eStock Photo)
@@ -112,24 +131,7 @@
 
 | ![Floating market, Kaptai Lake, Bangladesh](https://cn.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Floating market, Kaptai Lake, Bangladesh](https://cn.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_1080x1920.jpg) |
-
-### 20240731
-
-> Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Let's take a trip to a forest of stones. Sunset Point, seen in today's image, offers sweeping views of the hoodoos of Utah's Bryce Canyon National Park. These rock formations are created by frost weathering and stream erosion, which shape the stone into an otherworldly landscape. Perched at 8,000 to 9,000 feet, this overlook offers a panoramic view of rocky spires in red, orange, and white. The most iconic of them is Thor's Hammer, a hoodoo that overlooks a part of the park known as the 'Silent City.' The Queen's Garden Trail, which leads from Sunset Point to Sunrise Point, offers even more vistas and rock formations, including the Queen Victoria hoodoo. According to the legend told by the Paiute Indigenous people who inhabited this area, hoodoos are people who have been turned to stone for their misdeeds by the trickster Coyote. Whether you're a hiker, a photographer, or simply a traveler, the hoodoos are waiting.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Hoodoos, Sunset Point, Bryce Canyon National Park, Utah](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hoodoos, Sunset Point, Bryce Canyon National Park, Utah](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_1080x1920.jpg) |c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_1080x1920.jpg) |N-US6029381108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg) |----:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1080x1920.jpg) |> 
