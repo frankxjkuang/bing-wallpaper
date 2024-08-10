@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240808
+
+> Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Could you win a staring contest with this spotted owlet? These primarily nocturnal owls are sometimes mobbed during the day by birds trying to defend their territory from predators. With their piercing yellow eyes, the small owls will stare down intruders, bob their heads, and emit a loud 'chirurrr-chirurrr-chirurrr' screech, sometimes likened to laughter or chuckling.
+> 
+> Standing around 8 inches tall, speckle-plumed spotted owlets can be found from Iran to Vietnam. This one was photographed in Bangkok, Thailand. They eat insects and small mammals like bats and mice, which they often store to eat later when food is scarce. Spotted owlets flourish in various environments, from semi-deserts, rocky areas, and forests to farmlands and urban areas. While they aren't endangered, the spotted owlet's population is thought to have declined, perhaps owing to loss of habitat and increased urbanization.
+> 
+> 
+
+</details>
+
+| ![Spotted owlet, Bangkok, Thailand](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spotted owlet, Bangkok, Thailand](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_1080x1920.jpg) |
+
 ### 20240807
 
 > St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Virgin Islands National Park established](https://cn.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Virgin Islands National Park established](https://cn.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_1080x1920.jpg) |
-
-### 20240801
-
-> Floating market, Kaptai Lake, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)
-
-<details>
-<summary>Description</summary>
-
-> Every Saturday, the largest artificial lake in Bangladesh comes to life with colors and flavors. Kaptai Lake in Rangamati District is home to the floating market of seasonal fruit seen in today's image. The lake was created in the early 1960s to generate hydropower, submerging not just land and the palace of the king of the Chakmas, Bangladesh's largest ethnic minority group, but a way of life, displacing 100,000 people. Sixty years on and the landscape has changed. This buoyant bazaar has become a livelihood, as farmers navigate their wooden vessels along the bank to engage with eager buyers. You leave with a bag full of fresh fruit or just a bunch of unforgettable memories, whatever floats your boat.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Floating market, Kaptai Lake, Bangladesh](https://cn.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Floating market, Kaptai Lake, Bangladesh](https://cn.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_1080x1920.jpg) |c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_1080x1920.jpg) |N-US6029381108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg) |----:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_1080x1920.jpg) |trait 4K](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_1080x1920.jpg) |N-US6029381108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg) |----:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1080x1920.jpg) |> 
 
 </details>
