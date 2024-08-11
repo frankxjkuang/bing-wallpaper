@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240809
+
+> Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today we are celebrating the heritage and culture of native populations worldwide. There are some 5,000 Indigenous cultures in 90 countries around the world, from Samoa and Greenland to New Zealand and Nepal. One of the major challenges they face is the loss of their languages: It's estimated that of the 4,000 Indigenous languages in the world, around 2,600 are in danger of becoming extinct.
+> 
+> In the city of Cusco, Peru, the stone walls of Sacsayhuamán, seen in today's image, murmur tales of the mighty Inca civilization. The Quechua word Sacsayhuamán means 'the place where the hawk is satisfied.' The citadel's walls, which extended over 1,000 feet, were built in the 15th century CE. The boulders used to make them were carved and placed without mortar. After the Inca Empire was defeated at a battle here in 1536, Sacsayhuamán was dismantled by the Spanish and the rest of the structure was covered in earth. It was rediscovered in 1934 when the site was excavated. On this day, let's learn the importance of preserving Indigenous cultures and wisdom, as we honor the Indigenous peoples.
+> 
+> 
+
+</details>
+
+| ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1080x1920.jpg) |
+
 ### 20240808
 
 > Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Three Natural Bridges, Wulong Karst, China](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Three Natural Bridges, Wulong Karst, China](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_1080x1920.jpg) |
-
-### 20240802
-
-> Trunk Bay, St. John, Virgin Islands National Park (© cdwheatley/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In 1956, businessman and conservationist Laurance Rockefeller saw the beauty of St. John, one of the US Virgin Islands in the Caribbean, and knew it had to be preserved. He donated more than 5,000 acres of land to the National Park Service, and today we're marking the 68th anniversary of Virgin Islands National Park. Covering about 60% of St. John and 5,650 acres of submerged lands, the park boasts stunning white-sand beaches, coral reefs, and historic sites.
-> 
-> On the Reef Bay Trail, hikers can see ancient Taino petroglyphs and old sugar plantation ruins, showcasing the island's colonial past. From an underwater snorkeling trail in Trunk Bay, pictured here, to Maho Bay's turtle-filled waters, the park offers a diverse array of marine adventures.
-> 
-> 
-
-</details>
-
-| ![Virgin Islands National Park established](https://cn.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Virgin Islands National Park established](https://cn.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_1080x1920.jpg) |trait 4K](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_1080x1920.jpg) |N-US6029381108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1080x1920.jpg) |----:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_1080x1920.jpg) |9381108_1080x1920.jpg) |----:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1080x1920.jpg) |> 
 
 </details>
