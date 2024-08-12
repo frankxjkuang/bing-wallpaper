@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240810
+
+> Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> California's Joshua Tree National Park has a history that began way before it was made a national monument on August 10, 1936. Located where the Mojave and Colorado Deserts meet, it has been home to various cultures for thousands of years. Its earliest known residents were people from the Pinto Culture, who lived here from 8000 to 4000 BCE. Centuries later, this land was inhabited by the native Cahuilla, Serrano, and Chemehuevi peoples. The park's namesake, the Joshua tree, grows in a landscape covering 1,242 square miles. Despite their name, they are not really trees, but rather a kind of succulent. Native to southwest US and northern Mexico, they can grow up to 40 feet tall.
+> 
+> Today, Joshua Tree National Park invites adventurers to explore its terrain. Whether it's hiking through Hidden Valley, visiting the Cholla Cactus Garden, or marveling at Skull Rock, this national park has a lot to offer. By night, it becomes a stargazer's paradise, as seen in today's image. Whether you seek adventure or a moment of tranquility, Joshua Tree awaits with open skies.
+> 
+> 
+
+</details>
+
+| ![Joshua Tree National Park, California](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Joshua Tree National Park, California](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_1080x1920.jpg) |
+
 ### 20240809
 
 > Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Friendship Day](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Friendship Day](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_1080x1920.jpg) |
-
-### 20240803
-
-> Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Carved by nature over centuries, the Three Natural Bridges tower over a deep gorge in Wulong Karst. This part of China is known for its karst landscape, which includes towering arches, extensive caves, and other rock formations. These limestone bridges are named after three dragons: Tianlong (Sky Dragon), Heilong (Black Dragon), and Qinglong (Azure Dragon), which is the tallest at 922 feet. Visitors can explore the mossy gorge beneath and the wider Wulong Karst National Geology Park, including the 9,337-foot Furong Cave with its huge limestone stalactites. Standing beneath these magnificent natural bridges, you can't help but be humbled by the sheer power of time and nature.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Three Natural Bridges, Wulong Karst, China](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Three Natural Bridges, Wulong Karst, China](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_1080x1920.jpg) |9381108_1080x1920.jpg) |----:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1080x1920.jpg) |> 
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_1080x1920.jpg) |ards_ZH-CN3332101688_1080x1920.jpg) |> 
 
 </details>
 
