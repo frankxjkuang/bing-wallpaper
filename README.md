@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240811
+
+> Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Discover the beauty of Vancouver Island, Canada. The wooden pathway in today's image, surrounded by ancient pine and cedar trees, leads to Kennedy Lake, the largest freshwater body on the island. The lake covers a surface area of 16,000 acres. It is part of the ancestral lands of the Tla-o-qui-aht First Nation where the Clayoquot and Kennedy Rivers meet. Tofino, over 24 miles away, has a real surf vibe. This small coastal town is a sanctuary for hikers, bird watchers, artists, and dreamers. Famous for its mild winters and pleasant summers, it has been a filming location for movies like 'The Twilight Saga: New Moon' and 'One Week.'
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Wooden path to Kennedy Lake, Vancouver Island, Canada](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wooden path to Kennedy Lake, Vancouver Island, Canada](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_1080x1920.jpg) |
+
 ### 20240810
 
 > Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)
@@ -112,30 +131,7 @@
 
 | ![Lavender field, Hertfordshire, England](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lavender field, Hertfordshire, England](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_1080x1920.jpg) |
-
-### 20240804
-
-> Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Friendship comes in all shapes and sizes. This impala and the red-billed oxpecker, pictured in South Africa, both get something out of buddying up. The oxpecker gets food by eating ticks from the impala's skin, while the impala gets to stay clean.
-> 
-> From exchanging friendship bracelets to sharing social media posts and messages, Americans have come up with their own special traditions to appreciate their pals. And this is a good day to reflect on the many ways friendship impacts our lives. The first Sunday of August is Friendship Day. So, let's learn from our homepage duo and reach out to our friends, to catch up on each other's lives or to simply say, 'I appreciate you.'
-> 
-> 
-
-</details>
-
-| ![Friendship Day](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Friendship Day](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_1080x1920.jpg) |ards_ZH-CN3332101688_1080x1920.jpg) |> 
-
-</details>
-
-| ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_1080x1920.jpg) |ky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
