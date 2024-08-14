@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240812
+
+> African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Get ready to celebrate elephants, the largest living land animals. There are three elephant species alive today: African bush, African forest, and Asian. All three species are endangered, and World Elephant Day is dedicated to highlighting the challenges they face, like the ivory trade and habitat loss.
+> 
+> Today's image features a herd of African elephants roaming the vast expanses of Amboseli National Park in Kenya. Elephants live in groups made up of several families led by a matriarch, an older female elephant, while males leave to live alone or in bachelor herds.
+> 
+> Thanks to conservation work and the support of the Maasai people, Amboseli is one of the best places in Africa to view large herds, against the dramatic backdrop of Mount Kilimanjaro.
+
+</details>
+
+| ![World Elephant Day](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Elephant Day](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_1080x1920.jpg) |
+
 ### 20240811
 
 > Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Molokini Crater, Maui, Hawaii](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Molokini Crater, Maui, Hawaii](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_1080x1920.jpg) |
-
-### 20240805
-
-> Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This lavender landscape stretching over fields in the English county of Hertfordshire is the quintessential summer scene. A member of the mint family, lavender has been popular through various civilizations. It was used by the Egyptians for mummification; traces of lavender were discovered in the tomb of Tutankhamun. It was also treasured by the Romans for its healing and cleansing properties.
-> 
-> Lavender is planted during the spring season, reaching its peak bloom in July. It doesn't just look good, it smells great too, and the scent is said to help people relax. The fragrant oil is a staple in wellness practices, including aromatherapy, where it's used for stress relief, and is a valued ingredient in the perfume industry. This plant is also used in the kitchen, adding a floral touch to dishes and drinks. So, next time you feel stressed let a few drops of lavender essential oil calm you down.
-> 
-> 
-
-</details>
-
-| ![Lavender field, Hertfordshire, England](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lavender field, Hertfordshire, England](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_1080x1920.jpg) |ky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_1080x1920.jpg) |ky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
