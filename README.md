@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240813
+
+> Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to the slice of paradise that is Telašćica Nature Park, on the Croatian island of Dugi Otok. Pictured behind cliffs separating it from the Adriatic Sea is the park's Telašćica Bay, which stretches inland over 6 miles and is the largest natural harbor in the Adriatic. Dotted with islets and surrounded by small islands, its dramatic cliffs tower more than 520 feet above sea level and are known locally as the 'stene.' Other features of the park include 25 secluded beaches, as well as the therapeutic Mir salt lake known for its healing properties. So, the next time you're in the mood for island-hopping, come to Telašćica, where the land and sea play an endless game of tag.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Telašćica Nature Park, Dugi Otok, Croatia](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Telašćica Nature Park, Dugi Otok, Croatia](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_1080x1920.jpg) |
+
 ### 20240812
 
 > African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![St. Joseph North Pier Inner and Outer Lights, Michigan](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. Joseph North Pier Inner and Outer Lights, Michigan](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_1080x1920.jpg) |
-
-### 20240806
-
-> Molokini Crater, Maui, Hawaii (© Douglas Peebles/eStock Photo)
-
-<details>
-<summary>Description</summary>
-
-> Today we're at Molokini Crater. This pleasant crescent in the Pacific Ocean lies in the 'Alalākeiki Channel between the Hawaiian islands of Maui and Kaho'olawe. The islet is all that remains of a volcano that erupted about 230,000 years ago. According to Hawaiian mythology, Pele the fire goddess was in love with a man named Mo'o. The trouble was that Mo'o was in love with another woman. Pele's revenge was typically violent: She cut her rival in two, her body becoming Molokini, while her head became Pu'u Olai, a cinder cone on Maui.
-> 
-> Molokini Crater these days is a prime scuba and snorkeling destination; the islet's crescent shape protects divers from waves and currents, allowing them to enjoy the reef. This habitat is home to at least 250 species of fish, including black triggerfish and parrotfish, as well as 38 species of hard coral, and some 100 species of algae. So, come on in, the water's lovely. Just be sure not to anger Pele.
-> 
-> 
-
-</details>
-
-| ![Molokini Crater, Maui, Hawaii](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Molokini Crater, Maui, Hawaii](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_1080x1920.jpg) |ky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_1080x1920.jpg) |ownload landscape 4K](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_1080x1920.jpg) |ky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
