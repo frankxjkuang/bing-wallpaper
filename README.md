@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240814
+
+> Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> From mythology to movies, lizards have often been portrayed as scary reptiles. But they're not as dangerous as stories might lead you to believe. World Lizard Day is the perfect time to learn about these cold-blooded creatures. With more than 7,000 species, lizards have adapted to a wide range of environments—from deserts to rainforests. Take geckos—these little climbers have toe pads that let them scale walls and walk on ceilings. Then there are chameleons with their color-changing skin. While many think it's all about blending in, this ability is also used to communicate and regulate temperature.
+> 
+> Now let's focus on the peculiar creature in today's image, trekking across the arid landscape of Australia's Watarrka National Park. Meet the thorny devil, also known as the thorny dragon or moloch. With clever hydrophilic skin that channels moisture to its mouth, this reptile can hydrate just from the dew on its body. This allows it to thrive in extreme desert conditions where others would perish. On World Lizard Day, let's take a moment to appreciate these scaly wonders of the animal kingdom.
+> 
+> 
+
+</details>
+
+| ![World Lizard Day](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lizard Day](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg) |
+
 ### 20240813
 
 > Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Spotted owlet, Bangkok, Thailand](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spotted owlet, Bangkok, Thailand](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_1080x1920.jpg) |
-
-### 20240807
-
-> St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Amid dusky hues, lighthouses mark where a Great Lake meets a river. Two piers were built on Lake Michigan, one either side of the mouth of the St. Joseph River to help protect ships sailing upstream. In the early 20th century, a lighthouse was built at the end of each pier; the St. Joseph North Pier Inner and Outer Lights, pictured here.
-> 
-> Congress designated August 7 as National Lighthouse Day in 1989 to commemorate the 200th anniversary of the Lighthouse Act and to celebrate these iconic structures. Lighthouses not only mark hazards, and safe entries to harbors; these striking buildings also add a touch of romance to coastal scenes and shine a light onto our maritime history.
-> 
-> 
-
-</details>
-
-| ![St. Joseph North Pier Inner and Outer Lights, Michigan](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. Joseph North Pier Inner and Outer Lights, Michigan](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_1080x1920.jpg) |ownload landscape 4K](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_1080x1920.jpg) |ky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_1080x1920.jpg) |dshireLavender_EN-US6911884438_1080x1920.jpg) |ky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
