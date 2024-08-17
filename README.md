@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240815
+
+> Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In 1991, logger Hồ Khanh stumbled upon something big in what is now Vietnam's Phong Nha-Kẻ Bàng National Park. During a jungle expedition, he found the entrance to a cave with a roaring underground river. It was later named Hang Sơn Đoòng, or 'cave of the mountain river' and in 2009, the British Cave Research Association led an expedition to explore it. They realized something incredible: It was the world's largest cave. Hang Sơn Đoòng's main passage is 3.1 miles long, 490 feet wide, and 660 feet high. That's tall enough to fit a 40-story skyscraper.
+> 
+> Inside the cave, there is a 200-foot calcite barrier called the 'Great Wall of Vietnam' and stalagmites stretching as tall as 260 feet. It even has its own weather system; clouds form inside due to temperature differences between the cave air and the outside air. Moreover, an underground river links Hang Sơn Đoòng to the nearby Hang Thung cave, suggesting undiscovered depths. Given its fragile ecosystem, strict regulations are in place to preserve Hang Sơn Đoòng's pristine condition. Tours of the cave are limited to 1,000 visitors per year.
+> 
+> 
+
+</details>
+
+| ![Hang Sơn Đoòng Cave, Vietnam](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hang Sơn Đoòng Cave, Vietnam](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1080x1920.jpg) |
+
 ### 20240814
 
 > Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1080x1920.jpg) |
-
-### 20240808
-
-> Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Could you win a staring contest with this spotted owlet? These primarily nocturnal owls are sometimes mobbed during the day by birds trying to defend their territory from predators. With their piercing yellow eyes, the small owls will stare down intruders, bob their heads, and emit a loud 'chirurrr-chirurrr-chirurrr' screech, sometimes likened to laughter or chuckling.
-> 
-> Standing around 8 inches tall, speckle-plumed spotted owlets can be found from Iran to Vietnam. This one was photographed in Bangkok, Thailand. They eat insects and small mammals like bats and mice, which they often store to eat later when food is scarce. Spotted owlets flourish in various environments, from semi-deserts, rocky areas, and forests to farmlands and urban areas. While they aren't endangered, the spotted owlet's population is thought to have declined, perhaps owing to loss of habitat and increased urbanization.
-> 
-> 
-
-</details>
-
-| ![Spotted owlet, Bangkok, Thailand](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spotted owlet, Bangkok, Thailand](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_1080x1920.jpg) |dshireLavender_EN-US6911884438_1080x1920.jpg) |ky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Smoky Mountains National Park, Tennessee](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
