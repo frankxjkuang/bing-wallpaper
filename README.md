@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240816
+
+> Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> From single rails to virtual reality, roller coasters have been thrilling people for centuries. Their origins can be traced back to 17th-century Russia, where wooden slides—'Russian Mountains'—provided seasonal entertainment. The first roller coaster was built in early 19th-century Paris, France. Called 'Les Montagnes Russes à Belleville,' it featured wheeled carts securely attached to tracks. By the 1900s, coasters were looping the loop for the first time.
+> 
+> Pictured here is a hybrid coaster that combines wood and steel—Hakugei, the White Whale of Japan in Nagashima Spa Land. Once known as White Cyclone, this beast underwent a transformation in 2019. The ride's wooden track was replaced with steel. Its metamorphosis not only revved up its velocity and propelled it to new heights but also introduced gravity-defying inversions. So, if you find yourself in Japan, brave the Hakugei—buckle up and take the plunge, and emerge with a tale as epic as the ride itself.
+> 
+> 
+
+</details>
+
+| ![International Roller Coaster Day](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_EN-US9463845683_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Roller Coaster Day](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_EN-US9463845683_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_EN-US9463845683_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_EN-US9463845683_1080x1920.jpg) |
+
 ### 20240815
 
 > Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Joshua Tree National Park, California](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Joshua Tree National Park, California](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_1080x1920.jpg) |
-
-### 20240809
-
-> Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today we are celebrating the heritage and culture of native populations worldwide. There are some 5,000 Indigenous cultures in 90 countries around the world, from Samoa and Greenland to New Zealand and Nepal. One of the major challenges they face is the loss of their languages: It's estimated that of the 4,000 Indigenous languages in the world, around 2,600 are in danger of becoming extinct.
-> 
-> In the city of Cusco, Peru, the stone walls of Sacsayhuamán, seen in today's image, murmur tales of the mighty Inca civilization. The Quechua word Sacsayhuamán means 'the place where the hawk is satisfied.' The citadel's walls, which extended over 1,000 feet, were built in the 15th century CE. The boulders used to make them were carved and placed without mortar. After the Inca Empire was defeated at a battle here in 1536, Sacsayhuamán was dismantled by the Spanish and the rest of the structure was covered in earth. It was rediscovered in 1934 when the site was excavated. On this day, let's learn the importance of preserving Indigenous cultures and wisdom, as we honor the Indigenous peoples.
-> 
-> 
-
-</details>
-
-| ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
