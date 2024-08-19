@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240817
+
+> Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The lighthouse featured in today's image stands in southern Portugal's popular Algarve region. Built in 1919, Alfanzina Lighthouse helps ships navigate dangerous waters near the town of Carvoeiro. A popular tourist destination, the lighthouse also has become a symbol of the region's deep links to the sea. If you're lucky enough to live near a lighthouse, this weekend is the perfect time to pay it a visit.
+> 
+> Today marks the start of International Lighthouse and Lightship Weekend, celebrating this vital maritime infrastructure. Originally, lighthouses were powered by fires and oil lamps, requiring lighthouse keepers to maintain them. These days, however, most lighthouses have been automated and installed with electric light sources. In waters that are too deep or otherwise unsuitable to build a lighthouse, lightships—moored vessels outfitted with beacon lights—have often been used.
+> 
+> 
+
+</details>
+
+| ![International Lighthouse and Lightship Weekend](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Lighthouse and Lightship Weekend](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_1080x1920.jpg) |
+
 ### 20240816
 
 > Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Wooden path to Kennedy Lake, Vancouver Island, Canada](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wooden path to Kennedy Lake, Vancouver Island, Canada](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_1080x1920.jpg) |
-
-### 20240810
-
-> Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> California's Joshua Tree National Park has a history that began way before it was made a national monument on August 10, 1936. Located where the Mojave and Colorado Deserts meet, it has been home to various cultures for thousands of years. Its earliest known residents were people from the Pinto Culture, who lived here from 8000 to 4000 BCE. Centuries later, this land was inhabited by the native Cahuilla, Serrano, and Chemehuevi peoples. The park's namesake, the Joshua tree, grows in a landscape covering 1,242 square miles. Despite their name, they are not really trees, but rather a kind of succulent. Native to southwest US and northern Mexico, they can grow up to 40 feet tall.
-> 
-> Today, Joshua Tree National Park invites adventurers to explore its terrain. Whether it's hiking through Hidden Valley, visiting the Cholla Cactus Garden, or marveling at Skull Rock, this national park has a lot to offer. By night, it becomes a stargazer's paradise, as seen in today's image. Whether you seek adventure or a moment of tranquility, Joshua Tree awaits with open skies.
-> 
-> 
-
-</details>
-
-| ![Joshua Tree National Park, California](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Joshua Tree National Park, California](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
