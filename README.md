@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240818
+
+> Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> In today's image, we see the sun disappearing below the pier at Huntington Beach, California. First built in 1902, the pier was damaged by a storm and had to be rebuilt just nine years later. During World War II, a submarine lookout post was installed on the pier to help with the war effort. These days, it's a popular spot for fishing and watching surfers ride the waves out in the Pacific Ocean.
+> 
+> Huntington Beach has been nicknamed Surf City, and it's not hard to see why. Its 9.5-mile-long sandy beach gets great waves all year round. And it is home to the International Surf Museum, where visitors can learn about the history of the sport and see historic surfboards. Whether you're hitting the waves or watching from the pier, Huntington Beach is a peerless destination.
+> 
+> 
+
+</details>
+
+| ![Huntington Beach Pier, California, at sunset](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Huntington Beach Pier, California, at sunset](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_1080x1920.jpg) |
+
 ### 20240817
 
 > Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Elephant Day](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Elephant Day](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_1080x1920.jpg) |
-
-### 20240811
-
-> Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Discover the beauty of Vancouver Island, Canada. The wooden pathway in today's image, surrounded by ancient pine and cedar trees, leads to Kennedy Lake, the largest freshwater body on the island. The lake covers a surface area of 16,000 acres. It is part of the ancestral lands of the Tla-o-qui-aht First Nation where the Clayoquot and Kennedy Rivers meet. Tofino, over 24 miles away, has a real surf vibe. This small coastal town is a sanctuary for hikers, bird watchers, artists, and dreamers. Famous for its mild winters and pleasant summers, it has been a filming location for movies like 'The Twilight Saga: New Moon' and 'One Week.'
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Wooden path to Kennedy Lake, Vancouver Island, Canada](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wooden path to Kennedy Lake, Vancouver Island, Canada](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_1080x1920.jpg) |id=OHR.JoshuaTreeNP_EN-US1399159741_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
