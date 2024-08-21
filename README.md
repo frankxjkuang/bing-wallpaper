@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240819
+
+> Museum of Flight, Seattle, Washington (© George Rose/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Established in 1939 to honor Orville Wright's birthday, National Aviation Day kicks off a week-long celebration of America's long history of flight. Pioneers Orville and Wilbur Wright designed, built, and flew the world's first engine-powered airplane near Kitty Hawk, North Carolina, in 1903. America's love of flight, however, goes all the way back to 1793, when President George Washington watched a hot air balloon launch in Philadelphia.
+> 
+> Today, let your imagination soar at the Museum of Flight in Seattle. With nearly 200 airplanes and spacecraft, dozens of exhibits, and thousands of artifacts, the museum is the largest independent air and space museum in the world. If you can't get to the museum in person, it has numerous online resources to explore. Feel free to daydream about life among the clouds and stars—your fellow Americans have been doing it for more than 200 years.
+> 
+> 
+
+</details>
+
+| ![National Aviation Day](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Aviation Day](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_1080x1920.jpg) |
+
 ### 20240818
 
 > Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Telašćica Nature Park, Dugi Otok, Croatia](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Telašćica Nature Park, Dugi Otok, Croatia](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_1080x1920.jpg) |
-
-### 20240812
-
-> African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Get ready to celebrate elephants, the largest living land animals. There are three elephant species alive today: African bush, African forest, and Asian. All three species are endangered, and World Elephant Day is dedicated to highlighting the challenges they face, like the ivory trade and habitat loss.
-> 
-> Today's image features a herd of African elephants roaming the vast expanses of Amboseli National Park in Kenya. Elephants live in groups made up of several families led by a matriarch, an older female elephant, while males leave to live alone or in bachelor herds.
-> 
-> Thanks to conservation work and the support of the Maasai people, Amboseli is one of the best places in Africa to view large herds, against the dramatic backdrop of Mount Kilimanjaro.
-
-</details>
-
-| ![World Elephant Day](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Elephant Day](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_1080x1920.jpg) |id=OHR.JoshuaTreeNP_EN-US1399159741_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_1080x1920.jpg) |ncaRuinPeru_EN-US1209778539_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
