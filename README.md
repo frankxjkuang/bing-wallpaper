@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240820
+
+> Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Mind-blowing beauty is one reason people keep coming back to Wyoming and the Grand Teton National Park. Named 'les trois tétons' by early French trappers, the park was created in 1929 by conservationists including John D. Rockefeller Jr. It is home to a virtually untouched ecosystem of plants and animals, such as grizzly bears, wolves, bison, moose, and bald eagles.
+> 
+> Just 10 miles south of Yellowstone National Park, the park's 40-mile-long Teton Range is one of North America's youngest mountain ranges. At less than 10 million years old, erosion has not yet had time to smooth the edges of the mountains, hence the Tetons' jagged peaks. Many of the park's lakes, including 15-mile-long Jackson Lake, were carved out by glaciers hundreds of thousands of years ago. Towering over Jackson Hole and reflected in one of its many lakes, the Tetons and the park are a breathtaking sight to behold.
+> 
+> 
+
+</details>
+
+| ![Sunrise at Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sunrise at Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_1080x1920.jpg) |
+
 ### 20240819
 
 > Museum of Flight, Seattle, Washington (© George Rose/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![World Lizard Day](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lizard Day](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg) |
-
-### 20240813
-
-> Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to the slice of paradise that is Telašćica Nature Park, on the Croatian island of Dugi Otok. Pictured behind cliffs separating it from the Adriatic Sea is the park's Telašćica Bay, which stretches inland over 6 miles and is the largest natural harbor in the Adriatic. Dotted with islets and surrounded by small islands, its dramatic cliffs tower more than 520 feet above sea level and are known locally as the 'stene.' Other features of the park include 25 secluded beaches, as well as the therapeutic Mir salt lake known for its healing properties. So, the next time you're in the mood for island-hopping, come to Telašćica, where the land and sea play an endless game of tag.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Telašćica Nature Park, Dugi Otok, Croatia](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Telašćica Nature Park, Dugi Otok, Croatia](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_1080x1920.jpg) |ncaRuinPeru_EN-US1209778539_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
