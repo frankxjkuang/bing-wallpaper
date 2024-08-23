@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240821
+
+> Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> The Galápagos Islands in the eastern Pacific are a paradise for wildlife. Habitats range from arid regions to tropical rainforests. Because these islands are so isolated, many of the species that live here are not found anywhere else in the world. One species found in abundance is the Nazca booby, pictured here on Wolf Island. The name might raise a few eyebrows, but it actually comes from the Spanish word 'bobo,' meaning clown, because of the birds' clumsy demeanor when they're walking.
+> 
+> The Galápagos archipelago, including the remote and rugged outpost of Wolf Island, provides an ideal habitat for these seabirds. The island's steep cliffs and rocky shores offer perfect nesting sites, while the surrounding waters teem with fish, providing ample food. Visiting the Galápagos offers an incredible opportunity to see these birds in their natural habitat, along with the chance to explore one of the most biodiverse regions on the planet.
+> 
+> 
+
+</details>
+
+| ![Nazca boobies, Wolf Island, Galápagos Islands, Ecuador](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nazca boobies, Wolf Island, Galápagos Islands, Ecuador](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_1080x1920.jpg) |
+
 ### 20240820
 
 > Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Hang Sơn Đoòng Cave, Vietnam](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hang Sơn Đoòng Cave, Vietnam](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1080x1920.jpg) |
-
-### 20240814
-
-> Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> From mythology to movies, lizards have often been portrayed as scary reptiles. But they're not as dangerous as stories might lead you to believe. World Lizard Day is the perfect time to learn about these cold-blooded creatures. With more than 7,000 species, lizards have adapted to a wide range of environments—from deserts to rainforests. Take geckos—these little climbers have toe pads that let them scale walls and walk on ceilings. Then there are chameleons with their color-changing skin. While many think it's all about blending in, this ability is also used to communicate and regulate temperature.
-> 
-> Now let's focus on the peculiar creature in today's image, trekking across the arid landscape of Australia's Watarrka National Park. Meet the thorny devil, also known as the thorny dragon or moloch. With clever hydrophilic skin that channels moisture to its mouth, this reptile can hydrate just from the dew on its body. This allows it to thrive in extreme desert conditions where others would perish. On World Lizard Day, let's take a moment to appreciate these scaly wonders of the animal kingdom.
-> 
-> 
-
-</details>
-
-| ![World Lizard Day](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lizard Day](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
