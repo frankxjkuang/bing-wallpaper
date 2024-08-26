@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240824
+
+> Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to Katahdin, where dense woodlands and pristine waterways stretch out as far as the eye can see. Covering nearly 87,500 acres, this new national monument was established eight years ago today. Maine's logging industry was a big part of this region for over a hundred years but declined toward the end of the 19th century. Efforts to preserve its landscape were spearheaded by philanthropist Roxanne Quimby. She started buying land near Baxter State Park in 2001 and donated it to the federal government in 2016, ensuring its preservation for future generations.
+> 
+> Katahdin Woods and Waters' diverse ecosystem is home to many animals, including moose, black bear, Canada lynx, and bald eagles. Hiking, canoeing, and camping are among popular activities, and it has some of the darkest skies in the country, making it a great place for stargazing.
+> 
+> 
+
+</details>
+
+| ![Katahdin Woods and Waters National Monument anniversary](https://cn.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Katahdin Woods and Waters National Monument anniversary](https://cn.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1080x1920.jpg) |
+
 ### 20240823
 
 > Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Huntington Beach Pier, California, at sunset](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Huntington Beach Pier, California, at sunset](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_1080x1920.jpg) |
-
-### 20240817
-
-> Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The lighthouse featured in today's image stands in southern Portugal's popular Algarve region. Built in 1919, Alfanzina Lighthouse helps ships navigate dangerous waters near the town of Carvoeiro. A popular tourist destination, the lighthouse also has become a symbol of the region's deep links to the sea. If you're lucky enough to live near a lighthouse, this weekend is the perfect time to pay it a visit.
-> 
-> Today marks the start of International Lighthouse and Lightship Weekend, celebrating this vital maritime infrastructure. Originally, lighthouses were powered by fires and oil lamps, requiring lighthouse keepers to maintain them. These days, however, most lighthouses have been automated and installed with electric light sources. In waters that are too deep or otherwise unsuitable to build a lighthouse, lightships—moored vessels outfitted with beacon lights—have often been used.
-> 
-> 
-
-</details>
-
-| ![International Lighthouse and Lightship Weekend](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Lighthouse and Lightship Weekend](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_1080x1920.jpg) |15669_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_1080x1920.jpg) |9545750672_1080x1920.jpg) |15669_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
