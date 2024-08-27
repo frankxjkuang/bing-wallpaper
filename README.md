@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240825
+
+> Sunrise over Swiftcurrent Lake, Glacier National Park, Montana (© Jason Savage/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Join us as we celebrate the American wilderness on National Park Service Founders Day. Today we honor the foresight of visionaries who spearheaded the creation of the NPS. This organization was established by President Woodrow Wilson to conserve wildlife, maintain natural landscapes, preserve historical artifacts, and offer educational programs. You can enjoy this day by visiting one of 429 national parks in the country and diving into ranger-led programs, volunteer efforts, and celebratory events to learn more about the history.
+> 
+> If you're in Montana, you can explore Glacier National Park, which was established in 1910. Glacier has more than 700 lakes, two mountain ranges, and vast forests teeming with life, which earned it the moniker 'Crown of the Continent.' With its 25 glaciers, it is a vital study ground for scientists monitoring climate change. Spread across approximately 1,013,000 acres, the park protects animals such as grizzly bears, moose, elks, and mountain goats. Glacier National Park also houses the Going-to-the-Sun Road, over 700 miles of trails, and the awe-inspiring vistas of Swiftcurrent Lake, seen in today's image.
+> 
+> 
+
+</details>
+
+| ![National Park Service Founders Day](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Park Service Founders Day](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg) |
+
 ### 20240824
 
 > Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)
@@ -112,29 +131,7 @@
 
 | ![National Aviation Day](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Aviation Day](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_1080x1920.jpg) |
-
-### 20240818
-
-> Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> In today's image, we see the sun disappearing below the pier at Huntington Beach, California. First built in 1902, the pier was damaged by a storm and had to be rebuilt just nine years later. During World War II, a submarine lookout post was installed on the pier to help with the war effort. These days, it's a popular spot for fishing and watching surfers ride the waves out in the Pacific Ocean.
-> 
-> Huntington Beach has been nicknamed Surf City, and it's not hard to see why. Its 9.5-mile-long sandy beach gets great waves all year round. And it is home to the International Surf Museum, where visitors can learn about the history of the sport and see historic surfboards. Whether you're hitting the waves or watching from the pier, Huntington Beach is a peerless destination.
-> 
-> 
-
-</details>
-
-| ![Huntington Beach Pier, California, at sunset](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Huntington Beach Pier, California, at sunset](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_1080x1920.jpg) |9545750672_1080x1920.jpg) |15669_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_1080x1920.jpg) |------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
