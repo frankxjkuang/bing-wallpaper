@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240826
+
+> Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to this eco-travelers' paradise in the middle of the Pacific. Situated halfway between Hawaii and American Samoa, the Palmyra Atoll National Wildlife Refuge was established in 2001 to conserve, manage, and restore the nation's fish, wildlife, plants, and habitats.
+> 
+> Home to a vast reef system, this atoll has three shallow lagoons, and numerous sandy and reef-rock islets with vegetation like coconut palms, Scaevola, and towering Pisonia trees. But wait, there's more. The lush greenery here is a bustling neighborhood that is home to over a million birds from 29 different species, like masked booby, great frigatebird, and sooty tern. It is also one of the few places outside the Galápagos Islands where red-footed boobies are found. There is a huge variety of marine wildlife in and around the atoll, including green sea turtles, hawksbill turtles, and the mighty coconut crab, the world's largest land invertebrate.
+> 
+> 
+
+</details>
+
+| ![Palmyra Atoll National Wildlife Refuge](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Palmyra Atoll National Wildlife Refuge](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_1080x1920.jpg) |
+
 ### 20240825
 
 > Sunrise over Swiftcurrent Lake, Glacier National Park, Montana (© Jason Savage/Tandem Stills + Motion)
@@ -112,27 +131,7 @@
 
 | ![Sunrise at Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sunrise at Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_1080x1920.jpg) |
-
-### 20240819
-
-> Museum of Flight, Seattle, Washington (© George Rose/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Established in 1939 to honor Orville Wright's birthday, National Aviation Day kicks off a week-long celebration of America's long history of flight. Pioneers Orville and Wilbur Wright designed, built, and flew the world's first engine-powered airplane near Kitty Hawk, North Carolina, in 1903. America's love of flight, however, goes all the way back to 1793, when President George Washington watched a hot air balloon launch in Philadelphia.
-> 
-> Today, let your imagination soar at the Museum of Flight in Seattle. With nearly 200 airplanes and spacecraft, dozens of exhibits, and thousands of artifacts, the museum is the largest independent air and space museum in the world. If you can't get to the museum in person, it has numerous online resources to explore. Feel free to daydream about life among the clouds and stars—your fellow Americans have been doing it for more than 200 years.
-> 
-> 
-
-</details>
-
-| ![National Aviation Day](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Aviation Day](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_1080x1920.jpg) |------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
