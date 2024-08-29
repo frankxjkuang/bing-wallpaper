@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240827
+
+> Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Today's image features a black caiman, South America's stealthy river giant, in the Tambopata National Reserve of Peru. These caimans are the largest species in the alligator family, growing up to 20 feet and weighing as much as 1,000 pounds. Their dark color helps them blend into the murky depths. These carnivorous creatures thrive in freshwater environments such as slow-moving rivers, lakes, and seasonally flooded savannas. From these waters, they hunt for birds, fish, turtles, and occasionally big mammals. Black caimans play an important role in making sure ecosystems stay balanced by keeping the populations of their prey under control. More caimans mean fewer piranhas, which attack cattle, and fewer capybaras, which can cause crop damage.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Young black caiman, Tambopata National Reserve, Peru](https://cn.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Young black caiman, Tambopata National Reserve, Peru](https://cn.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_1080x1920.jpg) |
+
 ### 20240826
 
 > Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Nazca boobies, Wolf Island, Galápagos Islands, Ecuador](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nazca boobies, Wolf Island, Galápagos Islands, Ecuador](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_1080x1920.jpg) |
-
-### 20240820
-
-> Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Mind-blowing beauty is one reason people keep coming back to Wyoming and the Grand Teton National Park. Named 'les trois tétons' by early French trappers, the park was created in 1929 by conservationists including John D. Rockefeller Jr. It is home to a virtually untouched ecosystem of plants and animals, such as grizzly bears, wolves, bison, moose, and bald eagles.
-> 
-> Just 10 miles south of Yellowstone National Park, the park's 40-mile-long Teton Range is one of North America's youngest mountain ranges. At less than 10 million years old, erosion has not yet had time to smooth the edges of the mountains, hence the Tetons' jagged peaks. Many of the park's lakes, including 15-mile-long Jackson Lake, were carved out by glaciers hundreds of thousands of years ago. Towering over Jackson Hole and reflected in one of its many lakes, the Tetons and the park are a breathtaking sight to behold.
-> 
-> 
-
-</details>
-
-| ![Sunrise at Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sunrise at Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_1080x1920.jpg) |unrise_EN-US0849252457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
