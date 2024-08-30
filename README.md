@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240828
+
+> Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The Summer Paralympic Games get underway in Paris today. Over 4,000 athletes with a range of disabilities from all around the world will meet in the French capital to compete across 549 different events. For its first time hosting the Summer Paralympics, the city has got something special in store for the opening ceremony. Delegations from 184 nations will parade down the iconic Champs-Élysées to the Place de la Concorde, rather than entering a stadium. The first official Paralympic Games were held in Rome in 1960. Twenty-three nations took part, competing in eight sports, including wheelchair basketball and Para athletics.
+> 
+> Today's image takes us to an icon of Parisian life: the Sacré-Cœur Basilica in the Montmartre neighborhood. The church, which was completed in 1914, stands at the top of one of the highest points in Paris. It offers impressive views over the city, taking in the Eiffel Tower, Notre Dame, the Panthéon, and much more. If you're in Paris to enjoy the Paralympics, it's the perfect spot to soak up the beauty of the host city.
+> 
+> 
+
+</details>
+
+| ![Paralympic Games begin in Paris](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Paralympic Games begin in Paris](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_1080x1920.jpg) |
+
 ### 20240827
 
 > Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Ocean City, Maryland, at sunrise](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ocean City, Maryland, at sunrise](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_1080x1920.jpg) |
-
-### 20240821
-
-> Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> The Galápagos Islands in the eastern Pacific are a paradise for wildlife. Habitats range from arid regions to tropical rainforests. Because these islands are so isolated, many of the species that live here are not found anywhere else in the world. One species found in abundance is the Nazca booby, pictured here on Wolf Island. The name might raise a few eyebrows, but it actually comes from the Spanish word 'bobo,' meaning clown, because of the birds' clumsy demeanor when they're walking.
-> 
-> The Galápagos archipelago, including the remote and rugged outpost of Wolf Island, provides an ideal habitat for these seabirds. The island's steep cliffs and rocky shores offer perfect nesting sites, while the surrounding waters teem with fish, providing ample food. Visiting the Galápagos offers an incredible opportunity to see these birds in their natural habitat, along with the chance to explore one of the most biodiverse regions on the planet.
-> 
-> 
-
-</details>
-
-| ![Nazca boobies, Wolf Island, Galápagos Islands, Ecuador](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nazca boobies, Wolf Island, Galápagos Islands, Ecuador](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_1080x1920.jpg) |unrise_EN-US0849252457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_1080x1920.jpg) |=OHR.TetonSunrise_EN-US0849252457_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
