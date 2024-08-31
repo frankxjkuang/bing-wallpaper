@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240829
+
+> Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Perched on the edge of a basalt cliff above two rivers, today's image takes us to Castellfollit de la Roca, in the Spanish region of Catalonia. This town is not for the faint-hearted: There's a 160-foot drop down to the Toronell and Fluvia rivers, which converge at the base of the cliff. Many of the buildings, which are made of the same basalt that the town stands on, seem to teeter on the edge of the precipice. Pictured at the end of the crag is the 13th-century church of Sant Salvador.
+> 
+> Castellfollit de la Roca is inside the Zona Volcànica de la Garrotxa Natural Park, which contains around 40 extinct volcanoes. Although there haven't been any eruptions for around 11,000 years, the area is still considered seismically active. In 1428, a major earthquake struck the area, which was felt in Barcelona, over 50 miles away. The last seismic activity was registered in 1901 and 1902, when there were two minor earthquakes. These days, the park is a popular spot among hikers, who head to Garrotxa to enjoy the region's spectacular volcanic landscapes.
+> 
+> 
+
+</details>
+
+| ![Castellfollit de la Roca, Catalonia, Spain](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castellfollit de la Roca, Catalonia, Spain](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_1080x1920.jpg) |
+
 ### 20240828
 
 > Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Prasat Phanom Rung temple ruins, Thailand](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Prasat Phanom Rung temple ruins, Thailand](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_1080x1920.jpg) |
-
-### 20240822
-
-> Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)
-
-<details>
-<summary>Description</summary>
-
-> Here is a beautiful coastal getaway offering endless fun and adventure—welcome to Ocean City, Maryland. Ocean City was a quiet fishing village until 1875, when the Atlantic Hotel opened its doors, marking the town's transformation into a burgeoning resort destination. Today, it is a popular vacation spot, with an iconic 3-mile-long boardwalk lined with restaurants, shops, and amusement parks. Pristine sandy beaches stretching over 10 miles are perfect for sunbathing, beach volleyball, or building sandcastles, and the ocean waters beckon for a refreshing swim. Ocean City is a charming retreat that draws visitors back time and again.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Ocean City, Maryland, at sunrise](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ocean City, Maryland, at sunrise](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_1080x1920.jpg) |=OHR.TetonSunrise_EN-US0849252457_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1080x1920.jpg) |S6936891495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
