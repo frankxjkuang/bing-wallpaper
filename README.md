@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240831
+
+> Rock formations and sand dunes in the Sahara, Tassili n’Ajjer, Algeria (© Airpano/Amazing Aerial Agency)
+
+<details>
+<summary>Description</summary>
+
+> From the Mediterranean coast to the vast Sahara, Algeria in North Africa has a wide variety of landscapes. Today, we're exploring the area around the Tassili n'Ajjer plateau. This UNESCO World Heritage Site is famed for its rock formations and cave art. More than 15,000 ancient engravings, some dating back 12,000 years, depict scenes of daily life, hunting, and mystical beings.
+> 
+> Djanet, a nearby oasis city, is known as the Jewel of the Desert. It is surrounded by rocky plateaus. Here, palm groves and gardens create a stark, beautiful contrast to the golden landscape. Djanet is home to roughly 15,000 people, most of whom belong to the Kel Ajjer Taureg community. You can get a feel for the city in its museum, or by wandering its streets, which are lined with colorful markets, mosques, and earthen houses.
+> 
+> 
+
+</details>
+
+| ![Tassili n’Ajjer, Sahara, Algeria](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-US9175224323_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tassili n’Ajjer, Sahara, Algeria](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-US9175224323_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-US9175224323_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-US9175224323_1080x1920.jpg) |
+
 ### 20240830
 
 > A whale shark in Cenderawasih Bay, West Papua, Indonesia (© Andy Lerner/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![National Park Service Founders Day](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Park Service Founders Day](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg) |
-
-### 20240824
-
-> Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to Katahdin, where dense woodlands and pristine waterways stretch out as far as the eye can see. Covering nearly 87,500 acres, this new national monument was established eight years ago today. Maine's logging industry was a big part of this region for over a hundred years but declined toward the end of the 19th century. Efforts to preserve its landscape were spearheaded by philanthropist Roxanne Quimby. She started buying land near Baxter State Park in 2001 and donated it to the federal government in 2016, ensuring its preservation for future generations.
-> 
-> Katahdin Woods and Waters' diverse ecosystem is home to many animals, including moose, black bear, Canada lynx, and bald eagles. Hiking, canoeing, and camping are among popular activities, and it has some of the darkest skies in the country, making it a great place for stargazing.
-> 
-> 
-
-</details>
-
-| ![Katahdin Woods and Waters National Monument anniversary](https://cn.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Katahdin Woods and Waters National Monument anniversary](https://cn.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1080x1920.jpg) |:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg) |.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1080x1920.jpg) |:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
