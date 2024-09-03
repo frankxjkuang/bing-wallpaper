@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240901
+
+> River Thames, London, England (© Puthipong Worasaran/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to the Totally Thames Festival in London, England. Each year, it brings together communities, artists, and nature enthusiasts in a month-long tribute to the river. Highlights for 2024 include the annual boat marathon, Great River Race, and the Clean Thames Challenge.
+> 
+> The Thames, the longest river entirely in England, contains more than 80 islands along its course. Starting in Gloucestershire and winding through cities like Oxford, Windsor, and in today's image, London, it flows for 215 miles before merging with the North Sea. With a range of freshwater and near seawater habitats, the river is a haven for an array of wildlife like mute swans and bottlenose dolphins. It also flanks several Sites of Special Scientific Interest. So, this month, let the river's tide guide you to discovery and celebration.
+> 
+> 
+
+</details>
+
+| ![Totally Thames Festival, London](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Totally Thames Festival, London](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_1080x1920.jpg) |
+
 ### 20240831
 
 > Rock formations and sand dunes in the Sahara, Tassili n’Ajjer, Algeria (© Airpano/Amazing Aerial Agency)
@@ -112,24 +131,7 @@
 
 | ![Palmyra Atoll National Wildlife Refuge](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Palmyra Atoll National Wildlife Refuge](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_1080x1920.jpg) |
-
-### 20240825
-
-> Sunrise over Swiftcurrent Lake, Glacier National Park, Montana (© Jason Savage/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Join us as we celebrate the American wilderness on National Park Service Founders Day. Today we honor the foresight of visionaries who spearheaded the creation of the NPS. This organization was established by President Woodrow Wilson to conserve wildlife, maintain natural landscapes, preserve historical artifacts, and offer educational programs. You can enjoy this day by visiting one of 429 national parks in the country and diving into ranger-led programs, volunteer efforts, and celebratory events to learn more about the history.
-> 
-> If you're in Montana, you can explore Glacier National Park, which was established in 1910. Glacier has more than 700 lakes, two mountain ranges, and vast forests teeming with life, which earned it the moniker 'Crown of the Continent.' With its 25 glaciers, it is a vital study ground for scientists monitoring climate change. Spread across approximately 1,013,000 acres, the park protects animals such as grizzly bears, moose, elks, and mountain goats. Glacier National Park also houses the Going-to-the-Sun Road, over 700 miles of trails, and the awe-inspiring vistas of Swiftcurrent Lake, seen in today's image.
-> 
-> 
-
-</details>
-
-| ![National Park Service Founders Day](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Park Service Founders Day](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_1080x1920.jpg) |24&rs=1&c=4) | ![National Park Service Founders Day](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg) |.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1080x1920.jpg) |:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
