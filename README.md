@@ -1,5 +1,43 @@
 ## bing wallpaper
 
+### 20240903
+
+> Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Sometimes it's nice to get away. Thanks to environmentalist Howard Zahniser, Americans can do that in one of the country's many wildernesses—sheltered from human activities. While the protection of national forests and parks began in the late 1800s, untamed wilderness had dwindled to only 2.5% of US land by the 1960s. To reverse this trend, Zahniser wrote most of what became the Wilderness Act. Signed into law by President Lyndon Johnson on September 3, 1964, today it protects more than 109 million acres—5% of the land in the US.
+> 
+> Pictured in today's image, Crystal Lake, in the Enchantments, Washington, is in one such protected area. Located in the Alpine Lakes Wilderness, the Enchantments region has more than 700 lakes and ponds and some of the best rock climbing in the Western US. It's also home to mountain goats, ptarmigan, pikas, and many alpine flowers. If you want to see Alpine Lakes Wilderness yourself, however, be prepared to wait. Few permits are granted for day hikes, and of the 40,000 people who entered last year's lottery for overnight permits, only 2,558 received one.
+> 
+> 
+
+</details>
+
+| ![Wilderness Act anniversary](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wilderness Act anniversary](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg) |
+
+### 20240902
+
+> 'Power of the Titans' mural by Andrei Krautsou, North Kansas City, Missouri (© Stephen Taylor/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Take a load off this Labor Day weekend. One of 11 federal holidays, Labor Day honors America's workers and is celebrated on the first Monday of September. Its origins are rooted in late 1800s' efforts to recognize workers contributions, which ultimately led to the 40-hour work week. President Grover Cleveland made the US holiday official in 1894. Today, many Americans celebrate the long weekend, which is often considered the unofficial end of summer, by grilling, hanging out with friends and family, and going to parades.
+> 
+> Today's image, the 'Power of the Titans' mural by Andrei Krautsou, depicts railroads and industry in North Kansas City, Missouri. It adorns the wall of a local manufacturer whose heritage is also celebrated in the work. Kansas City is a major rail hub and one of the country's largest distribution centers—just the kind of place from which Krautsou, an artist from Belarus who is fascinated with cultures and histories, draws inspiration.
+> 
+> 
+
+</details>
+
+| ![Celebrating Labor Day](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Labor Day](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg) |
+
 ### 20240901
 
 > River Thames, London, England (© Puthipong Worasaran/Getty Images)
@@ -7,15 +45,15 @@
 <details>
 <summary>Description</summary>
 
-> Welcome to the Totally Thames Festival in London, England. Each year, it brings together communities, artists, and nature enthusiasts in a month-long tribute to the river. Highlights for 2024 include the annual boat marathon, Great River Race, and the Clean Thames Challenge.
+> Welcome to the Totally Thames Festival in London, England. Each year it brings together communities, artists, and nature enthusiasts in a month-long tribute to the river. Highlights for 2024 include the annual boat marathon, Great River Race, and the Clean Thames Challenge.
 > 
-> The Thames, the longest river entirely in England, contains more than 80 islands along its course. Starting in Gloucestershire and winding through cities like Oxford, Windsor, and in today's image, London, it flows for 215 miles before merging with the North Sea. With a range of freshwater and near seawater habitats, the river is a haven for an array of wildlife like mute swans and bottlenose dolphins. It also flanks several Sites of Special Scientific Interest. So, this month, let the river's tide guide you to discovery and celebration.
+> The Thames, the longest river entirely in England, contains more than 80 islands along its course. Starting in Gloucestershire in southwest England, it winds through cities like Oxford, Windsor, and London, pictured above, flowing for 215 miles before merging with the North Sea on the southeast coast. Once heavily polluted, it is now said to be one of the world's cleanest rivers flowing through a major city and is a haven for an array of wildlife including mute swans and bottlenose dolphins.
 > 
 > 
 
 </details>
 
-| ![Totally Thames Festival, London](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Totally Thames Festival, London](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![River Thames, London](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![River Thames, London](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_1080x1920.jpg) |
 
@@ -93,47 +131,7 @@
 
 | ![Paralympic Games begin in Paris](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Paralympic Games begin in Paris](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_1080x1920.jpg) |
-
-### 20240827
-
-> Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Today's image features a black caiman, South America's stealthy river giant, in the Tambopata National Reserve of Peru. These caimans are the largest species in the alligator family, growing up to 20 feet and weighing as much as 1,000 pounds. Their dark color helps them blend into the murky depths. These carnivorous creatures thrive in freshwater environments such as slow-moving rivers, lakes, and seasonally flooded savannas. From these waters, they hunt for birds, fish, turtles, and occasionally big mammals. Black caimans play an important role in making sure ecosystems stay balanced by keeping the populations of their prey under control. More caimans mean fewer piranhas, which attack cattle, and fewer capybaras, which can cause crop damage.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Young black caiman, Tambopata National Reserve, Peru](https://cn.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Young black caiman, Tambopata National Reserve, Peru](https://cn.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_1080x1920.jpg) |
-
-### 20240826
-
-> Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to this eco-travelers' paradise in the middle of the Pacific. Situated halfway between Hawaii and American Samoa, the Palmyra Atoll National Wildlife Refuge was established in 2001 to conserve, manage, and restore the nation's fish, wildlife, plants, and habitats.
-> 
-> Home to a vast reef system, this atoll has three shallow lagoons, and numerous sandy and reef-rock islets with vegetation like coconut palms, Scaevola, and towering Pisonia trees. But wait, there's more. The lush greenery here is a bustling neighborhood that is home to over a million birds from 29 different species, like masked booby, great frigatebird, and sooty tern. It is also one of the few places outside the Galápagos Islands where red-footed boobies are found. There is a huge variety of marine wildlife in and around the atoll, including green sea turtles, hawksbill turtles, and the mighty coconut crab, the world's largest land invertebrate.
-> 
-> 
-
-</details>
-
-| ![Palmyra Atoll National Wildlife Refuge](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Palmyra Atoll National Wildlife Refuge](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_1080x1920.jpg) |24&rs=1&c=4) | ![National Park Service Founders Day](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg) |.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1080x1920.jpg) |:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_1080x1920.jpg) |entLake_EN-US8272209593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg) |.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1080x1920.jpg) |:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
