@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240904
+
+> Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As daylight fades, dusky eagle-owls, the silent hunters seen in today's image, emerge from their nests. These primarily nocturnal raptors were snapped in Pakistan and can be found in the forests and scrublands across South and Southeast Asia. An impressive wingspan of 15–17 inches, piercing yellow eyes, and exceptional hearing help them to catch small mammals and birds with precision in dim light. Measuring up to 2 feet tall, these feathered predators can also be spotted hunting in the daytime when the weather is cloudy. They often live in the abandoned nests of other birds or in natural crevices. Dusky eagle-owls breed in December and January, usually rearing their young in the safety of tall trees or cliff ledges. Nature lovers and bird watchers are captivated by their solemn gaze and elegant stature.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Dusky eagle-owls, Pakistan](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dusky eagle-owls, Pakistan](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_1080x1920.jpg) |
+
 ### 20240903
 
 > Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)
@@ -112,24 +131,7 @@
 
 | ![Castellfollit de la Roca, Catalonia, Spain](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castellfollit de la Roca, Catalonia, Spain](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_1080x1920.jpg) |
-
-### 20240828
-
-> Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The Summer Paralympic Games get underway in Paris today. Over 4,000 athletes with a range of disabilities from all around the world will meet in the French capital to compete across 549 different events. For its first time hosting the Summer Paralympics, the city has got something special in store for the opening ceremony. Delegations from 184 nations will parade down the iconic Champs-Élysées to the Place de la Concorde, rather than entering a stadium. The first official Paralympic Games were held in Rome in 1960. Twenty-three nations took part, competing in eight sports, including wheelchair basketball and Para athletics.
-> 
-> Today's image takes us to an icon of Parisian life: the Sacré-Cœur Basilica in the Montmartre neighborhood. The church, which was completed in 1914, stands at the top of one of the highest points in Paris. It offers impressive views over the city, taking in the Eiffel Tower, Notre Dame, the Panthéon, and much more. If you're in Paris to enjoy the Paralympics, it's the perfect spot to soak up the beauty of the host city.
-> 
-> 
-
-</details>
-
-| ![Paralympic Games begin in Paris](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Paralympic Games begin in Paris](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_1080x1920.jpg) |ralympicsParis_EN-US0355511969_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_1080x1920.jpg) |entLake_EN-US8272209593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg) |.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1080x1920.jpg) |:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
