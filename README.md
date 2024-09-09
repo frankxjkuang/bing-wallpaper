@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240907
+
+> Anna's hummingbird, Santa Cruz, California (© yhelfman/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Every first Saturday in September, bird enthusiasts and nature lovers gather to celebrate National Hummingbird Day. This day is dedicated to appreciating these tiny, agile birds and their role as a pollinator in our ecosystem. Hummingbirds are known for their incredible speed; they can flap their wings up to 80 times per second, allowing them to hover in place and even fly backward. Emily Dickinson aptly describes their swift movement: 'A Route of Evanescence / With a revolving Wheel—.' Their high metabolism requires them to eat constantly, so they spend their days flitting from flower to flower, sipping nectar and catching insects. Fun fact: these birds can remember every flower they've visited and how long it will take a flower to refill with nectar.
+> 
+> Let's meet the Anna's hummingbird, seen in today’s image. Named after Anna Masséna, Duchess of Rivoli, it's one of an estimated 366 hummingbird species, and it's the most common species on North America's western coast. With its shimmering emerald feathers and sparkling rose-pink throat, this little bird is a sight to behold. So, today, let's spread our wings of awareness and protect these birds—one garden at a time.
+> 
+> 
+
+</details>
+
+| ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_1080x1920.jpg) |
+
 ### 20240906
 
 > Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![River Thames, London](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![River Thames, London](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_1080x1920.jpg) |
-
-### 20240831
-
-> Rock formations and sand dunes in the Sahara, Tassili n’Ajjer, Algeria (© Airpano/Amazing Aerial Agency)
-
-<details>
-<summary>Description</summary>
-
-> From the Mediterranean coast to the vast Sahara, Algeria in North Africa has a wide variety of landscapes. Today, we're exploring the area around the Tassili n'Ajjer plateau. This UNESCO World Heritage Site is famed for its rock formations and cave art. More than 15,000 ancient engravings, some dating back 12,000 years, depict scenes of daily life, hunting, and mystical beings.
-> 
-> Djanet, a nearby oasis city, is known as the Jewel of the Desert. It is surrounded by rocky plateaus. Here, palm groves and gardens create a stark, beautiful contrast to the golden landscape. Djanet is home to roughly 15,000 people, most of whom belong to the Kel Ajjer Taureg community. You can get a feel for the city in its museum, or by wandering its streets, which are lined with colorful markets, mosques, and earthen houses.
-> 
-> 
-
-</details>
-
-| ![Tassili n’Ajjer, Sahara, Algeria](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-US9175224323_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tassili n’Ajjer, Sahara, Algeria](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-US9175224323_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-US9175224323_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-US9175224323_1080x1920.jpg) |lfollitSpain_EN-US8880313790_1080x1920.jpg) |ralympicsParis_EN-US0355511969_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_1080x1920.jpg) |entLake_EN-US8272209593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg) |.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1080x1920.jpg) |:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_1080x1920.jpg) |1969_1080x1920.jpg) |entLake_EN-US8272209593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg) |.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1080x1920.jpg) |:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
