@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240908
+
+> Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> 'Literacy is a bridge from misery to hope.' These words by former secretary-general of the United Nations Kofi Annan capture the essence of International Literacy Day, celebrated every September 8. Established by UNESCO in 1966, this observance not only celebrates those who can read but also highlights the ongoing battle against illiteracy. With approximately 775 million people worldwide still lacking basic literacy, this day resonates powerfully within the hallowed walls of the Stockholm Public Library in Sweden, or 'Stadsbiblioteket' as it is known to locals, featured in today's image.
+> 
+> Here, more than 2 million volumes wait to unfold stories in over 100 languages. Designed by architect Erik Gunnar Asplund in the 1920s, this Nordic Classicist composition features the geometry of a cylinder intersecting a cubic base. Its accessible façade belies a treasure trove within a 360-degree rotunda, inviting even the casual reader into a literal circle of knowledge. On this day, let's join in a collective turning of pages in the pursuit of this year's theme—'Promoting multilingual education: Literacy for mutual understanding and peace.'
+> 
+> 
+
+</details>
+
+| ![International Literacy Day](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Literacy Day](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_1080x1920.jpg) |
+
 ### 20240907
 
 > Anna's hummingbird, Santa Cruz, California (© yhelfman/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Celebrating Labor Day](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Labor Day](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg) |
-
-### 20240901
-
-> River Thames, London, England (© Puthipong Worasaran/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to the Totally Thames Festival in London, England. Each year it brings together communities, artists, and nature enthusiasts in a month-long tribute to the river. Highlights for 2024 include the annual boat marathon, Great River Race, and the Clean Thames Challenge.
-> 
-> The Thames, the longest river entirely in England, contains more than 80 islands along its course. Starting in Gloucestershire in southwest England, it winds through cities like Oxford, Windsor, and London, pictured above, flowing for 215 miles before merging with the North Sea on the southeast coast. Once heavily polluted, it is now said to be one of the world's cleanest rivers flowing through a major city and is a haven for an array of wildlife including mute swans and bottlenose dolphins.
-> 
-> 
-
-</details>
-
-| ![River Thames, London](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![River Thames, London](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_1080x1920.jpg) |1969_1080x1920.jpg) |entLake_EN-US8272209593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1080x1920.jpg) |.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1080x1920.jpg) |:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg) |920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
