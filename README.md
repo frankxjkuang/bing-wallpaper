@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240909
+
+> Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to Iguazu Falls, the largest waterfall system in the world. The name 'Iguazu' has its origins in the regional languages Guarani or Tupi, meaning 'big water.' These epic waterfalls are formed by the Iguazu River, on the border of Argentina's Misiones province and Brazil's Paraná state.
+> 
+> The Iguazu Falls have long attracted admirers. Spanish explorer Alvar Núñez Cabeza de Vaca is thought to have been the first European to see them in 1541. In 1907, businessman Domingo Ayarragaray saw their potential and built a hotel and roads nearby. The falls became such a sensation that they were designated as national parks in both countries—Argentina's Iguazu National Park in 1934 and Brazil's Iguaçu National Park in 1939. UNESCO made the parks World Heritage Sites in 1984 and 1986, respectively. Surrounded by the rainforest, the falls are made up of hundreds of cascades and channels carved over millions of years by the Iguazu River, the tallest of which is the U-shaped Devil's Throat, at 269 feet high.
+> 
+> 
+
+</details>
+
+| ![Iguazu Falls at the border of Argentina and Brazil](https://cn.bing.com/th?id=OHR.IguazuRainbow_EN-US4361499337_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Iguazu Falls at the border of Argentina and Brazil](https://cn.bing.com/th?id=OHR.IguazuRainbow_EN-US4361499337_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IguazuRainbow_EN-US4361499337_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IguazuRainbow_EN-US4361499337_1080x1920.jpg) |
+
 ### 20240908
 
 > Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy)
@@ -7,9 +26,9 @@
 <details>
 <summary>Description</summary>
 
-> 'Literacy is a bridge from misery to hope.' These words by former secretary-general of the United Nations Kofi Annan capture the essence of International Literacy Day, celebrated every September 8. Established by UNESCO in 1966, this observance not only celebrates those who can read but also highlights the ongoing battle against illiteracy. With approximately 775 million people worldwide still lacking basic literacy, this day resonates powerfully within the hallowed walls of the Stockholm Public Library in Sweden, or 'Stadsbiblioteket' as it is known to locals, featured in today's image.
+> 'Literacy is a bridge from misery to hope.' These words by former UN chief Kofi Annan capture the essence of International Literacy Day, celebrated every September 8. Established by UNESCO in 1966, it promotes the importance of literacy as a matter of dignity and a human right. The UN estimates that at least 765 million adults worldwide cannot read and write, and millions of children are failing to learn basic literacy skills. We are marking the day with an image of the Stockholm Public Library in Sweden, or 'Stadsbiblioteket' as it is known to locals.
 > 
-> Here, more than 2 million volumes wait to unfold stories in over 100 languages. Designed by architect Erik Gunnar Asplund in the 1920s, this Nordic Classicist composition features the geometry of a cylinder intersecting a cubic base. Its accessible façade belies a treasure trove within a 360-degree rotunda, inviting even the casual reader into a literal circle of knowledge. On this day, let's join in a collective turning of pages in the pursuit of this year's theme—'Promoting multilingual education: Literacy for mutual understanding and peace.'
+> Here, more than 2 million volumes wait to unfold stories in over 100 languages. Designed by architect Erik Gunnar Asplund in the 1920s, the building is a towering cylinder inside a cube. The main lending library, pictured, is in the round room at the center, inviting readers into a literal circle of knowledge. On this day, let's join in a collective turning of pages in the pursuit of greater knowledge for all and creating a fairer and more literate society.
 > 
 > 
 
@@ -26,9 +45,9 @@
 <details>
 <summary>Description</summary>
 
-> Every first Saturday in September, bird enthusiasts and nature lovers gather to celebrate National Hummingbird Day. This day is dedicated to appreciating these tiny, agile birds and their role as a pollinator in our ecosystem. Hummingbirds are known for their incredible speed; they can flap their wings up to 80 times per second, allowing them to hover in place and even fly backward. Emily Dickinson aptly describes their swift movement: 'A Route of Evanescence / With a revolving Wheel—.' Their high metabolism requires them to eat constantly, so they spend their days flitting from flower to flower, sipping nectar and catching insects. Fun fact: these birds can remember every flower they've visited and how long it will take a flower to refill with nectar.
+> On the first Saturday in September, National Hummingbird Day celebrates these tiny, agile birds and their role as pollinators in our ecosystem. Hummingbirds are known for their incredible speed; they can flap their wings up to 80 times per second, allowing them to hover and fly backward. Their high metabolism requires them to eat constantly, so they spend their days flitting from flower to flower, sipping nectar and catching insects. These birds can remember which flowers they've visited and how long they will take to refill with nectar.
 > 
-> Let's meet the Anna's hummingbird, seen in today’s image. Named after Anna Masséna, Duchess of Rivoli, it's one of an estimated 366 hummingbird species, and it's the most common species on North America's western coast. With its shimmering emerald feathers and sparkling rose-pink throat, this little bird is a sight to behold. So, today, let's spread our wings of awareness and protect these birds—one garden at a time.
+> Let's meet the Anna's hummingbird, seen in today's image. Named after Anna Masséna, Duchess of Rivoli, it's one of an estimated 366 hummingbird species, and it's among the most common hummingbirds on North America's west coast. With its shimmering emerald feathers and sparkling rose-pink throat, this little bird is a sight to behold. So, today, let's spread our wings of awareness and protect these birds—one garden at a time.
 > 
 > 
 
@@ -45,7 +64,7 @@
 <details>
 <summary>Description</summary>
 
-> Ever wondered what it's like to stroll through a storybook? Welcome to Glenariff Forest Park in County Antrim, Northern Ireland. This park spans nearly 3,000 acres of woodland, waterfalls, and wonder, and it boasts several walking trails, each offering its own unique perspective of the landscape. The most popular is the Waterfall Walkway, a 3-mile trail that passes through a National Nature Reserve and features the Ess-na-Crub and Ess-na-Larach waterfalls. Glenariff is home to a rich diversity of wildlife including red squirrels, pine martens, and badgers. Birdwatchers will be delighted by willow warblers, chiffchaffs, and kingfishers. The flora is just as impressive, with trees such as the ancient beech, pictured here, oak, birch, and rowan creating a lush canopy. So, whenever you choose to visit, Glenariff is sure to leave you feeling 're-leafed' and rejuvenated.
+> This storybook setting is Glenariff Forest Park in County Antrim, Northern Ireland, which spans nearly 3,000 acres of woodland and waterfalls. Among its popular walking trails is the Waterfall Walkway, a 3-mile trail that passes through a national nature reserve and past the Ess-na-Crub and Ess-na-Larach waterfalls. Glenariff is home to a rich diversity of wildlife including red squirrels, pine martens, and badgers. Birdwatchers will be delighted by willow warblers, chiffchaffs, and kingfishers. The flora is just as impressive, with trees like the old beech pictured here, oaks, birches, and rowans creating a lush canopy. It's the perfect spot for a bit of soul-searching beneath ancient branches in this beautiful landscape known as the 'Queen of the Glens.'
 > 
 > 
 > 
@@ -112,24 +131,7 @@
 
 | ![Wilderness Act anniversary](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wilderness Act anniversary](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg) |
-
-### 20240902
-
-> 'Power of the Titans' mural by Andrei Krautsou, North Kansas City, Missouri (© Stephen Taylor/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Take a load off this Labor Day weekend. One of 11 federal holidays, Labor Day honors America's workers and is celebrated on the first Monday of September. Its origins are rooted in late 1800s' efforts to recognize workers contributions, which ultimately led to the 40-hour work week. President Grover Cleveland made the US holiday official in 1894. Today, many Americans celebrate the long weekend, which is often considered the unofficial end of summer, by grilling, hanging out with friends and family, and going to parades.
-> 
-> Today's image, the 'Power of the Titans' mural by Andrei Krautsou, depicts railroads and industry in North Kansas City, Missouri. It adorns the wall of a local manufacturer whose heritage is also celebrated in the work. Kansas City is a major rail hub and one of the country's largest distribution centers—just the kind of place from which Krautsou, an artist from Belarus who is fascinated with cultures and histories, draws inspiration.
-> 
-> 
-
-</details>
-
-| ![Celebrating Labor Day](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Labor Day](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg) |) | ![Celebrating Labor Day](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg) |920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
