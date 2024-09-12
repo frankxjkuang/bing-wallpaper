@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240910
+
+> Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> This sleek structure is the Vasco da Gama Bridge, which appears to vanish into the horizon after crossing the Tagus River in Portugal. Stretching nearly 8 miles, it was Europe's longest bridge when it opened in 1998, built to ease traffic on Lisbon's 25 de Abril Bridge and make travel smoother between the north and south of Portugal. This cable-stayed bridge was designed to be earthquake and wind-resistant; its deck is not fixed to the pylons, and it can move both lengthwise and sideways. Its opening was perfectly timed for Expo 98, the World's Fair celebrating the 500th anniversary of Vasco da Gama's historic sea route discovery from Europe to India.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Vasco da Gama Bridge, Lisbon, Portugal](https://cn.bing.com/th?id=OHR.BridgeLisbon_EN-US4458392664_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vasco da Gama Bridge, Lisbon, Portugal](https://cn.bing.com/th?id=OHR.BridgeLisbon_EN-US4458392664_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_EN-US4458392664_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_EN-US4458392664_1080x1920.jpg) |
+
 ### 20240909
 
 > Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)
@@ -112,24 +131,7 @@
 
 | ![Dusky eagle-owls, Pakistan](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dusky eagle-owls, Pakistan](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_1080x1920.jpg) |
-
-### 20240903
-
-> Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Sometimes it's nice to get away. Thanks to environmentalist Howard Zahniser, Americans can do that in one of the country's many wildernesses—sheltered from human activities. While the protection of national forests and parks began in the late 1800s, untamed wilderness had dwindled to only 2.5% of US land by the 1960s. To reverse this trend, Zahniser wrote most of what became the Wilderness Act. Signed into law by President Lyndon Johnson on September 3, 1964, today it protects more than 109 million acres—5% of the land in the US.
-> 
-> Pictured in today's image, Crystal Lake, in the Enchantments, Washington, is in one such protected area. Located in the Alpine Lakes Wilderness, the Enchantments region has more than 700 lakes and ponds and some of the best rock climbing in the Western US. It's also home to mountain goats, ptarmigan, pikas, and many alpine flowers. If you want to see Alpine Lakes Wilderness yourself, however, be prepared to wait. Few permits are granted for day hikes, and of the 40,000 people who entered last year's lottery for overnight permits, only 2,558 received one.
-> 
-> 
-
-</details>
-
-| ![Wilderness Act anniversary](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wilderness Act anniversary](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_1080x1920.jpg) |sary](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wilderness Act anniversary](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg) |) | ![Celebrating Labor Day](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
