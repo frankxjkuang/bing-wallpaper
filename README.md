@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240911
+
+> National September 11 Memorial & Museum, New York City (© Antonino Bartuccio/Sime/eStock Photo)
+
+<details>
+<summary>Description</summary>
+
+> On Patriot Day, we are at the National September 11 Memorial & Museum in New York City, where the Twin Towers of the World Trade Center once stood. The museum is 70 feet underground, beneath the memorial's waterfall pools in the footprints of the fallen towers. The names of those who died in the 2001 terrorist attacks and in the 1993 World Trade Center bombing are listed on bronze parapets surrounding these huge reflecting pools. Seven stories below the memorial, the museum tells the story of 9/11 through exhibits, artifacts, historical records, and personal accounts, remembering the victims and those who risked their lives to save others.
+> 
+> Patriot Day honors the 2,977 people killed in the September 11 attacks on the United States. In 2001, Congress passed the Patriot Day resolution, which calls for US flags to fly at half-staff and for a moment of silence at 8:46 AM EST.
+> 
+> 
+
+</details>
+
+| ![Patriot Day](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_1080x1920.jpg) |
+
 ### 20240910
 
 > Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![2024 Toronto International Film Festival](https://cn.bing.com/th?id=OHR.TIFF2024_EN-US9586964456_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![2024 Toronto International Film Festival](https://cn.bing.com/th?id=OHR.TIFF2024_EN-US9586964456_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TIFF2024_EN-US9586964456_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TIFF2024_EN-US9586964456_1080x1920.jpg) |
-
-### 20240904
-
-> Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As daylight fades, dusky eagle-owls, the silent hunters seen in today's image, emerge from their nests. These primarily nocturnal raptors were snapped in Pakistan and can be found in the forests and scrublands across South and Southeast Asia. An impressive wingspan of 15–17 inches, piercing yellow eyes, and exceptional hearing help them to catch small mammals and birds with precision in dim light. Measuring up to 2 feet tall, these feathered predators can also be spotted hunting in the daytime when the weather is cloudy. They often live in the abandoned nests of other birds or in natural crevices. Dusky eagle-owls breed in December and January, usually rearing their young in the safety of tall trees or cliff ledges. Nature lovers and bird watchers are captivated by their solemn gaze and elegant stature.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Dusky eagle-owls, Pakistan](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dusky eagle-owls, Pakistan](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_1080x1920.jpg) |sary](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wilderness Act anniversary](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TIFF2024_EN-US9586964456_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TIFF2024_EN-US9586964456_1080x1920.jpg) |lderness Act anniversary](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg) |) | ![Celebrating Labor Day](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
