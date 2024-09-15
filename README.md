@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240913
+
+> Lighthouse at Point Reyes National Seashore, California (© RMB Images/Photography by Robert Bowman/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> This stunning 71,028-acre coastal haven on the Point Reyes Peninsula in Marin County is a gem of the California coastline. Filled with scenic trails that wind through forests and along cliffs, it boasts breathtaking views and lots of wildlife. Point Reyes National Seashore also has a reputation as the most wind-swept spot on the Pacific Coast and the second-foggiest area in North America, so dress accordingly.
+> 
+> The lighthouse was built in 1870 due to frequent shipwrecks in treacherous coastal waters. This iconic landmark served as a crucial navigation aid for more than 100 years before being replaced by an automated light in 1975. Today, the lighthouse remains a key element of Point Reyes' charm and continues to be a favorite attraction. Whether you're spotting elephant seals, hiking to the picturesque Point Reyes Lighthouse, or simply soaking in the serene beauty of the rolling waves, there's something for everyone.
+> 
+> 
+
+</details>
+
+| ![Point Reyes National Seashore, California](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Point Reyes National Seashore, California](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_1080x1920.jpg) |
+
 ### 20240912
 
 > Dolphin pod near Réunion, overseas department of France, Indian Ocean (© Joost van Uffelen/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_1080x1920.jpg) |
-
-### 20240906
-
-> Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> This storybook setting is Glenariff Forest Park in County Antrim, Northern Ireland, which spans nearly 3,000 acres of woodland and waterfalls. Among its popular walking trails is the Waterfall Walkway, a 3-mile trail that passes through a national nature reserve and past the Ess-na-Crub and Ess-na-Larach waterfalls. Glenariff is home to a rich diversity of wildlife including red squirrels, pine martens, and badgers. Birdwatchers will be delighted by willow warblers, chiffchaffs, and kingfishers. The flora is just as impressive, with trees like the old beech pictured here, oaks, birches, and rowans creating a lush canopy. It's the perfect spot for a bit of soul-searching beneath ancient branches in this beautiful landscape known as the 'Queen of the Glens.'
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Glenariff Forest Park, Northern Ireland, UK](https://cn.bing.com/th?id=OHR.GlenariffPark_EN-US3914128007_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Glenariff Forest Park, Northern Ireland, UK](https://cn.bing.com/th?id=OHR.GlenariffPark_EN-US3914128007_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlenariffPark_EN-US3914128007_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlenariffPark_EN-US3914128007_1080x1920.jpg) |t anniversary](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg) |) | ![Celebrating Labor Day](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg) |) | ![Celebrating Labor Day](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg) |920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
