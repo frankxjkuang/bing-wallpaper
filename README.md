@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240914
+
+> Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to Rapa Nui, also known as Easter Island, one of the world's most remote and enchanting paradises, roughly 2,330 miles west of mainland Chile. Famous for its iconic moai statues, Rapa Nui boasts breathtaking landscapes and rich cultural heritage. Experts are divided on when the island's ancestral inhabitants first arrived from Polynesia, though many researchers suggest it was around the 8th century. Take in the mesmerizing sunrise featured in today's image and explore the striking volcanic craters and lush, grassy plains where the imposing statues stand. The World Heritage property of Easter Island spans more than 17,000 acres, including four nearby islets.
+> 
+> The island's original inhabitants call it Rapa Nui, meaning 'Great Rapa,' referring to the land's similarity to Rapa Island, in French Polynesia. Dutch explorer Jacob Roggeveen, the first European to visit, named it Paasch-Eyland, or 'Easter Island' in English, to mark his arrival on Easter Sunday. You can explore this unique World Heritage site year-round. Dive into its vibrant history and let the island's charm sweep you away.
+> 
+> 
+
+</details>
+
+| ![Rapa Nui National Park, Easter Island, Chile](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rapa Nui National Park, Easter Island, Chile](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg) |
+
 ### 20240913
 
 > Lighthouse at Point Reyes National Seashore, California (© RMB Images/Photography by Robert Bowman/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Literacy Day](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Literacy Day](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_1080x1920.jpg) |
-
-### 20240907
-
-> Anna's hummingbird, Santa Cruz, California (© yhelfman/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On the first Saturday in September, National Hummingbird Day celebrates these tiny, agile birds and their role as pollinators in our ecosystem. Hummingbirds are known for their incredible speed; they can flap their wings up to 80 times per second, allowing them to hover and fly backward. Their high metabolism requires them to eat constantly, so they spend their days flitting from flower to flower, sipping nectar and catching insects. These birds can remember which flowers they've visited and how long they will take to refill with nectar.
-> 
-> Let's meet the Anna's hummingbird, seen in today's image. Named after Anna Masséna, Duchess of Rivoli, it's one of an estimated 366 hummingbird species, and it's among the most common hummingbirds on North America's west coast. With its shimmering emerald feathers and sparkling rose-pink throat, this little bird is a sight to behold. So, today, let's spread our wings of awareness and protect these birds—one garden at a time.
-> 
-> 
-
-</details>
-
-| ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1080x1920.jpg) |) | ![Celebrating Labor Day](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_1080x1920.jpg) |g Labor Day](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1080x1920.jpg) |920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
