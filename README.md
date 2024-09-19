@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240917
+
+> Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> For many Asian cultures, the point at which the moon reaches its fullest during the harvest season marks the Mid-Autumn Festival, also known as the Moon Festival. It's traditionally observed on the 15th day of the eighth month in the Chinese lunar calendar. Dating back more than 3,000 years to China's Shang Dynasty, this festival celebrates moon watching and the end of the harvest season. During the festivities, mooncakes—round delicacies filled with sweet bean paste, salted egg yolks, or lotus seeds—are often shared among friends and family. Lanterns of different shapes, sizes, and hues, symbolizing good fortune, illuminate the night. Asian communities across the world come together to showcase a mélange of cultural performances, heartfelt renditions of the Moon Festival's poetic tales.
+> 
+> As depicted in today's image, Gardens by the Bay in Singapore has been transformed into a mystical realm during this event. The Supertree Grove comes alive with radiant lantern displays, and the park's conservatories host themed shows, often inspired by myths or nature's wonders.
+> 
+> 
+
+</details>
+
+| ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_1080x1920.jpg) |
+
 ### 20240916
 
 > Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)
@@ -112,34 +131,7 @@
 
 | ![Patriot Day](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_1080x1920.jpg) |
-
-### 20240910
-
-> Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This sleek structure is the Vasco da Gama Bridge, which appears to vanish into the horizon after crossing the Tagus River in Portugal. Stretching nearly 8 miles, it was Europe's longest bridge when it opened in 1998, built to ease traffic on Lisbon's 25 de Abril Bridge and make travel smoother between the north and south of Portugal. This cable-stayed bridge was designed to be earthquake and wind-resistant; its deck is not fixed to the pylons, and it can move both lengthwise and sideways. Its opening was perfectly timed for Expo 98, the World's Fair celebrating the 500th anniversary of Vasco da Gama's historic sea route discovery from Europe to India.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Vasco da Gama Bridge, Lisbon, Portugal](https://cn.bing.com/th?id=OHR.BridgeLisbon_EN-US4458392664_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vasco da Gama Bridge, Lisbon, Portugal](https://cn.bing.com/th?id=OHR.BridgeLisbon_EN-US4458392664_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_EN-US4458392664_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_EN-US4458392664_1080x1920.jpg) |塔上，因此可以纵向和横向移动。大桥于1998年3月29日落成通车，恰逢98世博会举行，这是为纪念瓦斯科·达·伽马发现从欧洲到印度的历史性海路500周年而举办的世界博览会。
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![瓦斯科·达·伽马大桥，里斯本，葡萄牙](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![瓦斯科·达·伽马大桥，里斯本，葡萄牙](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_1080x1920.jpg) |科·达·伽马大桥，里斯本，葡萄牙](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1080x1920.jpg) |://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
