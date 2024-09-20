@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240918
+
+> Gujō Hachiman Castle, Gifu prefecture, Japan (© ta2funk ito/500px/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In Japan's Gifu prefecture, Gujō Hachiman Castle stands majestically on Hachiman Mountain. Originally constructed in 1559, this castle has witnessed centuries of Japanese history, including the rise and fall of powerful clans. It was torn down during the tumultuous Meiji Restoration—the period that marked the return of imperial power in the country—but was rebuilt in 1933. The castle seen in today's image is a unique wooden reconstruction, a rarity among Japan's often concrete rebuilt castles. This five-story structure, which includes a museum, offers a glimpse into feudal Japan while providing stunning views of the valley below. In addition to the castle, the city of Gujō is also famous for hosting the Gujō Odori, one of Japan's oldest dance festivals. Held annually from mid-July to early September, the festival sees locals and tourists alike dancing through the night in the castle town, preserving a tradition that dates back more than 400 years.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Gujō Hachiman Castle, Gifu prefecture, Japan](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gujō Hachiman Castle, Gifu prefecture, Japan](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_1080x1920.jpg) |
+
 ### 20240917
 
 > Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy)
@@ -112,26 +131,7 @@
 
 | ![World Dolphin Day](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Dolphin Day](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |
-
-### 20240911
-
-> National September 11 Memorial & Museum, New York City (© Antonino Bartuccio/Sime/eStock Photo)
-
-<details>
-<summary>Description</summary>
-
-> On Patriot Day, we are at the National September 11 Memorial & Museum in New York City, where the Twin Towers of the World Trade Center once stood. The museum is 70 feet underground, beneath the memorial's waterfall pools in the footprints of the fallen towers. The names of those who died in the 2001 terrorist attacks and in the 1993 World Trade Center bombing are listed on bronze parapets surrounding these huge reflecting pools. Seven stories below the memorial, the museum tells the story of 9/11 through exhibits, artifacts, historical records, and personal accounts, remembering the victims and those who risked their lives to save others.
-> 
-> Patriot Day honors the 2,977 people killed in the September 11 attacks on the United States. In 2001, Congress passed the Patriot Day resolution, which calls for US flags to fly at half-staff and for a moment of silence at 8:46 AM EST.
-> 
-> 
-
-</details>
-
-| ![Patriot Day](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_1080x1920.jpg) |科·达·伽马大桥，里斯本，葡萄牙](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1080x1920.jpg) |://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
