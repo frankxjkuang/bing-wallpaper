@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240919
+
+> Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Ahoy, mateys! It be International Talk Like a Pirate Day. Today, landlubbers and seafarers alike put on their tricorn hats and hoist the Jolly Roger. The day started in 1995 as a joke between two friends, John Baur and Mark Summers, but it got a boost in 2002 after they shared the idea with humorist Dave Barry, who promoted it in his syndicated column. Since then, it's become a day of fun—people don pirate costumes, engage in pirate-themed activities, like the kid on the ship in today's image, and embrace mock pirate language. Whether ye be a seasoned buccaneer or a greenhorn, it's time to batten down the hatches, shiver your timbers, and unleash your inner pirate. Arr!
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![International Talk Like a Pirate Day](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Talk Like a Pirate Day](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_1080x1920.jpg) |
+
 ### 20240918
 
 > Gujō Hachiman Castle, Gifu prefecture, Japan (© ta2funk ito/500px/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Point Reyes National Seashore, California](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Point Reyes National Seashore, California](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_1080x1920.jpg) |
-
-### 20240912
-
-> Dolphin pod near Réunion, overseas department of France, Indian Ocean (© Joost van Uffelen/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Grab your flippers—it's World Dolphin Day, a day to celebrate and promote the conservation of these aquatic mammals. Dolphins are highly intelligent and can be found all over the world in oceans, rivers, and estuaries. But they are threatened by human activities, such as hunting, pollution, and fishing. Hunting in particular led to the creation of World Dolphin Day in 2022 by Sea Shepherd Global, an international marine conservation group.
-> 
-> The pod of dolphins seen in today's image was photographed near Réunion, an island in the Indian Ocean off the east coast of Madagascar. Marine wildlife found year-round in Réunion's deeper waters include many types of sharks, orcas, humpback whales, sea turtles, and dolphins. The island's warm, tropical climate is ideal for these creatures, as well as spinner, bottlenose, and rough-toothed dolphins, which also swim in the island's crystal-clear waters.
-> 
-> 
-
-</details>
-
-| ![World Dolphin Day](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Dolphin Day](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1080x1920.jpg) |://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
