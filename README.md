@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240920
+
+> Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to Ocracoke Island in the Outer Banks of North Carolina. This secluded island, with 16 miles of beaches, can only be reached by ferry or small plane. The Ocracoke Lighthouse, seen in today's image, stands out as a notable landmark. The lighthouse celebrated its 200th anniversary in 2023, making it the oldest continuously operating lighthouse in North Carolina. It boasts an 8,000-candlepower light, which can be seen up to 14 miles offshore.
+> 
+> Ocracoke Island's history is peppered with tales of pirates, including the infamous Blackbeard, an English pirate who was notorious for his operations in the West Indies and along the Virginia and Carolina coasts. He spent much of his final days on Ocracoke Island until his death in battle with British naval forces in 1718. The island's residents speak the unique 'Hoi Toider' dialect, a blend of Elizabethan English, Irish, and Scottish accents. However, this dialect is slowly fading as younger generations adopt more standard American English.
+> 
+> 
+
+</details>
+
+| ![Ocracoke Lighthouse on Ocracoke Island, North Carolina](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ocracoke Lighthouse on Ocracoke Island, North Carolina](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_1080x1920.jpg) |
+
 ### 20240919
 
 > Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Rapa Nui National Park, Easter Island, Chile](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rapa Nui National Park, Easter Island, Chile](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg) |
-
-### 20240913
-
-> Lighthouse at Point Reyes National Seashore, California (© RMB Images/Photography by Robert Bowman/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This stunning 71,028-acre coastal haven on the Point Reyes Peninsula in Marin County is a gem of the California coastline. Filled with scenic trails that wind through forests and along cliffs, it boasts breathtaking views and lots of wildlife. Point Reyes National Seashore also has a reputation as the most wind-swept spot on the Pacific Coast and the second-foggiest area in North America, so dress accordingly.
-> 
-> The lighthouse was built in 1870 due to frequent shipwrecks in treacherous coastal waters. This iconic landmark served as a crucial navigation aid for more than 100 years before being replaced by an automated light in 1975. Today, the lighthouse remains a key element of Point Reyes' charm and continues to be a favorite attraction. Whether you're spotting elephant seals, hiking to the picturesque Point Reyes Lighthouse, or simply soaking in the serene beauty of the rolling waves, there's something for everyone.
-> 
-> 
-
-</details>
-
-| ![Point Reyes National Seashore, California](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Point Reyes National Seashore, California](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1080x1920.jpg) |://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
