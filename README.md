@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240921
+
+> Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, we're raising a stein and saying Prost! Step into Munich, capital of the German state of Bavaria, for a celebration like no other. Oktoberfest, first held here in 1810, is a vibrant blend of Bavarian culture, tradition, and, of course, beer.
+> 
+> Oktoberfest is one of the world's largest festivals, attracting over 6 million visitors each year. Beyond the frothy steins of beer served by waitstaff wearing traditional dirndls and lederhosen, there's music, amusement rides, and a mouthwatering array of local delicacies, like pretzels and sausages. Oktoberfest is celebrated in other countries, including several US cities, like Cincinnati and Denver, each adding their own local flair to the festivities. So, whether you love beer or just a good party, Oktoberfest serves up a taste of Bavaria, right in your backyard.
+> 
+> 
+
+</details>
+
+| ![Oktoberfest, Munich, Germany](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest, Munich, Germany](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_1080x1920.jpg) |
+
 ### 20240920
 
 > Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![National Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_1080x1920.jpg) |
-
-### 20240914
-
-> Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to Rapa Nui, also known as Easter Island, one of the world's most remote and enchanting paradises, roughly 2,330 miles west of mainland Chile. Famous for its iconic moai statues, Rapa Nui boasts breathtaking landscapes and rich cultural heritage. Experts are divided on when the island's ancestral inhabitants first arrived from Polynesia, though many researchers suggest it was around the 8th century. Take in the mesmerizing sunrise featured in today's image and explore the striking volcanic craters and lush, grassy plains where the imposing statues stand. The World Heritage property of Easter Island spans more than 17,000 acres, including four nearby islets.
-> 
-> The island's original inhabitants call it Rapa Nui, meaning 'Great Rapa,' referring to the land's similarity to Rapa Island, in French Polynesia. Dutch explorer Jacob Roggeveen, the first European to visit, named it Paasch-Eyland, or 'Easter Island' in English, to mark his arrival on Easter Sunday. You can explore this unique World Heritage site year-round. Dive into its vibrant history and let the island's charm sweep you away.
-> 
-> 
-
-</details>
-
-| ![Rapa Nui National Park, Easter Island, Chile](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rapa Nui National Park, Easter Island, Chile](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_1080x1920.jpg) |sland, Chile](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
