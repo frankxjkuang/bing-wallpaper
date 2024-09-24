@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240922
+
+> Buttermere, Lake District National Park, England (© Alan Novelli/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Fall is in the air—officially. The September equinox marks the transition from summer to autumn in the Northern Hemisphere, while in the Southern Hemisphere, spring is just beginning. The term 'equinox,' derived from Latin, means 'equal night.' It marks one of two points during the year when the sun sits directly over the equator, and the Earth receives roughly equal amounts of daylight and darkness.
+> 
+> To welcome autumn, we're at Buttermere in England's Lake District, where the season's changing colors are reflected in its tranquil waters. Here, a Norse leader, Jarl Buthar, defied Norman conquests during the 12th century. Some believe 'Buttermere' is derived from his name, but as it means 'the lake by the dairy pastures,' it is more likely to be a reference to its rural setting. This picturesque lake offers the perfect place to take a break from the hustle, immerse yourself in autumnal hues, and let nature refresh your spirit.
+> 
+> 
+
+</details>
+
+| ![Autumnal equinox](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumnal equinox](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_1080x1920.jpg) |
+
 ### 20240921
 
 > Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Wallabies at sunrise, Australia](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wallabies at sunrise, Australia](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_1080x1920.jpg) |
-
-### 20240915
-
-> Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> From today, National Hispanic Heritage Month unfurls its vibrant celebrations of Hispanic Americans' contributions to US culture and society. The date coincides with the independence days of several Latin American nations, like Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua, Mexico, and Chile. Established as Hispanic Heritage Week in 1968, it was expanded to a month by President Ronald Reagan in 1988.
-> 
-> San Diego's Balboa Park was a scrub-filled mesa when civic leaders decided to set aside 1,400 acres to create a large urban park in 1868. As seen in today's image, the Casa del Prado is one of several reconstructed buildings in this part of the park, where local festivities spring to life during National Hispanic Heritage Month. Music, dance, parades, and storytelling celebrate America's approximately 65 million Hispanics, whose culture is deeply interwoven with American history.
-> 
-> 
-
-</details>
-
-| ![National Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_1080x1920.jpg) |sland, Chile](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
