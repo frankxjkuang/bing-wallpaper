@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240923
+
+> Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> We're celebrating Sea Otter Awareness Week with this laid-back little guy in Prince William Sound, Alaska. Sea otters are native to the northern and eastern coasts of the North Pacific Ocean. They're expert foragers, diving to the seabed to find food and using rocks to crack open shellfish, one of the few animals that use tools. There used to be as many as 300,000 sea otters in the wild, but they were heavily hunted for their dense fur for almost two centuries. By 1911, it is thought that only around 2,000 sea otters were left. Thankfully, an international hunting ban and conservation efforts have helped them rebound in their historic habitat to an estimated 125,000. Despite this success, some populations continue to struggle, and sea otters are still an endangered species. So, unlike our homepage star, we can't relax on sea otter conservation just yet.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.IcebergOtter_EN-US3869054406_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.IcebergOtter_EN-US3869054406_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcebergOtter_EN-US3869054406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcebergOtter_EN-US3869054406_1080x1920.jpg) |
+
 ### 20240922
 
 > Buttermere, Lake District National Park, England (© Alan Novelli/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_1080x1920.jpg) |
-
-### 20240916
-
-> Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Amid the hues of dawn, captured in today's image, two wallabies stand alert in a field near the Adelaide River in Australia's Northern Territory. These marsupials, smaller cousins of the kangaroo, are native to Australia and New Guinea. There are around 30 species of wallabies, including swamp, rock, and hare-wallabies. These sprightly mammals have strong hind legs that help them take impressive leaps and deliver powerful kicks if threatened. During mating season, male wallabies engage in boxing bouts in an attempt to grab females' attention. Social creatures, wallabies form small groups called 'mobs' for safety and mutual grooming. Their playgrounds are forests that echo with the thudding of their hops as they navigate their home range.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Wallabies at sunrise, Australia](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wallabies at sunrise, Australia](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_1080x1920.jpg) |3_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
