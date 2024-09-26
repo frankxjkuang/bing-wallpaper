@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240924
+
+> Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In Iceland's Skaftafell, fall isn't just a season—it's an experience. From glaciers to waterfalls, like the one featured here today, to northern lights, this area in Vatnajökull National Park is a showcase of nature's raw beauty. Skaftafell's dramatic landscape was formed over thousands of years by the fierce interplay of volcanic fire and glacial water. Here, the glacier Skaftafellsjökull, a branch of Iceland's largest ice cap Vatnajökull, stretches out like a frozen river, inviting visitors for guided hikes. Then there's Svartifoss, another waterfall in the park, fed by glacial meltwater. Surrounded by dark lava columns resembling a heart from afar, this waterfall inspired the design of Iceland's National Theatre and the Hallgrímskirkja church in Reykjavík.
+> 
+> Skaftafell's hiking trails range from easy walks to challenging climbs, so there's something for everyone. While the daylight hours may be shorter in this season, there's a bright side—literally. As night falls, the auroras often appear, turning the sky into a swirling mix of green and pink.
+> 
+> 
+
+</details>
+
+| ![Skaftafell, Vatnajökull National Park, Iceland](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Skaftafell, Vatnajökull National Park, Iceland](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |
+
 ### 20240923
 
 > Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Gujō Hachiman Castle, Gifu prefecture, Japan](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gujō Hachiman Castle, Gifu prefecture, Japan](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_1080x1920.jpg) |
-
-### 20240917
-
-> Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> For many Asian cultures, the point at which the moon reaches its fullest during the harvest season marks the Mid-Autumn Festival, also known as the Moon Festival. It's traditionally observed on the 15th day of the eighth month in the Chinese lunar calendar. Dating back more than 3,000 years to China's Shang Dynasty, this festival celebrates moon watching and the end of the harvest season. During the festivities, mooncakes—round delicacies filled with sweet bean paste, salted egg yolks, or lotus seeds—are often shared among friends and family. Lanterns of different shapes, sizes, and hues, symbolizing good fortune, illuminate the night. Asian communities across the world come together to showcase a mélange of cultural performances, heartfelt renditions of the Moon Festival's poetic tales.
-> 
-> As depicted in today's image, Gardens by the Bay in Singapore has been transformed into a mystical realm during this event. The Supertree Grove comes alive with radiant lantern displays, and the park's conservatories host themed shows, often inspired by myths or nature's wonders.
-> 
-> 
-
-</details>
-
-| ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_1080x1920.jpg) |3_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_1080x1920.jpg) |-:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1080x1920.jpg) |://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
