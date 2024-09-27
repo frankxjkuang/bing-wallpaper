@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240925
+
+> Giant sequoias, Sequoia National Park, California (© Galyna Andrushko/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> On this day in 1890, Sequoia National Park was founded in the southern Sierra Nevada to protect one of America's natural splendors. Named after the giant sequoias that dominate the landscape, the park spans more than 629 square miles and is home to wildlife such as black bears, mule deer, and over 200 species of birds, including warblers, vireos, and flycatchers . The giant sequoia trees here have been rooted for more than 2,200 years and are among Earth's oldest living organisms. The park's renowned General Sherman tree rises to an astonishing 275 feet. Named after the American Civil War general William Tecumseh Sherman, it's not only tall but is also more than 36 feet wide. Visitors flock to capture moments among these ancient giants, whose reddish-brown, fibrous bark and wide-reaching branches evoke a sense of living history.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Sequoia National Park's 134th anniversary](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sequoia National Park's 134th anniversary](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_1080x1920.jpg) |
+
 ### 20240924
 
 > Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Talk Like a Pirate Day](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Talk Like a Pirate Day](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_1080x1920.jpg) |
-
-### 20240918
-
-> Gujō Hachiman Castle, Gifu prefecture, Japan (© ta2funk ito/500px/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In Japan's Gifu prefecture, Gujō Hachiman Castle stands majestically on Hachiman Mountain. Originally constructed in 1559, this castle has witnessed centuries of Japanese history, including the rise and fall of powerful clans. It was torn down during the tumultuous Meiji Restoration—the period that marked the return of imperial power in the country—but was rebuilt in 1933. The castle seen in today's image is a unique wooden reconstruction, a rarity among Japan's often concrete rebuilt castles. This five-story structure, which includes a museum, offers a glimpse into feudal Japan while providing stunning views of the valley below. In addition to the castle, the city of Gujō is also famous for hosting the Gujō Odori, one of Japan's oldest dance festivals. Held annually from mid-July to early September, the festival sees locals and tourists alike dancing through the night in the castle town, preserving a tradition that dates back more than 400 years.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Gujō Hachiman Castle, Gifu prefecture, Japan](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gujō Hachiman Castle, Gifu prefecture, Japan](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_1080x1920.jpg) |-:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_1080x1920.jpg) |man_EN-US5502837623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_1080x1920.jpg) |-:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1080x1920.jpg) |://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
