@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240926
+
+> Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Tucked away in the highlands of Costa Rica, Los Quetzales National Park offers a kaleidoscope of lush habitats, including one that's home to the blue-throated toucanet. These non-migratory birds use their dexterous toes to navigate branches, while their distinctive bills deftly forage for fruits, insects, and small lizards.
+> 
+> During breeding season in March to August, toucanets nest in tree cavities lined with leaves and feathers. A close-knit pair of toucanets may share parenting duties, feeding their hatchlings a generous diet of fruit. Blue-throated toucanets are gregarious by nature. Their call—a far-carrying mixture of croaks and chirps that sound like 'rrip rrrip rrip rrip' or 'curré curré curré'—can be heard throughout forests in Costa Rica, western Panama, and northwestern Colombia.
+> 
+> 
+
+</details>
+
+| ![Blue-throated toucanet, Los Quetzales National Park, Costa Rica](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blue-throated toucanet, Los Quetzales National Park, Costa Rica](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_1080x1920.jpg) |
+
 ### 20240925
 
 > Giant sequoias, Sequoia National Park, California (© Galyna Andrushko/Shutterstock)
@@ -112,27 +131,7 @@
 
 | ![Ocracoke Lighthouse on Ocracoke Island, North Carolina](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ocracoke Lighthouse on Ocracoke Island, North Carolina](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_1080x1920.jpg) |
-
-### 20240919
-
-> Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Ahoy, mateys! It be International Talk Like a Pirate Day. Today, landlubbers and seafarers alike put on their tricorn hats and hoist the Jolly Roger. The day started in 1995 as a joke between two friends, John Baur and Mark Summers, but it got a boost in 2002 after they shared the idea with humorist Dave Barry, who promoted it in his syndicated column. Since then, it's become a day of fun—people don pirate costumes, engage in pirate-themed activities, like the kid on the ship in today's image, and embrace mock pirate language. Whether ye be a seasoned buccaneer or a greenhorn, it's time to batten down the hatches, shiver your timbers, and unleash your inner pirate. Arr!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![International Talk Like a Pirate Day](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Talk Like a Pirate Day](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_1080x1920.jpg) |man_EN-US5502837623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_1080x1920.jpg) |-:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_1080x1920.jpg) |.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1080x1920.jpg) |://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
