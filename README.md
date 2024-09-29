@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240927
+
+> Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)
+
+<details>
+<summary>Description</summary>
+
+> The Santa Maria della Salute church in Venice is steeped in history. As a plague devastated the city in 1630, its leader, Doge Nicolò Contarini, vowed to build a majestic church dedicated to the Virgin Mary if the city was spared. In 1631 the epidemic ended, and construction began. The church, built in the Baroque style, was completed around 50 years later, a lifelong project for architect Baldassare Longhena.
+> 
+> Built at the entrance to the Grand Canal, its dome dominates the Venice skyline. Each November, Venice commemorates the church's significance during the Festa della Madonna della Salute, a cultural celebration that includes festive processions and offering of candles in gratitude for deliverance from the plague.
+> 
+> 
+
+</details>
+
+| ![Basilica of Santa Maria della Salute, Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Basilica of Santa Maria della Salute, Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_1080x1920.jpg) |
+
 ### 20240926
 
 > Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)
@@ -112,24 +131,7 @@
 
 | ![Oktoberfest, Munich, Germany](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest, Munich, Germany](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_1080x1920.jpg) |
-
-### 20240920
-
-> Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to Ocracoke Island in the Outer Banks of North Carolina. This secluded island, with 16 miles of beaches, can only be reached by ferry or small plane. The Ocracoke Lighthouse, seen in today's image, stands out as a notable landmark. The lighthouse celebrated its 200th anniversary in 2023, making it the oldest continuously operating lighthouse in North Carolina. It boasts an 8,000-candlepower light, which can be seen up to 14 miles offshore.
-> 
-> Ocracoke Island's history is peppered with tales of pirates, including the infamous Blackbeard, an English pirate who was notorious for his operations in the West Indies and along the Virginia and Carolina coasts. He spent much of his final days on Ocracoke Island until his death in battle with British naval forces in 1718. The island's residents speak the unique 'Hoi Toider' dialect, a blend of Elizabethan English, Irish, and Scottish accents. However, this dialect is slowly fading as younger generations adopt more standard American English.
-> 
-> 
-
-</details>
-
-| ![Ocracoke Lighthouse on Ocracoke Island, North Carolina](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ocracoke Lighthouse on Ocracoke Island, North Carolina](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_1080x1920.jpg) |=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_1080x1920.jpg) |.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
