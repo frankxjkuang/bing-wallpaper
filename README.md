@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20240928
+
+> Cottonwoods seen through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> National Public Lands Day takes place every fourth Saturday of September. Today is all about preserving public lands, which can be anything from national parks to urban green spaces. On this day, entry fees to many federal lands are waived, and those who participate in conservation activities like cleanups or restoring historic structures receive free entry coupons for future visits to these locations. This day has grown substantially since it began in 1994. Its first celebration was started by three national agencies and drew 700 volunteers. By 2010, the number of volunteers had increased to 170,000, spreading across more than 2,000 sites.
+> 
+> Framed by a natural arch in Coyote Gulch, Utah, vibrant golden cottonwood trees stand out against the colorful rock formations of Escalante canyon country. Coyote Gulch is a well-known backpacking destination offering towering vertical canyon walls, narrow slot canyons, domes, arches, and natural bridges to visitors. The upper reaches of the gulch lie within the Grand Staircase–Escalante National Monument, while today's image showcases its lower sections in the Glen Canyon National Recreation Area (GCNRA). Established in 1972 and managed by the National Park Service, GCNRA is a conservation area that balances recreation and preservation. Unlike national parks that focus primarily on natural preservation, GCNRA offers a variety of facilities, including four public campgrounds, two small airports, and several houseboat rental services, making it a popular destination for visitors.
+> 
+> 
+
+</details>
+
+| ![National Public Lands Day](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Public Lands Day](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_1080x1920.jpg) |
+
 ### 20240927
 
 > Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)
@@ -112,30 +131,7 @@
 
 | ![Autumnal equinox](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumnal equinox](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_1080x1920.jpg) |
-
-### 20240921
-
-> Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, we're raising a stein and saying Prost! Step into Munich, capital of the German state of Bavaria, for a celebration like no other. Oktoberfest, first held here in 1810, is a vibrant blend of Bavarian culture, tradition, and, of course, beer.
-> 
-> Oktoberfest is one of the world's largest festivals, attracting over 6 million visitors each year. Beyond the frothy steins of beer served by waitstaff wearing traditional dirndls and lederhosen, there's music, amusement rides, and a mouthwatering array of local delicacies, like pretzels and sausages. Oktoberfest is celebrated in other countries, including several US cities, like Cincinnati and Denver, each adding their own local flair to the festivities. So, whether you love beer or just a good party, Oktoberfest serves up a taste of Bavaria, right in your backyard.
-> 
-> 
-
-</details>
-
-| ![Oktoberfest, Munich, Germany](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest, Munich, Germany](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_1080x1920.jpg) |=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_1080x1920.jpg) |.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1080x1920.jpg) |://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_1080x1920.jpg) |ing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1080x1920.jpg) |D.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1080x1920.jpg) |789937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
