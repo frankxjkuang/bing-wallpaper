@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241001
+
+> Last light on Half Dome, Yosemite National Park, California (© Adam Burton/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> There's a reason why famed American photographer Ansel Adams fell in love with Yosemite National Park: vistas like today's image of Half Dome. The park, in central California's Sierra Nevada range, has been a popular destination for artists, mountaineers, settlers, and nature lovers since the mid-1800s. To protect it from logging and overgrazing by cattle, Congress designated Yosemite a national park on this day in 1890. It's one of the most visited parks in the US, with more than 3 million visitors a year.
+> 
+> At almost 9,000 feet tall, Half Dome is only one of Yosemite's geological wonders. Other famous climbing destinations include El Capitan and Mount Lyell, which at 13,114 feet tall is the park's highest summit. Yosemite is also famous for its waterfalls and is home to giant sequoia trees, black bears, mountain lions, and endangered Sierra Nevada bighorn sheep.
+> 
+> 
+
+</details>
+
+| ![Yosemite National Park anniversary](https://cn.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yosemite National Park anniversary](https://cn.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_1080x1920.jpg) |
+
 ### 20240930
 
 > Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)
@@ -112,24 +131,7 @@
 
 | ![Sequoia National Park's 134th anniversary](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sequoia National Park's 134th anniversary](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_1080x1920.jpg) |
-
-### 20240924
-
-> Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In Iceland's Skaftafell, fall isn't just a season—it's an experience. From glaciers to waterfalls, like the one featured here today, to northern lights, this area in Vatnajökull National Park is a showcase of nature's raw beauty. Skaftafell's dramatic landscape was formed over thousands of years by the fierce interplay of volcanic fire and glacial water. Here, the glacier Skaftafellsjökull, a branch of Iceland's largest ice cap Vatnajökull, stretches out like a frozen river, inviting visitors for guided hikes. Then there's Svartifoss, another waterfall in the park, fed by glacial meltwater. Surrounded by dark lava columns resembling a heart from afar, this waterfall inspired the design of Iceland's National Theatre and the Hallgrímskirkja church in Reykjavík.
-> 
-> Skaftafell's hiking trails range from easy walks to challenging climbs, so there's something for everyone. While the daylight hours may be shorter in this season, there's a bright side—literally. As night falls, the auroras often appear, turning the sky into a swirling mix of green and pink.
-> 
-> 
-
-</details>
-
-| ![Skaftafell, Vatnajökull National Park, Iceland](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Skaftafell, Vatnajökull National Park, Iceland](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_1080x1920.jpg) |&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
