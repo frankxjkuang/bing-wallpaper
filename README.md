@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241002
+
+> Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska (© Design Pics/Danita Delimont)
+
+<details>
+<summary>Description</summary>
+
+> Ever wonder how some of our rivers stay unspoiled? It's thanks to the Wild and Scenic Rivers Act, which was signed into law on this day in 1968. This legislation created the National Wild and Scenic Rivers System which preserves rivers with exceptional natural, cultural, and recreational qualities.
+> 
+> The national rivers system oversees more than 13,000 miles of 228 rivers across 41 states, and Puerto Rico, a tiny fraction of the 3.5 million miles of US rivers. It categorizes rivers as wild, scenic, or recreational. The Wind River in northeastern Alaska, seen in today's image, is a wild river, isolated and undeveloped. This 85-mile river flows from the Philip Smith Mountains to the East Fork of the Chandalar River, winding through a valley filled with lakes and wetlands. Part of the Arctic National Wildlife Refuge, this river valley is a bustling habitat for Dall sheep, moose, caribou, and grizzly bears. In a changing world, it's comforting to know these rivers will remain unchanged.
+> 
+> 
+
+</details>
+
+| ![Wild and Scenic Rivers Act](https://cn.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wild and Scenic Rivers Act](https://cn.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_1080x1920.jpg) |
+
 ### 20241001
 
 > Last light on Half Dome, Yosemite National Park, California (© Adam Burton/Alamy)
@@ -112,28 +131,7 @@
 
 | ![Blue-throated toucanet, Los Quetzales National Park, Costa Rica](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blue-throated toucanet, Los Quetzales National Park, Costa Rica](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_1080x1920.jpg) |
-
-### 20240925
-
-> Giant sequoias, Sequoia National Park, California (© Galyna Andrushko/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> On this day in 1890, Sequoia National Park was founded in the southern Sierra Nevada to protect one of America's natural splendors. Named after the giant sequoias that dominate the landscape, the park spans more than 629 square miles and is home to wildlife such as black bears, mule deer, and over 200 species of birds, including warblers, vireos, and flycatchers . The giant sequoia trees here have been rooted for more than 2,200 years and are among Earth's oldest living organisms. The park's renowned General Sherman tree rises to an astonishing 275 feet. Named after the American Civil War general William Tecumseh Sherman, it's not only tall but is also more than 36 feet wide. Visitors flock to capture moments among these ancient giants, whose reddish-brown, fibrous bark and wide-reaching branches evoke a sense of living history.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Sequoia National Park's 134th anniversary](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sequoia National Park's 134th anniversary](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_1080x1920.jpg) |&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
