@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241003
+
+> Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Let's explore the Taj Mahal, on the banks of the Yamuna River in Agra, Uttar Pradesh, India. This ivory-white marble mausoleum was commissioned in 1631 by Shah Jahan, the fifth Mughal emperor, to honor his late wife, Mumtaz Mahal. It is one of the New Seven Wonders of the World.
+> 
+> This tomb is the centerpiece of a sprawling 42-acre complex, which also includes a mosque, a guest house, and beautifully landscaped gardens surrounded by a grand wall. The tomb is flanked by giant arches and alcoves that merge Indo-Islamic and Mughal architectural styles. It's also an incredible architectural feat, with the outer dome reaching around 145 feet high and the inner one standing more 75 feet. Celebrated as a jewel of Muslim art and a global masterpiece, the Taj Mahal was named a UNESCO World Heritage Site in 1983.
+> 
+> 
+
+</details>
+
+| ![Taj Mahal, Agra, Uttar Pradesh, India](https://cn.bing.com/th?id=OHR.TajMahalReflection_EN-US5053333041_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Taj Mahal, Agra, Uttar Pradesh, India](https://cn.bing.com/th?id=OHR.TajMahalReflection_EN-US5053333041_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TajMahalReflection_EN-US5053333041_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TajMahalReflection_EN-US5053333041_1080x1920.jpg) |
+
 ### 20241002
 
 > Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska (© Design Pics/Danita Delimont)
@@ -112,26 +131,7 @@
 
 | ![Basilica of Santa Maria della Salute, Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Basilica of Santa Maria della Salute, Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_1080x1920.jpg) |
-
-### 20240926
-
-> Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Tucked away in the highlands of Costa Rica, Los Quetzales National Park offers a kaleidoscope of lush habitats, including one that's home to the blue-throated toucanet. These non-migratory birds use their dexterous toes to navigate branches, while their distinctive bills deftly forage for fruits, insects, and small lizards.
-> 
-> During breeding season in March to August, toucanets nest in tree cavities lined with leaves and feathers. A close-knit pair of toucanets may share parenting duties, feeding their hatchlings a generous diet of fruit. Blue-throated toucanets are gregarious by nature. Their call—a far-carrying mixture of croaks and chirps that sound like 'rrip rrrip rrip rrip' or 'curré curré curré'—can be heard throughout forests in Costa Rica, western Panama, and northwestern Colombia.
-> 
-> 
-
-</details>
-
-| ![Blue-throated toucanet, Los Quetzales National Park, Costa Rica](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blue-throated toucanet, Los Quetzales National Park, Costa Rica](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_1080x1920.jpg) |://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
