@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241004
+
+> Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)
+
+<details>
+<summary>Description</summary>
+
+> Today, we're blasting off to explore the cosmos. World Space Week celebrates the science and technology that go into exploring our universe, and how it benefits us back on Earth. Space exploration has helped scientists develop new medicines, create new power sources, and even improve farming techniques. This year's theme is Space and Climate Change; events will be held in 83 countries to champion the role of space technology in understanding and monitoring Earth's climate.
+> 
+> Space exploration has also led to amazing photographs of our solar system, like the one featured here today. Europa is one of Jupiter's 95 known moons. Its surface is mainly made up of frozen water, which has broken up and refrozen, creating the patterns seen on its surface. Although Europa is just a quarter of the size of Earth, it may contain twice the amount of water. Space Week is the perfect time to take a moment to appreciate the wonders of our solar system, and beyond!
+> 
+> 
+
+</details>
+
+| ![World Space Week begins](https://cn.bing.com/th?id=OHR.EuropaMoon_EN-US8269574935_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Space Week begins](https://cn.bing.com/th?id=OHR.EuropaMoon_EN-US8269574935_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EuropaMoon_EN-US8269574935_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EuropaMoon_EN-US8269574935_1080x1920.jpg) |
+
 ### 20241003
 
 > Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Public Lands Day](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Public Lands Day](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_1080x1920.jpg) |
-
-### 20240927
-
-> Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)
-
-<details>
-<summary>Description</summary>
-
-> The Santa Maria della Salute church in Venice is steeped in history. As a plague devastated the city in 1630, its leader, Doge Nicolò Contarini, vowed to build a majestic church dedicated to the Virgin Mary if the city was spared. In 1631 the epidemic ended, and construction began. The church, built in the Baroque style, was completed around 50 years later, a lifelong project for architect Baldassare Longhena.
-> 
-> Built at the entrance to the Grand Canal, its dome dominates the Venice skyline. Each November, Venice commemorates the church's significance during the Festa della Madonna della Salute, a cultural celebration that includes festive processions and offering of candles in gratitude for deliverance from the plague.
-> 
-> 
-
-</details>
-
-| ![Basilica of Santa Maria della Salute, Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Basilica of Santa Maria della Salute, Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_1080x1920.jpg) |://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
