@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241005
+
+> African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Today we celebrate the real influencers—Happy World Teachers' Day! Every year on October 5, we recognize the essential role of teachers in nurturing young minds, while acknowledging the challenges they face.
+> 
+> Pictured in today's image, African elephants, the largest land mammals, are celebrated for their extraordinary intelligence. Elephants are remarkable teachers, guiding their young on how to find water, safe food, and navigate complex social dynamics. Through gentle nudging, vocalizations, and demonstrations, elephant mothers pass down vital knowledge that helps their young survive in the wild. Sadly, they face significant threats from habitat loss and poaching. As we admire these majestic creatures and strive to protect them, we can learn valuable lessons about empathy, cooperation, and the importance of community—reminding us that, just like elephants, we never forget a great teacher.
+> 
+> 
+
+</details>
+
+| ![World Teachers' Day](https://cn.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_1080x1920.jpg) |
+
 ### 20241004
 
 > Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)
@@ -112,18 +131,7 @@
 
 | ![West Cornwall Covered Bridge, Connecticut](https://cn.bing.com/th?id=OHR.ConnecticutBridge_EN-US4557226937_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![West Cornwall Covered Bridge, Connecticut](https://cn.bing.com/th?id=OHR.ConnecticutBridge_EN-US4557226937_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ConnecticutBridge_EN-US4557226937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ConnecticutBridge_EN-US4557226937_1080x1920.jpg) |
-
-### 20240928
-
-> Cottonwoods seen through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> National Public Lands Day takes place every fourth Saturday of September. Today is all about preserving public lands, which can be anything from national parks to urban green spaces. On this day, entry fees to many federal lands are waived, and those who participate in conservation activities like cleanups or restoring historic structures receive free entry coupons for future visits to these locations. This day has grown substantially since it began in 1994. Its first celebration was started by three national agencies and drew 700 volunteers. By 2010, the number of volunteers had increased to 170,000, spreading across more than 2,000 sites.
-> 
-> Framed by a natural arch in Coyote Gulch, Utah, vibrant golden cottonwood trees stand out against the colorful rock formations of Escalante canyon country. Coyote Gulch is a well-known backpacking destination offering towering vertical canyon walls, narrow slot canyons, domes, arches, and natural bridges to visitors. The upper reaches of the gulch lie within the Grand Staircase–Escalante National Monument, while today's image showcases its lower sections in the Glen Canyon National Recreation Area (GCNRA). Established in 1972 and managed by the National Park Service, GCNRA is a conservation area that balances recreation and preservation. Unlike national parks that focus primarily on natural preservation, GCNRA offers a variety of facilities, including four public campgrounds, two small airports, and several houseboat rental services, making it a popular destination for visitors.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ConnecticutBridge_EN-US4557226937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ConnecticutBridge_EN-US4557226937_1080x1920.jpg) |NRA offers a variety of facilities, including four public campgrounds, two small airports, and several houseboat rental services, making it a popular destination for visitors.
 > 
 > 
 
