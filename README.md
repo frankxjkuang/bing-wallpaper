@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241008
+
+> Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Today, we celebrate a creature with three hearts and the uncanny ability to change color at will: the octopus. Octopuses are cephalopods, marine animals like squids and cuttlefish that have tentacles. Among their many species is the small and shy mototi octopus, pictured here. It was discovered in 1999 around Rapa Island in the South Pacific and is known for the 'fake eyes' or ocelli—vibrant blue and yellow rings—between its eyes and arms. Found in the Indo-Pacific region, including Indonesia, Australia, and Okinawa in Japan, mototi octopuses are masters of disguise. They usually have a dull orange-cream-brown color but when alarmed, they can quickly shift to striking maroon with white stripes along their body and arms. Also known as poison ocellate octopuses, these cephalopods are highly venomous. But you don't need to worry about running into one, because they tend to be shy and solitary, often hiding in crevices, shells, or human-made objects like bottles and cans.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![World Octopus Day](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Octopus Day](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_1080x1920.jpg) |
+
 ### 20241007
 
 > The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Wild and Scenic Rivers Act](https://cn.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wild and Scenic Rivers Act](https://cn.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_1080x1920.jpg) |
-
-### 20241001
-
-> Last light on Half Dome, Yosemite National Park, California (© Adam Burton/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> There's a reason why famed American photographer Ansel Adams fell in love with Yosemite National Park: vistas like today's image of Half Dome. The park, in central California's Sierra Nevada range, has been a popular destination for artists, mountaineers, settlers, and nature lovers since the mid-1800s. To protect it from logging and overgrazing by cattle, Congress designated Yosemite a national park on this day in 1890. It's one of the most visited parks in the US, with more than 3 million visitors a year.
-> 
-> At almost 9,000 feet tall, Half Dome is only one of Yosemite's geological wonders. Other famous climbing destinations include El Capitan and Mount Lyell, which at 13,114 feet tall is the park's highest summit. Yosemite is also famous for its waterfalls and is home to giant sequoia trees, black bears, mountain lions, and endangered Sierra Nevada bighorn sheep.
-> 
-> 
-
-</details>
-
-| ![Yosemite National Park anniversary](https://cn.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yosemite National Park anniversary](https://cn.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_1080x1920.jpg) |?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![禾木村，新疆，中国](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_1080x1920.jpg) |pid=hp&w=400&h=224&rs=1&c=4) | ![禾木村，新疆，中国](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1080x1920.jpg) | Day](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
