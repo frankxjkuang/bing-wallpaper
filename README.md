@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241012
+
+> Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Celebrate our traveling feathered friends on World Migratory Bird Day! Some migrations are truly astounding. The bar-tailed godwit embarks on a 6,835-mile nonstop flight across the Pacific from Alaska to New Zealand. The tiny ruby-throated hummingbird, weighing less than a nickel, makes the trip all the way across the Gulf of Mexico. Migratory birds navigate the globe, instinctively knowing when and where to move to exploit seasonal abundance. The Arctic tern outshines them all with its intercontinental journey from pole to pole, covering roughly 25,000 miles in its annual round trip.
+> 
+> Let's take a moment to admire the vibrant plumage of the wood duck, photographed in Quebec, Canada. Wood ducks nest in tree cavities close to water and sometimes take advantage of human-made boxes. During the breeding season, from February to April, you'll find the females laying 7–15 eggs. From the eastern and western United States and southern Canada, these ducks migrate southward in the fall to avoid harsh winter conditions. By October and November, they move towards milder climates in the southeastern US and occasionally into Mexico.
+> 
+> 
+
+</details>
+
+| ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1080x1920.jpg) |
+
 ### 20241011
 
 > Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Ancient town of Sorano, Tuscany, Italy](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ancient town of Sorano, Tuscany, Italy](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_1080x1920.jpg) |
-
-### 20241005
-
-> African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Today we celebrate the real influencers—Happy World Teachers' Day! Every year on October 5, we recognize the essential role of teachers in nurturing young minds, while acknowledging the challenges they face.
-> 
-> Pictured in today's image, African elephants, the largest land mammals, are celebrated for their extraordinary intelligence. Elephants are remarkable teachers, guiding their young on how to find water, safe food, and navigate complex social dynamics. Through gentle nudging, vocalizations, and demonstrations, elephant mothers pass down vital knowledge that helps their young survive in the wild. Sadly, they face significant threats from habitat loss and poaching. As we admire these majestic creatures and strive to protect them, we can learn valuable lessons about empathy, cooperation, and the importance of community—reminding us that, just like elephants, we never forget a great teacher.
-> 
-> 
-
-</details>
-
-| ![World Teachers' Day](https://cn.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1080x1920.jpg) |=OHR.NationalDay2024_ZH-CN7026189162_1080x1920.jpg) | Day](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_1080x1920.jpg) |0x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
