@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241013
+
+> Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today we're stepping into the heart of the historic empire of Islamic Spain. The Royal Alcázar of Seville, in the southern region of Andalusia, stands on the site of a 10th-century citadel, which was expanded over the following 200 years. When Christian forces captured the city in 1248, this historic palace was almost totally rebuilt in the Mudejar style, which takes inspiration from the intricate patterns and decorative motifs found in Islamic architecture. Within the Alcázar, there are several courtyards lined with delicately carved columns. One of these is the Patio de las Doncellas, or Courtyard of the Maidens, pictured here today.
+> 
+> In the center of this beautiful space is a pool, whose still waters provide reflections of not only the blue Andalucian sky above, but of the intricate latticework of the courtyard's arches. Look a little closer at these arches, and you'll see carved shells, Hands of Fatima—a symbol said to bring protection—plants, and Arabic script. Behind the columns, the walls are decorated with colorful ceramic tiles decorated with geometric patterns. These tiles, known as azulejos, are a hallmark of Andalusian decoration. Outside, there is a large garden full of fountains and tree-lined paths—a perfect spot to cool off from the hot Spanish sun.
+> 
+> 
+
+</details>
+
+| ![Royal Alcázar of Seville, Spain](https://cn.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Royal Alcázar of Seville, Spain](https://cn.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_1080x1920.jpg) |
+
 ### 20241012
 
 > Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Elbphilharmonie concert hall in Hamburg, Germany](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Elbphilharmonie concert hall in Hamburg, Germany](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_1080x1920.jpg) |
-
-### 20241006
-
-> Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)
-
-<details>
-<summary>Description</summary>
-
-> Sorano is a serene medieval village perched atop a cliff in the Italian province of Grosseto, southern Tuscany. Walking through the age-old cobblestone streets, one can explore the Fortezza Orsini, a fortress-turned-museum that dates back to the 11th century. Visitors engage with centuries-old tales of power and defense with each step they take inside the fort. Near Poggio San Rocco and Poggio Croce hills lies a necropolis—a large, ancient burial site—with well-preserved Etruscan tombs that hint at the area's long history. The Etruscan civilization inhabited this area and flourished in what is now Tuscany and Umbria between the 8th and 3rd centuries BCE.
-> 
-> The hidden valleys of Sorano are home to the Vie Cave, an intricate network of pathways possibly used as a defense system against invaders and wild animals. Here, cooks craft local specialties, maintaining culinary traditions passed down through generations. Stopping at an enoteca—a wine shop—for a glass of the esteemed Morellino di Scansano wine is a must for any visitor to Sorano.
-> 
-> 
-
-</details>
-
-| ![Ancient town of Sorano, Tuscany, Italy](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ancient town of Sorano, Tuscany, Italy](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_1080x1920.jpg) |0x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
