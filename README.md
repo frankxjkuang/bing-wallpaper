@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241014
+
+> Ancestral Pueblo granaries at Nankoweap, Grand Canyon National Park, Arizona (© Andrew Peacock/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> The second Monday of October is used by many to celebrate Indigenous Peoples' Day, as an alternative to Columbus Day, held on the same date. It highlights the customs and heritage of the Indigenous Peoples who lived in North America before the arrival of European settlers, and the devastating impact colonization had upon them.
+> 
+> Today's image takes us to one of the places that Indigenous Peoples' legacy can still be seen. In the rocks of the Grand Canyon, the Nankoweap Granaries were carved by the Ancestral Pueblo culture around 1100 CE. Used to keep the crops that were grown safe from the elements, these granaries could be fully sealed when needed. The Ancestral Pueblo people lived in the Four Corners region, building houses and other structures out of stone and adobe, or carving them into canyon walls.
+> 
+> 
+
+</details>
+
+| ![Celebrating Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_1080x1920.jpg) |
+
 ### 20241013
 
 > Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Octopus Day](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Octopus Day](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_1080x1920.jpg) |
-
-### 20241007
-
-> The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Build your excitement—it's World Architecture Day! Today's image features the Elbphilharmonie on the Grasbrook peninsula of the Elbe River in Hamburg, Germany. Designed by the Swiss architecture firm Herzog & de Meuron, this concert hall is a modern architectural marvel perched atop an old brick warehouse from 1963. A centerpiece of the new Hafencity development, it's Hamburg's tallest inhabited building—there are 45 luxury apartments in the upper floors—reaching a height of 354 feet.
-> 
-> The Elbphilharmonie features three concert venues: the Great Concert Hall, which seats 2,100; the Recital Hall, accommodating 550 for recitals, chamber music, and jazz; and the Kaistudio, a 170-seat space for educational activities. This fusion of history and innovation at the Elbphilharmonie offers a glimpse into thoughtful and creative architecture.
-> 
-> 
-
-</details>
-
-| ![Elbphilharmonie concert hall in Hamburg, Germany](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Elbphilharmonie concert hall in Hamburg, Germany](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_1080x1920.jpg) |58450086_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
