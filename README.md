@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241015
+
+> Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> They say the grass is always greener on the other side, and no one takes that more literally than the wildebeests of the Serengeti in Tanzania. Every July, roughly 2 million of these determined grazers, along with zebras and other herbivores, set off on a journey north to the Masai Mara in Kenya in search of lush pastures and fresh water. The great migration, considered one of the seven wonders of the natural world, is a safari spectacle where survival is the prize.
+> 
+> One of the most dramatic moments of the migration is the crossing of the Mara River at the border between Tanzania and Kenya. Thousands of wildebeests gather at the riverbank, aware that danger lurks beneath the surface—the crocodiles—not to mention the lions and leopards that patrol the banks. When the first wildebeest takes the plunge, it's a wild rush as the rest of the herd follows, creating a chaotic scene. Some make it across, while others become part of the food chain. As October rolls around and the rains return to the Serengeti, the herds begin their journey back south, completing the cycle once again.
+> 
+> 
+
+</details>
+
+| ![Great wildebeest migration at Mara River, Kenya](https://cn.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great wildebeest migration at Mara River, Kenya](https://cn.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_1080x1920.jpg) |
+
 ### 20241014
 
 > Ancestral Pueblo granaries at Nankoweap, Grand Canyon National Park, Arizona (© Andrew Peacock/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Aspens in the White River National Forest, Colorado](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aspens in the White River National Forest, Colorado](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |
-
-### 20241008
-
-> Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Today, we celebrate a creature with three hearts and the uncanny ability to change color at will: the octopus. Octopuses are cephalopods, marine animals like squids and cuttlefish that have tentacles. Among their many species is the small and shy mototi octopus, pictured here. It was discovered in 1999 around Rapa Island in the South Pacific and is known for the 'fake eyes' or ocelli—vibrant blue and yellow rings—between its eyes and arms. Found in the Indo-Pacific region, including Indonesia, Australia, and Okinawa in Japan, mototi octopuses are masters of disguise. They usually have a dull orange-cream-brown color but when alarmed, they can quickly shift to striking maroon with white stripes along their body and arms. Also known as poison ocellate octopuses, these cephalopods are highly venomous. But you don't need to worry about running into one, because they tend to be shy and solitary, often hiding in crevices, shells, or human-made objects like bottles and cans.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![World Octopus Day](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Octopus Day](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_1080x1920.jpg) |58450086_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1080x1920.jpg) |://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
