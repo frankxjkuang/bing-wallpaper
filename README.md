@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241016
+
+> Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> If you're a fan of dinosaurs, trilobites, or fossilized shells, then National Fossil Day is the perfect excuse to get your hands dirty. Celebrated on the second Wednesday of October, this day is dedicated to promoting the scientific and educational value of fossils. From towering T. rexes to tiny ammonites, these ancient remains help scientists piece together the puzzle of our planet's history.
+> 
+> Let's visit the Jurassic Coast, a UNESCO World Heritage Site in Dorset, England, pictured here today. It's like a giant natural history museum, with rocks and cliffs that reveal 185 million years of Earth's history. But what really steals the show are the fossils, especially those of belemnites and ammonites—extinct marine creatures—that are pictured here. Mary Anning, a pioneering fossil hunter who combed these shores two centuries ago, paved the way for our current understanding of fossils. Now, it's your turn. Embrace National Fossil Day by embarking on your own journey through time.
+> 
+> 
+
+</details>
+
+| ![National Fossil Day](https://cn.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Fossil Day](https://cn.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_1080x1920.jpg) |
+
 ### 20241015
 
 > Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)
@@ -112,25 +131,7 @@
 
 | ![Kochia, Hitachi, Ibaraki prefecture, Japan](https://cn.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kochia, Hitachi, Ibaraki prefecture, Japan](https://cn.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_1080x1920.jpg) |
-
-### 20241009
-
-> Aspens in the White River National Forest, Colorado (© Jason Hatfield/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Slender white trunks reaching skyward and leaves fluttering even in the gentlest breeze—aspen trees are a symbol of the American wilderness. Found across the western states, especially in Utah and Colorado, these trees are the most widespread native species in North America. Their fall foliage is breathtaking, with their leaves turning a vibrant yellow that lights up the landscape, as seen in today's photo, which was taken in the White River National Forest, Colorado.
-> 
-> Aspens are not only beautiful but also biologically fascinating. They grow in large colonies that originate from a single root system, making them some of the largest living organisms on Earth. Each tree in the colony is genetically identical. When an aspen tree is cut down or damaged, the root system remains alive, allowing new shoots to emerge and grow, which helps create a tenacious network that can survive harsh conditions, including wildfires. This species quickly colonizes areas that have been recently burned down and can regenerate even after frequent fires. Aspen trees are more than just a treat for the eyes; they are an example of nature's resilience.
-> 
-> 
-
-</details>
-
-| ![Aspens in the White River National Forest, Colorado](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aspens in the White River National Forest, Colorado](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_1080x1920.jpg) |-------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
