@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241017
+
+> Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)
+
+<details>
+<summary>Description</summary>
+
+> Mars, the fourth planet from the sun, is often referred to as the 'Red Planet' due to its rusty hue from the iron oxide-rich soil dust. The planet is dotted with frosty dunes, largely located in the high latitudes of the northern plains. Mars' atmosphere is composed of nearly 96% carbon dioxide, which is why carbon ice forms on the surface. These dunes showcase the dynamic interaction between Mars' thin atmosphere, its surface, and seasonal temperature changes.
+> 
+> As the Martian seasons change, the frost layer transforms directly from solid to gas as temperatures rise. The dunes then gradually lose their frosty appearance, and the cycle repeats with each cold season. Data collected from spacecraft and orbiters, like NASA's Phoenix spacecraft and the Mars Reconnaissance Orbiter, has helped us to better understand these intriguing frost-covered formations.
+> 
+> 
+
+</details>
+
+| ![Frost-covered dunes on Mars](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Frost-covered dunes on Mars](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_1080x1920.jpg) |
+
 ### 20241016
 
 > Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)
@@ -112,27 +131,7 @@
 
 | ![Celtic Colours International Festival, Canada](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celtic Colours International Festival, Canada](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_1080x1920.jpg) |
-
-### 20241010
-
-> Kochia, Ibaraki prefecture, Japan (© DigiPub/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This fiery tumbleweed is kochia, which transforms landscapes when it takes on hues of red, orange, and pink in the fall. In the spring and summer, this annual herb resembles a fluffy green ball. Native to parts of Europe and Asia, kochia, also known as 'summer cypress,' is now widespread throughout the world. But it has a special place in Japan's Hitachi Seaside Park, seen in today's image, where around 30,000–40,000 kochia bushes are planted each year. These ornamental plants create a surreal landscape for visitors to wander through and also hold significance in Japanese culture. Historically, they have been dried to create brooms. However, not all parts of the kochia are destined to sweep the Earth—some are used for food. The plant's nuts, 'tonburi,' often called 'field caviar,' are a prized garnish.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Kochia, Hitachi, Ibaraki prefecture, Japan](https://cn.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kochia, Hitachi, Ibaraki prefecture, Japan](https://cn.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_1080x1920.jpg) |-------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_1080x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
