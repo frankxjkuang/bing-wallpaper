@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241018
+
+> Autumn in Central Park, Manhattan, New York (© mapman/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Every autumn, many of the 18,000 trees in Central Park, New York, are painted in shades of yellow, red, and orange. It's one of Central Park's most photographed seasons, and fall in the park has provided iconic backdrops for movies like 'When Harry Met Sally…' and 'Hair.' Trees sense the coming of winter not only by temperature, but by the angle at which sunlight hits their leaves. Because of New York's buildings, the unique interaction of light, shadows, and temperatures often results in fall foliage occurring later in the park than the rest of the city.
+> 
+> Today's image features fall in the Mall, a pedestrian walkway designed and built in the mid-1800s. Flanked by benches and American elm trees, the Mall's canopy was meant to evoke an architectural space like a cathedral. The quarter-mile promenade is the park's only straight path, and it was intended to be a place for New Yorkers of all classes and backgrounds to gather, stroll, sit, and perhaps ponder the passing seasons.
+> 
+> 
+
+</details>
+
+| ![Autumn in Central Park, New York](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn in Central Park, New York](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_1080x1920.jpg) |
+
 ### 20241017
 
 > Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)
@@ -112,26 +131,7 @@
 
 | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1080x1920.jpg) |
-
-### 20241011
-
-> Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> The Celtic Colours International Festival begins today in Cape Breton, Nova Scotia, Canada. This festival celebrates the area's inhabitants, including 19th-century settlers who came from Scotland and Ireland. Because of Cape Breton Island's isolation and the lack of outside influences, the culture and traditions of these settlers remained particularly strong. Held when the island's fall colors are most vibrant, the festival has blossomed into a nine-day extravaganza that coincides with the warm red, orange, and yellow autumn foliage.
-> 
-> The 2024 edition continues the tradition of showcasing the best in Celtic music, dance, and art, featuring internationally acclaimed performers, local legends, and newcomers. The festival also offers workshops, Celtic knot quilting, art exhibitions, and a variety of gastronomic delights. Festivalgoers can also enjoy Cape Breton's scenic beauty, including its coastal vistas and the breathtaking fall sunrise in the highlands, as seen in today's image.
-> 
-> 
-
-</details>
-
-| ![Celtic Colours International Festival, Canada](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celtic Colours International Festival, Canada](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_1080x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1080x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
