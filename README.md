@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241021
+
+> Cypress trees in George L. Smith State Park, Georgia (© Chris Moore/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> The sturdy, swamp-loving, cypress trees pictured in the mist on our homepage can grow over 100 feet tall. These towering specimens are found in George L. Smith State Park, which spans 1,634 acres in Emanuel County, Georgia. The park's centerpiece is a 412-acre mill pond, a favorite spot for fishing and canoeing. Out of its waters grow pond cypress and bald cypress trees, two varieties that are native to the southeastern US. Winding through the park are over 7 miles of nature trails, leading visitors through sandy landscapes past a bird sanctuary and tortoise habitat. The hardwood trees here are a haven for woodpeckers and other birds, while the soft soil provides ideal burrowing ground for tortoises. No matter the season, this park promises a peaceful retreat for all.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Cypress trees in George L. Smith State Park, Georgia](https://cn.bing.com/th?id=OHR.AutumnCypress_EN-US2771131028_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cypress trees in George L. Smith State Park, Georgia](https://cn.bing.com/th?id=OHR.AutumnCypress_EN-US2771131028_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnCypress_EN-US2771131028_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnCypress_EN-US2771131028_1080x1920.jpg) |
+
 ### 20241020
 
 > Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Great wildebeest migration at Mara River, Kenya](https://cn.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great wildebeest migration at Mara River, Kenya](https://cn.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_1080x1920.jpg) |
-
-### 20241014
-
-> Ancestral Pueblo granaries at Nankoweap, Grand Canyon National Park, Arizona (© Andrew Peacock/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> The second Monday of October is used by many to celebrate Indigenous Peoples' Day, as an alternative to Columbus Day, held on the same date. It highlights the customs and heritage of the Indigenous Peoples who lived in North America before the arrival of European settlers, and the devastating impact colonization had upon them.
-> 
-> Today's image takes us to one of the places that Indigenous Peoples' legacy can still be seen. In the rocks of the Grand Canyon, the Nankoweap Granaries were carved by the Ancestral Pueblo culture around 1100 CE. Used to keep the crops that were grown safe from the elements, these granaries could be fully sealed when needed. The Ancestral Pueblo people lived in the Four Corners region, building houses and other structures out of stone and adobe, or carving them into canyon walls.
-> 
-> 
-
-</details>
-
-| ![Celebrating Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_1080x1920.jpg) |ap_EN-US9631367700_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1080x1920.jpg) |20_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
