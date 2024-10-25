@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241023
+
+> Madame Sherri Forest and the ruins of an old castle, New Hampshire (© yggdrasill/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Madame Sherri Forest in Chesterfield, New Hampshire, is a captivating destination steeped in history and natural beauty. It was once the site of an extravagant house built in the 1930s by Madame Antoinette Sherri, a flamboyant 1920s costume designer known for her lavish parties. Madame Sherri's dramatic arrivals in town, often in a chauffeur-driven Packard, draped in furs, became the talk of the locals. As her fortune declined, her 'castle' fell into disrepair and was vandalized. In 1959, she returned to find her property in ruins and never came back. A fire destroyed the house in 1963, leaving behind only the stone foundation, an iconic staircase, and a large fireplace leading to a lone chimney.
+> 
+> Today, the forest where her house once stood spans over 500 acres and offers scenic hiking trails through woodlands, hemlock groves, and around peaceful brooks, a picturesque setting for outdoor enthusiasts. Managed by the Society for the Protection of New Hampshire Forests, this area was named in honor of Madame Sherri, and it also includes trails that lead to the ruins of her former estate. So, while the house was originally separate from the forest, the two are now intricately entwined.
+> 
+> 
+
+</details>
+
+| ![Madame Sherri Forest, New Hampshire](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Madame Sherri Forest, New Hampshire](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_1080x1920.jpg) |
+
 ### 20241022
 
 > Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Frost-covered dunes on Mars](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Frost-covered dunes on Mars](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_1080x1920.jpg) |
-
-### 20241016
-
-> Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> If you're a fan of dinosaurs, trilobites, or fossilized shells, then National Fossil Day is the perfect excuse to get your hands dirty. Celebrated on the second Wednesday of October, this day is dedicated to promoting the scientific and educational value of fossils. From towering T. rexes to tiny ammonites, these ancient remains help scientists piece together the puzzle of our planet's history.
-> 
-> Let's visit the Jurassic Coast, a UNESCO World Heritage Site in Dorset, England, pictured here today. It's like a giant natural history museum, with rocks and cliffs that reveal 185 million years of Earth's history. But what really steals the show are the fossils, especially those of belemnites and ammonites—extinct marine creatures—that are pictured here. Mary Anning, a pioneering fossil hunter who combed these shores two centuries ago, paved the way for our current understanding of fossils. Now, it's your turn. Embrace National Fossil Day by embarking on your own journey through time.
-> 
-> 
-
-</details>
-
-| ![National Fossil Day](https://cn.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Fossil Day](https://cn.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_1080x1920.jpg) |04012409_1080x1920.jpg) |ap_EN-US9631367700_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1080x1920.jpg) |20_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_1080x1920.jpg) |ZH-CN7503553722_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1080x1920.jpg) |20_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1080x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
