@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241024
+
+> Bodie State Historic Park, Mono County, California (© Julien McRoberts/Tetra Images, LLC/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> In the ghostly silence of Bodie, California, it feels like time stands still. This mining camp became a booming gold rush town in the 1870s, after a cave-in revealed a rich vein of gold. Bodie was named after W.S. Bodey, a prospector who died in a blizzard before seeing the town's rise. When large deposits were found there, it grew to nearly 10,000 residents, with saloons, dance halls, and breweries lining its streets. But as the gold ran dry, so did the town's fortunes. The mines closed, the population dwindled, and by 1915, the place was abandoned. Bodie's streets are now empty, its wooden buildings frozen in decay.
+> 
+> Today, Bodie is one of America's best-preserved ghost towns. Wandering through the streets, you can peer into dusty homes and storefronts, and even find small artifacts like shards of china and square nails from the glory days. Legend has it that Bodie's ghosts fiercely guard the town, and those who take souvenirs risk being cursed with bad luck. Taking items home is also strictly against the park's rules. So, be sure to leave with nothing but memories—lest the town's spirits follow you home.
+> 
+> 
+
+</details>
+
+| ![Bodie State Historic Park, California](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bodie State Historic Park, California](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_1080x1920.jpg) |
+
 ### 20241023
 
 > Madame Sherri Forest and the ruins of an old castle, New Hampshire (© yggdrasill/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![Autumn in Central Park, New York](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn in Central Park, New York](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_1080x1920.jpg) |
-
-### 20241017
-
-> Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)
-
-<details>
-<summary>Description</summary>
-
-> Mars, the fourth planet from the sun, is often referred to as the 'Red Planet' due to its rusty hue from the iron oxide-rich soil dust. The planet is dotted with frosty dunes, largely located in the high latitudes of the northern plains. Mars' atmosphere is composed of nearly 96% carbon dioxide, which is why carbon ice forms on the surface. These dunes showcase the dynamic interaction between Mars' thin atmosphere, its surface, and seasonal temperature changes.
-> 
-> As the Martian seasons change, the frost layer transforms directly from solid to gas as temperatures rise. The dunes then gradually lose their frosty appearance, and the cycle repeats with each cold season. Data collected from spacecraft and orbiters, like NASA's Phoenix spacecraft and the Mars Reconnaissance Orbiter, has helped us to better understand these intriguing frost-covered formations.
-> 
-> 
-
-</details>
-
-| ![Frost-covered dunes on Mars](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Frost-covered dunes on Mars](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_1080x1920.jpg) |ZH-CN7503553722_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1080x1920.jpg) |20_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1080x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_1080x1920.jpg) |ad landscape 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1080x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
