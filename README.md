@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241025
+
+> The Mont Blanc massif, near Chamonix, France (© Simon Schöpf/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Picture yourself at the highest peak in the Alps, where the air is crisp and the views are breathtaking. The towering presence of Mont Blanc has left an indelible mark on literature, most notably on Mary Shelley's 'Frankenstein.' The last Friday of October is Frankenstein Friday, honoring Shelley's literary genius and the fascinating creature born from her imagination. 'Frankenstein' was conceived during a ghost story challenge. In 1816, an 18-year-old Shelley, along with fellow writers Percy Bysshe Shelley, John Polidori, and Lord Byron, spent a stormy summer in Switzerland. Forced inside by incessant rain, she penned the tale of Victor Frankenstein and the Creature. A pivotal scene in the novel takes place on a glacier near Mont Blanc, where Victor is confronted by his monstrous creation. This setting, with its surreal beauty and treacherous terrain, perfectly captures a sense of awe and terror.
+> 
+> 'Frankenstein,' also known as 'Frankenstein; or, The Modern Prometheus,' was first published anonymously in 1818. Shelley's use of the epistolary form—a novel told through letters—and her blend of Gothic and early science fiction made 'Frankenstein' a timeless classic.
+> 
+> 
+
+</details>
+
+| ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_1080x1920.jpg) |
+
 ### 20241024
 
 > Bodie State Historic Park, Mono County, California (© Julien McRoberts/Tetra Images, LLC/Alamy)
@@ -112,26 +131,7 @@
 
 | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_1080x1920.jpg) |
-
-### 20241018
-
-> Autumn in Central Park, Manhattan, New York (© mapman/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Every autumn, many of the 18,000 trees in Central Park, New York, are painted in shades of yellow, red, and orange. It's one of Central Park's most photographed seasons, and fall in the park has provided iconic backdrops for movies like 'When Harry Met Sally…' and 'Hair.' Trees sense the coming of winter not only by temperature, but by the angle at which sunlight hits their leaves. Because of New York's buildings, the unique interaction of light, shadows, and temperatures often results in fall foliage occurring later in the park than the rest of the city.
-> 
-> Today's image features fall in the Mall, a pedestrian walkway designed and built in the mid-1800s. Flanked by benches and American elm trees, the Mall's canopy was meant to evoke an architectural space like a cathedral. The quarter-mile promenade is the park's only straight path, and it was intended to be a place for New Yorkers of all classes and backgrounds to gather, stroll, sit, and perhaps ponder the passing seasons.
-> 
-> 
-
-</details>
-
-| ![Autumn in Central Park, New York](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn in Central Park, New York](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_1080x1920.jpg) |ad landscape 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1080x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_1080x1920.jpg) |x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
