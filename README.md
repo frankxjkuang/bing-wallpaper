@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241026
+
+> Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> On Germany's Baltic coast lies the Gespensterwald, which means 'Ghost Forest,' seen in today's image. This spine-tingling forest covers about 445 acres, with its gnarled beech, hornbeam, ash, and oak trees twisting toward the sky. The salty sea air, wind, and the moist climate helped mold the trees' distorted shapes, which look particularly haunting at night. Visitors to this forest in the Mecklenburg-West Pomerania region, can brave the trails alone or sign up for a storytelling session where actors dressed as ghosts bring local legends and folktales to life. Photographers and nature enthusiasts alike find inspiration in the eerie silhouettes etched against the sky, immortalized in countless pictures.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Gespensterwald, Nienhagen, Germany](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gespensterwald, Nienhagen, Germany](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_1080x1920.jpg) |
+
 ### 20241025
 
 > The Mont Blanc massif, near Chamonix, France (© Simon Schöpf/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Sloth Day](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Sloth Day](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_1080x1920.jpg) |
-
-### 20241019
-
-> Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, dig deep and unearth your inner Indiana Jones or Lara Croft on International Archaeology Day. The event celebrates archaeology's benefits for society, and includes exhibits and hands-on excavations, some of which run throughout the month. Many US national and state parks, historic landmarks, and local museums also hold events.
-> 
-> Egypt is steeped in ancient history and home to many internationally renowned archaeological sites, including the Temple of Hathor, the ceiling of which can be seen in today's image. Part of the Dendera Temple Complex in Qena, Hathor is one of the best-preserved ancient Egyptian temples. While the current temple dates to Ptolemy XII and Cleopatra VII (around 50 BCE), evidence suggests that previous temples dedicated to Hathor, an Egyptian goddess of love and fertility, go back thousands of years earlier.
-> 
-> 
-
-</details>
-
-| ![International Archaeology Day](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_1080x1920.jpg) |x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_1080x1920.jpg) |emple_EN-US2605709637_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_1080x1920.jpg) |x1920.jpg) |x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_1080x1920.jpg) |though olive trees do not grow very tall, usually no more than 30 feet, they live a very long time. One of the oldest known trees in the world, in Portugal, is believed to be 3,350 years old. Many live for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
