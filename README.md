@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241030
+
+> View of Edinburgh Castle from a churchyard in Scotland (© Chris Dorney/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> If you're looking for a Halloween destination that combines history with a hefty dose of hauntings, Edinburgh Castle is the place to be. Positioned high on an extinct volcano, the castle's royal connections go back nearly 1,000 years, and its walls have witnessed wars, royal births, executions, and other dramas. But what really sets it apart, is its reputation as one of Scotland's most haunted spots.
+> 
+> Legend has it that the Grey Lady, Janet Douglas, roams the castle's corridors. Also known as Lady Glamis, a noblewoman accused of witchcraft by King James V, she is believed to still lament her fiery execution in 1537. Others say the Grey Lady might be the ghost of Marie de Guise—mother of Mary, Queen of Scots—mourning her lost power amid the turmoil of religious reform. Then there's the Dung Man, a prisoner who attempted to escape in a wheelbarrow full of excrement. He died from the fall when the cart was emptied from the castle wall. The lost piper, who vanished into underground tunnels, continues to play a haunting melody beneath the city. And in 2001, the shadowy figure of a man in a leather apron emerged during a paranormal research project, leaving volunteers with a chilling memory. Spooked yet?
+> 
+> 
+
+</details>
+
+| ![Edinburgh Castle, Scotland](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_EN-US3906244993_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Edinburgh Castle, Scotland](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_EN-US3906244993_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_EN-US3906244993_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_EN-US3906244993_1080x1920.jpg) |
+
 ### 20241029
 
 > Great horned owl (© Mark Newman/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Bodie State Historic Park, California](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bodie State Historic Park, California](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_1080x1920.jpg) |
-
-### 20241023
-
-> Madame Sherri Forest and the ruins of an old castle, New Hampshire (© yggdrasill/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Madame Sherri Forest in Chesterfield, New Hampshire, is a captivating destination steeped in history and natural beauty. It was once the site of an extravagant house built in the 1930s by Madame Antoinette Sherri, a flamboyant 1920s costume designer known for her lavish parties. Madame Sherri's dramatic arrivals in town, often in a chauffeur-driven Packard, draped in furs, became the talk of the locals. As her fortune declined, her 'castle' fell into disrepair and was vandalized. In 1959, she returned to find her property in ruins and never came back. A fire destroyed the house in 1963, leaving behind only the stone foundation, an iconic staircase, and a large fireplace leading to a lone chimney.
-> 
-> Today, the forest where her house once stood spans over 500 acres and offers scenic hiking trails through woodlands, hemlock groves, and around peaceful brooks, a picturesque setting for outdoor enthusiasts. Managed by the Society for the Protection of New Hampshire Forests, this area was named in honor of Madame Sherri, and it also includes trails that lead to the ruins of her former estate. So, while the house was originally separate from the forest, the two are now intricately entwined.
-> 
-> 
-
-</details>
-
-| ![Madame Sherri Forest, New Hampshire](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Madame Sherri Forest, New Hampshire](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_1080x1920.jpg) |�说谎者的手。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_1080x1920.jpg) |456106_1080x1920.jpg) |�说谎者的手。
 > 
 > 
 > 
