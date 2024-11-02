@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241031
+
+> Chimera of Notre-Dame de Paris, France (© scaliger/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Do you sometimes get spooked? If you do, that means you have a healthy sense of fun and fear. And what better day of the year than Halloween to indulge in all things scary? The holiday we know today traces its roots to ancient traditions, including the Celts' Samhain, the Romans' Feralia, and medieval Christian observances. Today, costumed people mingle in the streets, not unlike their ancestors who donned animal skins to divine the future or celebrate saints and martyrs.
+> 
+> Amid modern festivities like trick-or-treating, pumpkin carving, and parties, you might spot a few spooky decorations that look like the one pictured here—a chimera of Notre-Dame Cathedral in Paris. Perched high above the city, this mythical creature is often mistaken for a gargoyle, but unlike its waterspout cousins, the chimera is purely decorative. So today, let's remember the shadows and stories that dance around the edges of our brightly lit celebrations. Happy Halloween!
+> 
+> 
+
+</details>
+
+| ![Happy Halloween!](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Halloween!](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg) |
+
 ### 20241030
 
 > View of Edinburgh Castle from a churchyard in Scotland (© Chris Dorney/Alamy)
@@ -112,24 +131,7 @@
 
 | ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_1080x1920.jpg) |
-
-### 20241024
-
-> Bodie State Historic Park, Mono County, California (© Julien McRoberts/Tetra Images, LLC/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> In the ghostly silence of Bodie, California, it feels like time stands still. This mining camp became a booming gold rush town in the 1870s, after a cave-in revealed a rich vein of gold. Bodie was named after W.S. Bodey, a prospector who died in a blizzard before seeing the town's rise. When large deposits were found there, it grew to nearly 10,000 residents, with saloons, dance halls, and breweries lining its streets. But as the gold ran dry, so did the town's fortunes. The mines closed, the population dwindled, and by 1915, the place was abandoned. Bodie's streets are now empty, its wooden buildings frozen in decay.
-> 
-> Today, Bodie is one of America's best-preserved ghost towns. Wandering through the streets, you can peer into dusty homes and storefronts, and even find small artifacts like shards of china and square nails from the glory days. Legend has it that Bodie's ghosts fiercely guard the town, and those who take souvenirs risk being cursed with bad luck. Taking items home is also strictly against the park's rules. So, be sure to leave with nothing but memories—lest the town's spirits follow you home.
-> 
-> 
-
-</details>
-
-| ![Bodie State Historic Park, California](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bodie State Historic Park, California](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_1080x1920.jpg) |5&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_1080x1920.jpg) |456106_1080x1920.jpg) |�说谎者的手。
 > 
