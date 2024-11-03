@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241101
+
+> Pueblo ruins, Hovenweep National Monument, Utah (© Alan Majchrowicz/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today marks the start of Native American Heritage Month. Throughout November, we honor the history, traditions, stories, and languages of Native Peoples. The Indigenous Peoples of North America have played a significant role in shaping our country, including the food we eat and the medicines that heal us. In addition to being a celebration, this month is also a time to reflect on the issues that Native Peoples face, including civil and voting rights, land access, and education.
+> 
+> An important part of Native American heritage is the legacy that Indigenous Peoples have left on the landscape. One such place is Hovenweep National Monument on the Utah-Colorado border. Ancestral Pueblo people built the structures seen in today's image between 1200 and 1300 CE. All across Hovenweep are dwellings and circular and square towers. Although the purpose of these towers remains uncertain, they could have been used for defense, observing the stars, storing grain, or a combination of all of these. Here, the enduring legacy of America's Indigenous Peoples can still be felt.
+> 
+> 
+
+</details>
+
+| ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1080x1920.jpg) |
+
 ### 20241031
 
 > Chimera of Notre-Dame de Paris, France (© scaliger/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Gespensterwald, Nienhagen, Germany](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gespensterwald, Nienhagen, Germany](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_1080x1920.jpg) |
-
-### 20241025
-
-> The Mont Blanc massif, near Chamonix, France (© Simon Schöpf/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Picture yourself at the highest peak in the Alps, where the air is crisp and the views are breathtaking. The towering presence of Mont Blanc has left an indelible mark on literature, most notably on Mary Shelley's 'Frankenstein.' The last Friday of October is Frankenstein Friday, honoring Shelley's literary genius and the fascinating creature born from her imagination. 'Frankenstein' was conceived during a ghost story challenge. In 1816, an 18-year-old Shelley, along with fellow writers Percy Bysshe Shelley, John Polidori, and Lord Byron, spent a stormy summer in Switzerland. Forced inside by incessant rain, she penned the tale of Victor Frankenstein and the Creature. A pivotal scene in the novel takes place on a glacier near Mont Blanc, where Victor is confronted by his monstrous creation. This setting, with its surreal beauty and treacherous terrain, perfectly captures a sense of awe and terror.
-> 
-> 'Frankenstein,' also known as 'Frankenstein; or, The Modern Prometheus,' was first published anonymously in 1818. Shelley's use of the epistolary form—a novel told through letters—and her blend of Gothic and early science fiction made 'Frankenstein' a timeless classic.
-> 
-> 
-
-</details>
-
-| ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Frankenstein Friday](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_1080x1920.jpg) |5&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_1080x1920.jpg) |5&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_1080x1920.jpg) |456106_1080x1920.jpg) |�说谎者的手。
 > 
