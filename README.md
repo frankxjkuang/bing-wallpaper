@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241102
+
+> American bison in Yellowstone National Park, Wyoming (© Ian Shive/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Once upon a time, in the boundless grasslands of North America, there roamed creatures of great strength and majesty—the American bison. These animals were a key part of life for many Native American tribes, providing food, clothing, and tools. Their population dwindled perilously low in the late 1800s, falling from as many as 60 million to fewer than 1,000 due to excessive hunting and disease. Enter a group of conservationists, ranchers, and Native Americans who stepped in to save the species. Now, over 500,000 bison roam again, many in protected areas like Yellowstone National Park, featured in today's image. Today, on National Bison Day, observed every first Saturday in November, we honor these noble creatures—a testament to the American spirit and the monumental conservation efforts to save them.
+> 
+> It's no wonder the bison was officially named the national mammal in 2016. From the buffalo nickel to state flags, they are a deeply embedded symbol in American culture. Bison are North America's largest mammals, and they have been introduced as far away as Russia. While the bison has made a heroic recovery, the story isn't over. These animals still face challenges, including habitat loss and hunting.
+> 
+> 
+
+</details>
+
+| ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_1080x1920.jpg) |
+
 ### 20241101
 
 > Pueblo ruins, Hovenweep National Monument, Utah (© Alan Majchrowicz/Getty Images)
@@ -112,36 +131,7 @@
 
 | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_1080x1920.jpg) |
-
-### 20241026
-
-> Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> On Germany's Baltic coast lies the Gespensterwald, which means 'Ghost Forest,' seen in today's image. This spine-tingling forest covers about 445 acres, with its gnarled beech, hornbeam, ash, and oak trees twisting toward the sky. The salty sea air, wind, and the moist climate helped mold the trees' distorted shapes, which look particularly haunting at night. Visitors to this forest in the Mecklenburg-West Pomerania region, can brave the trails alone or sign up for a storytelling session where actors dressed as ghosts bring local legends and folktales to life. Photographers and nature enthusiasts alike find inspiration in the eerie silhouettes etched against the sky, immortalized in countless pictures.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Gespensterwald, Nienhagen, Germany](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gespensterwald, Nienhagen, Germany](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_1080x1920.jpg) |5&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_1080x1920.jpg) |456106_1080x1920.jpg) |�说谎者的手。
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![祖卡里宫，罗马](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![祖卡里宫，罗马](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_1080x1920.jpg) |.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![祖卡里宫，罗马](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1080x1920.jpg) |ve for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
