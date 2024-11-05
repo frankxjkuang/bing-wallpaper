@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241103
+
+> Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Today is the International Day for Biosphere Reserves. Biosphere reserves may sound like a mouthful, but they're essentially nature's sweet spots— biodiverse places that are home to a huge variety of life. These reserves, recognized by UNESCO, keep ecosystems healthy, protect endangered species, and help regulate climate through forests, wetlands, and other crucial habitats. There are 759 biosphere reserves across 136 countries. From the lush greenery of the Sundarbans in India to the vast expanses of the Great Sandy Biosphere Reserve in Australia, each reserve is unique.
+> 
+> Let's visit another—the Ría Lagartos Biosphere Reserve in Yucatán, Mexico, a UNESCO-protected sanctuary since 2004. Its forests and savannas cradle over 550 vertebrate species, including 142 species found only here. There are over 400 bird species in this reserve, including a large population of flamingos whose nests are seen in today's image. Biosphere reserves are all about balance, and Ría Lagartos is a prime example. Fishing, ecotourism, and even salt production are done in ways that respect the environment.
+> 
+> 
+
+</details>
+
+| ![International Day for Biosphere Reserves](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biosphere Reserves](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_1080x1920.jpg) |
+
 ### 20241102
 
 > American bison in Yellowstone National Park, Wyoming (© Ian Shive/TANDEM Stills + Motion)
@@ -112,28 +131,7 @@
 
 | ![Pumpkin field, Victoria, British Columbia, Canada](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pumpkin field, Victoria, British Columbia, Canada](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_1080x1920.jpg) |
-
-### 20241027
-
-> Polar bear mom and cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)
-
-<details>
-<summary>Description</summary>
-
-> Polar Bear Week champions the Arctic's majestic predator, one of nature's greatest hunters. Established by Polar Bears International, it highlights the challenges they face due to climate change, particularly the rapid loss of Arctic Sea ice. At this time of year, polar bears gather in Churchill, Canada—known as the 'polar bear capital of the world.' Here, bears wait for Hudson Bay to freeze so they can start hunting for seals, their primary food source.
-> 
-> Despite their huge size, these marine mammals are remarkably good swimmers, often covering more than 90 miles at a time. With their thick fur and a generous layer of fat, polar bears perfectly adapt to cold environments. Yet, they now navigate a fragile line between survival and decline. As the ice melts, their hunting grounds disappear. Polar Bear Week aims to make sure these noble giants of the North have a secure future.
-> 
-> 
-
-</details>
-
-| ![Polar Bear Week](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_1080x1920.jpg) |.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![祖卡里宫，罗马](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1080x1920.jpg) |ve for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_1080x1920.jpg) |//cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1080x1920.jpg) |ve for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
