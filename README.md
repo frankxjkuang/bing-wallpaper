@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241104
+
+> Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> A place where poetry, history, and nature blend—welcome to Grasmere in England's Lake District. The village was once the cherished residence of the celebrated poet William Wordsworth, who described Grasmere, with its valley and lake of the same name, as 'the loveliest spot that man hath found.' Here, visitors are greeted by old cottages and homes built from local bluish-green slate. Dove Cottage, Wordsworth's humble abode from 1799 to 1808, and the adjacent museum offer a dive into the poet's life. His later residence, Rydal Mount, continues the story just a short journey away. The heart of the village is St. Oswald's Church, which dates to the 13th century and is Wordsworth's final resting place. Not far from the church, the aroma of the renowned Grasmere Gingerbread, made from a secret recipe, will set visitors' mouths watering.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Grasmere, Lake District, Cumbria, England](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grasmere, Lake District, Cumbria, England](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_1080x1920.jpg) |
+
 ### 20241103
 
 > Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Great horned owl](https://cn.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great horned owl](https://cn.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_1080x1920.jpg) |
-
-### 20241028
-
-> Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> As fall covers the landscape with amber hues and the chill of Halloween approaches, it's time to start carving some spooky jack-o'-lanterns. Originally from Ireland and Scotland, this craft was brought to America by immigrants who initially made lanterns from turnips and potatoes but later found pumpkins more plentiful and easier to carve. Once hollowed out and lit with candles, the gourds were transformed into flickering defenses against evil spirits.
-> 
-> Today's image shows a pumpkin field in Victoria, British Columbia in Canada, full of blank canvases awaiting their ghoulish and whimsical creations. As people gather to scoop, carve, and light their pumpkins, they take part in a shared ritual passed down through generations. As well as gracing porches to welcome trick-or-treaters, pumpkins fill pies and spice up lattes, adding a tasty element to the season that many anticipate all year long. Once merely a fruit, the pumpkin now enjoys a revered place in Halloween celebrations.
-> 
-> 
-
-</details>
-
-| ![Pumpkin field, Victoria, British Columbia, Canada](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pumpkin field, Victoria, British Columbia, Canada](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_1080x1920.jpg) |//cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1080x1920.jpg) |ve for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_1080x1920.jpg) |ing.com/th?id=OHR.PumpkinMist_EN-US3686565863_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_1080x1920.jpg) |//cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1080x1920.jpg) |ve for millennia, their trunks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
