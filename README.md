@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241107
+
+> Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Amidst the mist-covered cedars and Sitka spruces of Canada's Great Bear Rainforest, the Vancouver Coastal Sea wolf roams free. These canines thrive in this ecosystem in British Columbia, which stretches from the north of Vancouver Island to the Alaskan border. This unique subspecies of the gray wolf is specific to the region and leads a semi-aquatic lifestyle, swimming between islands in search of food. Unlike other wolf species, they have a marine-based diet, consisting of fish, clams, mussels, crabs, otters, and seals. These animals live in packs, communicating with each other through growls, barks, and whines, so they're often heard before they are seen.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Vancouver Coastal Sea wolves, Great Bear Rainforest, Canada](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vancouver Coastal Sea wolves, Great Bear Rainforest, Canada](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_1080x1920.jpg) |
+
 ### 20241106
 
 > Shi Shi Beach in Olympic National Park, Washington (© T.M. Schultze/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1080x1920.jpg) |
-
-### 20241031
-
-> Chimera of Notre-Dame de Paris, France (© scaliger/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Do you sometimes get spooked? If you do, that means you have a healthy sense of fun and fear. And what better day of the year than Halloween to indulge in all things scary? The holiday we know today traces its roots to ancient traditions, including the Celts' Samhain, the Romans' Feralia, and medieval Christian observances. Today, costumed people mingle in the streets, not unlike their ancestors who donned animal skins to divine the future or celebrate saints and martyrs.
-> 
-> Amid modern festivities like trick-or-treating, pumpkin carving, and parties, you might spot a few spooky decorations that look like the one pictured here—a chimera of Notre-Dame Cathedral in Paris. Perched high above the city, this mythical creature is often mistaken for a gargoyle, but unlike its waterspout cousins, the chimera is purely decorative. So today, let's remember the shadows and stories that dance around the edges of our brightly lit celebrations. Happy Halloween!
-> 
-> 
-
-</details>
-
-| ![Happy Halloween!](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Halloween!](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg) |=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg) |=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1080x1920.jpg) |unks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
