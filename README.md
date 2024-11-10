@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241108
+
+> Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Iceland's glacial rivers have shaped the landscape here in the land of fire and ice over thousands of years. The rivers seen in today's image are formed from the meltwater of vast glaciers like Vatnajökull, Langjökull, and Hofsjökull. Vatnajökull, the largest ice cap in Iceland, covers over 3,000 square miles—approximately 10% of the country's landmass. As the glaciers melt, the water carries fine sediments, creating a braided river system with a milky appearance that contrasts with the earthy tones of the volcanic terrain. Every spring and summer, the rivers swell with seasonal meltwater, continually shaping and reshaping the land. Aerial views reveal their intricate patterns, interwoven across the terrain toward the North Atlantic Ocean. The water also powers hydroelectric power stations, reinforcing Iceland's status as a leader in sustainable energy.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Glacial rivers in Iceland](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Glacial rivers in Iceland](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_1080x1920.jpg) |
+
 ### 20241107
 
 > Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy)
@@ -113,23 +132,6 @@
 | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_1080x1920.jpg) |
-
-### 20241101
-
-> Pueblo ruins, Hovenweep National Monument, Utah (© Alan Majchrowicz/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today marks the start of Native American Heritage Month. Throughout November, we honor the history, traditions, stories, and languages of Native Peoples. The Indigenous Peoples of North America have played a significant role in shaping our country, including the food we eat and the medicines that heal us. In addition to being a celebration, this month is also a time to reflect on the issues that Native Peoples face, including civil and voting rights, land access, and education.
-> 
-> An important part of Native American heritage is the legacy that Indigenous Peoples have left on the landscape. One such place is Hovenweep National Monument on the Utah-Colorado border. Ancestral Pueblo people built the structures seen in today's image between 1200 and 1300 CE. All across Hovenweep are dwellings and circular and square towers. Although the purpose of these towers remains uncertain, they could have been used for defense, observing the stars, storing grain, or a combination of all of these. Here, the enduring legacy of America's Indigenous Peoples can still be felt.
-> 
-> 
-
-</details>
-
-| ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg) |=4) |
 |:---------:|:---------:|
