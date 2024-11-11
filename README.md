@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241109
+
+> Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Get ready for a starry Moroccan night! Stargazing here is truly magical, as the vast skies and minimal light pollution transform each evening into a dazzling display. Every star you see is part of our galaxy, the Milky Way, which appears as a creamy band of light in the darkest skies. In today's image, you can see this cosmic beauty glowing over Aït Benhaddou, a historic fortified village known as a ksar, in the Ouarzazate province of Morocco. This site was first fortified in the 11th century. It was a key stop on the ancient caravan trade route connecting the Sahara and the city of Marrakesh. Perched on a hillside by the Ounila River, this village is a cluster of buildings encircled by a protective wall, complete with towers and a gate.
+> 
+> The earthen clay architecture here, built from rammed earth, adobe, and wood, showcases traditional craftsmanship. This UNESCO World Heritage Site is celebrated for its authenticity and is known for preserving conventional building techniques and avoiding modern concrete.
+> 
+> 
+
+</details>
+
+| ![Aït Benhaddou, Morocco](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aït Benhaddou, Morocco](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_1080x1920.jpg) |
+
 ### 20241108
 
 > Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)
@@ -112,25 +131,7 @@
 
 | ![International Day for Biosphere Reserves](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biosphere Reserves](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_1080x1920.jpg) |
-
-### 20241102
-
-> American bison in Yellowstone National Park, Wyoming (© Ian Shive/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Once upon a time, in the boundless grasslands of North America, there roamed creatures of great strength and majesty—the American bison. These animals were a key part of life for many Native American tribes, providing food, clothing, and tools. Their population dwindled perilously low in the late 1800s, falling from as many as 60 million to fewer than 1,000 due to excessive hunting and disease. Enter a group of conservationists, ranchers, and Native Americans who stepped in to save the species. Now, over 500,000 bison roam again, many in protected areas like Yellowstone National Park, featured in today's image. Today, on National Bison Day, observed every first Saturday in November, we honor these noble creatures—a testament to the American spirit and the monumental conservation efforts to save them.
-> 
-> It's no wonder the bison was officially named the national mammal in 2016. From the buffalo nickel to state flags, they are a deeply embedded symbol in American culture. Bison are North America's largest mammals, and they have been introduced as far away as Russia. While the bison has made a heroic recovery, the story isn't over. These animals still face challenges, including habitat loss and hunting.
-> 
-> 
-
-</details>
-
-| ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg) |=4) |
