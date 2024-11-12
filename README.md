@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241110
+
+> Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Ever seen a group of flamingos take to the skies? If you have, there's a good chance they were Caribbean flamingos, also known as American flamingos, as seen in Yucatán Peninsula, Mexico, in today's image. Flamingos are referred to as a flamboyance when in a group, but they can also be called a stand, colony, or pat. The Caribbean flamingo is the largest flamingo species in the Americas and the only one native to North America. These vibrant birds are typically found around brackish and saltwater areas, like marshes, estuaries, and along coastlines. Because of their pink color, they're often confused with roseate spoonbills. However, their long necks and bent bills distinguish them from other wading birds like the great blue heron and wood stork.
+> 
+> Found across regions like the southeastern United States, northern South America, the Galápagos Islands, and Mexico's Yucatán Peninsula, Caribbean flamingos are well adapted for short migrations in search of food. Using long legs and webbed feet, they hunt shallow waters for shrimp, crustaceans, mollusks, fish, and algae. Their habitats are increasingly threatened by coastal development, pollution, and rising sea levels, putting their population at risk. Yet, Caribbean flamingos still amaze us when they soar gracefully through the skies.
+> 
+> 
+
+</details>
+
+| ![Caribbean flamingos, Yucatán Peninsula, Mexico](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Caribbean flamingos, Yucatán Peninsula, Mexico](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |
+
 ### 20241109
 
 > Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Grasmere, Lake District, Cumbria, England](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grasmere, Lake District, Cumbria, England](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_1080x1920.jpg) |
-
-### 20241103
-
-> Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Today is the International Day for Biosphere Reserves. Biosphere reserves may sound like a mouthful, but they're essentially nature's sweet spots— biodiverse places that are home to a huge variety of life. These reserves, recognized by UNESCO, keep ecosystems healthy, protect endangered species, and help regulate climate through forests, wetlands, and other crucial habitats. There are 759 biosphere reserves across 136 countries. From the lush greenery of the Sundarbans in India to the vast expanses of the Great Sandy Biosphere Reserve in Australia, each reserve is unique.
-> 
-> Let's visit another—the Ría Lagartos Biosphere Reserve in Yucatán, Mexico, a UNESCO-protected sanctuary since 2004. Its forests and savannas cradle over 550 vertebrate species, including 142 species found only here. There are over 400 bird species in this reserve, including a large population of flamingos whose nests are seen in today's image. Biosphere reserves are all about balance, and Ría Lagartos is a prime example. Fishing, ecotourism, and even salt production are done in ways that respect the environment.
-> 
-> 
-
-</details>
-
-| ![International Day for Biosphere Reserves](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biosphere Reserves](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_1080x1920.jpg) |-:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_1080x1920.jpg) |S4259322652_1080x1920.jpg) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg) |=4) |
 |:---------:|:---------:|
