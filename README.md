@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241111
+
+> Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Freedom is not free, and nobody understands that better than veterans. Today, America honors its military men and women for their service. The holiday originally celebrated a temporary halt in fighting between Allied nations and Germany during World War I—the official end of the war came the following year in 1919. Armistice Day, as it was later named, commemorated this respite, and it became a federal holiday in 1938. A few years later, America fought in World War II, and later, the Korean War. As a result, Congress amended the holiday in 1954, exchanging the word 'Armistice' with 'Veterans' to include veterans of all the country's wars.
+> 
+> Today's image depicts the Mural Wall, one of five parts of the Korean War Veterans Memorial in Washington, D.C. Also known as 'The Forgotten War,' the three-year conflict began in 1950 and was one of America's most hard-fought wars. Near the National Mall, the Korean War Veterans Memorial honors the tens of thousands of US service personnel who died or went missing and more than 100,000 soldiers who were wounded.
+> 
+> 
+
+</details>
+
+| ![Veterans Day](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Veterans Day](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |
+
 ### 20241110
 
 > Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)
@@ -112,28 +131,7 @@
 
 | ![US Election Day](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![US Election Day](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_1080x1920.jpg) |
-
-### 20241104
-
-> Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> A place where poetry, history, and nature blend—welcome to Grasmere in England's Lake District. The village was once the cherished residence of the celebrated poet William Wordsworth, who described Grasmere, with its valley and lake of the same name, as 'the loveliest spot that man hath found.' Here, visitors are greeted by old cottages and homes built from local bluish-green slate. Dove Cottage, Wordsworth's humble abode from 1799 to 1808, and the adjacent museum offer a dive into the poet's life. His later residence, Rydal Mount, continues the story just a short journey away. The heart of the village is St. Oswald's Church, which dates to the 13th century and is Wordsworth's final resting place. Not far from the church, the aroma of the renowned Grasmere Gingerbread, made from a secret recipe, will set visitors' mouths watering.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Grasmere, Lake District, Cumbria, England](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grasmere, Lake District, Cumbria, England](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_1080x1920.jpg) |S4259322652_1080x1920.jpg) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg) |=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_1080x1920.jpg) |bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg) |=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1080x1920.jpg) |unks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
