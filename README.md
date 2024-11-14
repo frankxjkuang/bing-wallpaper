@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241112
+
+> Double Arch seen through Cove Arch, Arches National Park, Utah (© Jeff Foott/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Red as far as the eye can see and clear blue skies overhead. Welcome to Arches National Park, Utah. The story of this otherworldly landscape starts 65 million years ago when a dry seabed stood here. Over time, geological forces warped and squeezed the land, twisting the sandstone into lumps and bumps. Later, wind and water carved out the arches, pinnacles, fins, and balanced rocks that now stand in this area. The park has more than 2,000 natural stone arches, the highest concentration of these structures anywhere on Earth. In today's image, we can see two of them: Double Arch, as seen through Cove Arch. The larger arch of Double Arch spans 144 feet and is 112 feet tall, the tallest and second-longest of the park's arches.
+> 
+> Humans arrived in the area around 10,000 years ago. Fremont and Ancestral Pueblo people lived here until the 14th century. Later, the Ute and Paiute tribes made their homes in the area. In 1929, it was declared a national monument. However, it wasn't until November 12, 1971, that it became a national park. Today, more than 1.8 million visitors come to Arches National Park every year.
+> 
+> 
+
+</details>
+
+| ![Arches National Park anniversary](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arches National Park anniversary](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg) |
+
 ### 20241111
 
 > Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Shi Shi Beach, Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shi Shi Beach, Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_1080x1920.jpg) |
-
-### 20241105
-
-> Autumn sunrise over the National Mall, Washington, DC (© WLDavies/iStock/Getty Images Plus)
-
-<details>
-<summary>Description</summary>
-
-> It's time to get out and vote! In 1845, Congress designated the first Tuesday after the first Monday in November as the day Americans vote for most federal offices. Prior to this, states held elections on a date of their choosing within about a month of early December, which created issues with early and late elections. For convenience and to save money, many elections for state and local offices are also held on Election Day.
-> 
-> At the heart of this process is Washington DC, seat of the US federal government. Pictured here today is the National Mall, a landscaped park in the capital that is affectionately known as America's Front Yard. Within the National Mall lie some of the country's most famous museums and monuments, including the Washington Monument, the Lincoln Memorial, and the Smithsonian Institution. It also serves as a symbolic and physical link between two of the branches of government, connecting the Capitol building—home of the legislature—to the White House, headquarters of the executive branch. The US Supreme Court, representing the judiciary, sits at the eastern end of the National Mall.
-> 
-> 
-
-</details>
-
-| ![US Election Day](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![US Election Day](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_1080x1920.jpg) |bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg) |=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_1080x1920.jpg) |uins_EN-US3883549583_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg) |=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1080x1920.jpg) |unks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
