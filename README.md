@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241113
+
+> California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Take a stroll along almost any marina from Costa Rica to Alaska, and you'll likely hear the playful barks of sea lions echo through the air. California sea lions, like the one pictured, are a common sight basking in the sun along the rocky shores of North America's western coast. These marine mammals, belonging to the pinniped group, are often mistaken for seals. An easy way to distinguish between them is by looking at their ears—sea lions have visible flaps, seals don't.
+> 
+> Sea lions also have a special relationship with giant kelp, seen in today's image from Baja California, Mexico. These towering underwater plants, which can grow up to 175 feet in ideal conditions, sway gently with the currents, creating beautiful scenery. Kelp forests are home to a diverse array of marine life, including sea lions, tiny invertebrates like snails, prawns, and jellyfish, and a wide range of fish, like cod, rockfish, and wrasse. Sea lions twist and turn through the thick kelp strands, hunting fish hiding within the leaves. They also use kelp as refuge from predators like sharks, blending in with the fronds of the brown algae to avoid detection. Kelp's rapid growth makes it an ideal habitat for marine life of all types to thrive.
+> 
+> 
+
+</details>
+
+| ![Sea lion in a kelp forest, Baja California, Mexico](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea lion in a kelp forest, Baja California, Mexico](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_1080x1920.jpg) |
+
 ### 20241112
 
 > Double Arch seen through Cove Arch, Arches National Park, Utah (© Jeff Foott/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Vancouver Coastal Sea wolves, Great Bear Rainforest, Canada](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vancouver Coastal Sea wolves, Great Bear Rainforest, Canada](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_1080x1920.jpg) |
-
-### 20241106
-
-> Shi Shi Beach in Olympic National Park, Washington (© T.M. Schultze/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Olympic National Park, established in 1938, offers an escape into unspoiled wilderness. It covers nearly 1,440 square miles on Washington's Olympic Peninsula. With a labyrinth of ecosystems that range from glacier-capped mountains to temperate rainforests, the park is a home for wildlife and an International Biosphere Reserve. Within it lies Shi Shi Beach, a serene stretch where the Pacific laps against sea stacks and sandy shores, as seen in today's image.
-> 
-> From here, you can follow one of the park's many trails and trek along the coast to see the beach's sea arch at Point of the Arches, an outcrop that has over 30 sea stacks, columns of rock rising from the beach. Within the park, visitors can get a closer look at Mount Olympus, spot over 300 bird species like red-breasted nuthatches, winter wrens, and spotted owls. They can also take a refreshing swim in Lake Crescent. The coastal wilderness area north of Cape Alava, including Shi Shi Beach, has been home to the Makah Tribe of the Pacific Northwest Coast for over 2,000 years. Visitors can gain an insight into their culture at the nearby Makah Reservation.
-> 
-> 
-
-</details>
-
-| ![Shi Shi Beach, Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shi Shi Beach, Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_1080x1920.jpg) |uins_EN-US3883549583_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg) |=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg) |=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1080x1920.jpg) |unks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
