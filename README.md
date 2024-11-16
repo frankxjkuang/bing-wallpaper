@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241114
+
+> Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Known for its rows of pastel houses that stretch down to the Mediterranean Sea, Manarola, seen in today's image, is a picturesque village on the Italian Riviera. Perched on the rugged cliffs of the Ligurian coast, it's one of the five villages that make up Cinque Terre National Park, a UNESCO World Heritage Site. The name 'Manarola' might have evolved from the Latin 'Magna rota,' which means 'large wheel,' a nod to the village's historical mill wheel.
+> 
+> Believed to be the oldest village in the Cinque Terre, dating to 1338, Manarola's history is rooted in fishing and winemaking. Sciacchetrà, a dessert wine unique to this area, has long been immortalized in the verses of Italian poets. Take a walk along the Via dell'Amore, or 'Path of Love'—a scenic coastal trail connecting Manarola to its neighboring village, Riomaggiore—and you can sense the romance and charm that defines this region. Legend has it that the footpath became a meeting place for lovers from the two villages. Time slows down when you're in Manarola, and the magic of the country's coastal heritage comes to life.
+> 
+> 
+
+</details>
+
+| ![Manarola, Cinque Terre National Park, Liguria, Italy](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Manarola, Cinque Terre National Park, Liguria, Italy](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1080x1920.jpg) |
+
 ### 20241113
 
 > California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)
@@ -112,28 +131,7 @@
 
 | ![Glacial rivers in Iceland](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Glacial rivers in Iceland](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_1080x1920.jpg) |
-
-### 20241107
-
-> Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Amidst the mist-covered cedars and Sitka spruces of Canada's Great Bear Rainforest, the Vancouver Coastal Sea wolf roams free. These canines thrive in this ecosystem in British Columbia, which stretches from the north of Vancouver Island to the Alaskan border. This unique subspecies of the gray wolf is specific to the region and leads a semi-aquatic lifestyle, swimming between islands in search of food. Unlike other wolf species, they have a marine-based diet, consisting of fish, clams, mussels, crabs, otters, and seals. These animals live in packs, communicating with each other through growls, barks, and whines, so they're often heard before they are seen.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Vancouver Coastal Sea wolves, Great Bear Rainforest, Canada](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vancouver Coastal Sea wolves, Great Bear Rainforest, Canada](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1080x1920.jpg) |=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1080x1920.jpg) |unks growing thick and gnarled, and their branches bearing fruit century after century. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_1080x1920.jpg) |ntury. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
 > 
 > 
 
