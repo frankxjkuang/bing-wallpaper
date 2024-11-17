@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241115
+
+> Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As twilight descends today, Chiang Mai, Thailand's second-largest city, will come alive with thousands of glowing lanterns for Yi Peng. Held on the full moon of the second month of the Lanna lunar calendar, this celebration is about letting go of negativity and embracing new beginnings. The highlight of the festival is the release of 'khom loi' or 'khom loy'—floating paper lanterns—into the night sky, which becomes a sea of warm, golden lights. People often write their hopes and dreams on the lanterns. They gather around temples and palaces to send their wishes skyward, hoping for good fortune in the year to come.
+> 
+> In addition to the lantern release, the city hosts vibrant parades, traditional dance performances, and stunning decorations. Yi Peng coincides with Loy Krathong, another festival where small, intricately crafted baskets, decorated with banana leaves, incense, and candles, are floated down rivers. Together, these festivals create a spectacle that draws visitors from across the world to witness the illumination of Chiang Mai.
+> 
+> 
+
+</details>
+
+| ![Yi Peng lantern festival, Chiang Mai, Thailand](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yi Peng lantern festival, Chiang Mai, Thailand](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1080x1920.jpg) |
+
 ### 20241114
 
 > Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)
@@ -112,32 +131,7 @@
 
 | ![Aït Benhaddou, Morocco](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aït Benhaddou, Morocco](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_1080x1920.jpg) |
-
-### 20241108
-
-> Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Iceland's glacial rivers have shaped the landscape here in the land of fire and ice over thousands of years. The rivers seen in today's image are formed from the meltwater of vast glaciers like Vatnajökull, Langjökull, and Hofsjökull. Vatnajökull, the largest ice cap in Iceland, covers over 3,000 square miles—approximately 10% of the country's landmass. As the glaciers melt, the water carries fine sediments, creating a braided river system with a milky appearance that contrasts with the earthy tones of the volcanic terrain. Every spring and summer, the rivers swell with seasonal meltwater, continually shaping and reshaping the land. Aerial views reveal their intricate patterns, interwoven across the terrain toward the North Atlantic Ocean. The water also powers hydroelectric power stations, reinforcing Iceland's status as a leader in sustainable energy.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Glacial rivers in Iceland](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Glacial rivers in Iceland](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_1080x1920.jpg) |ntury. As civilizations rise and fall around them, these hardy trees remain resilient and steadfast.
-> 
-> 
-
-</details>
-
-| ![World Olive Tree Day](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Olive Tree Day](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_1080x1920.jpg) |&rs=1&c=4) | ![World Olive Tree Day](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
