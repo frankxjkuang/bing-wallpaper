@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241116
+
+> Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> If you've ever dreamed of walking on water, or something close to it, the Wadden Sea is the place for you. Tracing over 300 miles along the coast of the Netherlands, Germany, and Denmark, this UNESCO World Heritage Site offers a unique landscape of tidal flats and wetlands. In fact, it is the world's largest unbroken intertidal zone—underwater at high tide and exposed at low tide—of sand and mud flats. The area is also a playground for aquatic species such as houting fish, brown trout, and white-beaked dolphins, and is home to birds like waders and herons.
+> 
+> Pictured here is the Wadden Sea coast in Friesland, Netherlands. This coast is dotted with charming fishing villages and medieval churches. Mudflat hiking is a recreational pastime here—the Dutch call it wadlopen. As the tide recedes, mud-trampers can walk across the seabed, squishing through the mud and wading through shallow waters. Whether you're up for a wadlopen challenge or a seal-spotting safari, there's plenty of adventure to be found here. Just don't forget your boots—things are bound to get a little messy!
+> 
+> 
+
+</details>
+
+| ![Wadden Sea coast, Friesland, Netherlands](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wadden Sea coast, Friesland, Netherlands](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_1080x1920.jpg) |
+
 ### 20241115
 
 > Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Caribbean flamingos, Yucatán Peninsula, Mexico](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Caribbean flamingos, Yucatán Peninsula, Mexico](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |
-
-### 20241109
-
-> Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Get ready for a starry Moroccan night! Stargazing here is truly magical, as the vast skies and minimal light pollution transform each evening into a dazzling display. Every star you see is part of our galaxy, the Milky Way, which appears as a creamy band of light in the darkest skies. In today's image, you can see this cosmic beauty glowing over Aït Benhaddou, a historic fortified village known as a ksar, in the Ouarzazate province of Morocco. This site was first fortified in the 11th century. It was a key stop on the ancient caravan trade route connecting the Sahara and the city of Marrakesh. Perched on a hillside by the Ounila River, this village is a cluster of buildings encircled by a protective wall, complete with towers and a gate.
-> 
-> The earthen clay architecture here, built from rammed earth, adobe, and wood, showcases traditional craftsmanship. This UNESCO World Heritage Site is celebrated for its authenticity and is known for preserving conventional building techniques and avoiding modern concrete.
-> 
-> 
-
-</details>
-
-| ![Aït Benhaddou, Morocco](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aït Benhaddou, Morocco](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_1080x1920.jpg) |&rs=1&c=4) | ![World Olive Tree Day](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
