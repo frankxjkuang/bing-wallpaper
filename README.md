@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241117
+
+> Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Striking appearance, strong presence, and impressive antlers—meet the red deer, photographed in the ancient forests of Glen Affric, one of Scotland's most beautiful valleys. Found across Europe, Asia, and parts of North Africa, this species is Britain's largest land mammal and an integral part of the Caledonian pinewoods, Scotland's coniferous forests. From featuring in cave art found throughout Europe to medieval hunting traditions, red deer have always held a special place in the human imagination. In many parts of the world, their image is synonymous with the wild, free spirit of nature. Glen Affric, with its lochs, moorlands, and mountains, provides the perfect habitat for these magnificent creatures. This national nature reserve is also popular with hikers, climbers, and nature enthusiasts.
+> 
+> The Scottish red deer is a subspecies that is slightly smaller than its counterparts in continental Europe. This species exhibits insular dwarfism, a process where large animals evolve to have smaller bodies over many generations.
+> 
+> 
+
+</details>
+
+| ![Red deer stag in Glen Affric, Scottish Highlands](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red deer stag in Glen Affric, Scottish Highlands](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_1080x1920.jpg) |
+
 ### 20241116
 
 > Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)
@@ -112,24 +131,7 @@
 
 | ![Veterans Day](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Veterans Day](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |
-
-### 20241110
-
-> Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Ever seen a group of flamingos take to the skies? If you have, there's a good chance they were Caribbean flamingos, also known as American flamingos, as seen in Yucatán Peninsula, Mexico, in today's image. Flamingos are referred to as a flamboyance when in a group, but they can also be called a stand, colony, or pat. The Caribbean flamingo is the largest flamingo species in the Americas and the only one native to North America. These vibrant birds are typically found around brackish and saltwater areas, like marshes, estuaries, and along coastlines. Because of their pink color, they're often confused with roseate spoonbills. However, their long necks and bent bills distinguish them from other wading birds like the great blue heron and wood stork.
-> 
-> Found across regions like the southeastern United States, northern South America, the Galápagos Islands, and Mexico's Yucatán Peninsula, Caribbean flamingos are well adapted for short migrations in search of food. Using long legs and webbed feet, they hunt shallow waters for shrimp, crustaceans, mollusks, fish, and algae. Their habitats are increasingly threatened by coastal development, pollution, and rising sea levels, putting their population at risk. Yet, Caribbean flamingos still amaze us when they soar gracefully through the skies.
-> 
-> 
-
-</details>
-
-| ![Caribbean flamingos, Yucatán Peninsula, Mexico](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Caribbean flamingos, Yucatán Peninsula, Mexico](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
