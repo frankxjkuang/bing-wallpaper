@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241118
+
+> Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> With waves crashing against its sturdy base and a stormy sea swirling around, this lighthouse in Porthcawl, on the south coast of Wales, has been standing resilient since 1860. At 30 feet tall, Porthcawl Lighthouse, designed by the eminent engineer James Walker, is often pictured being battered by waves when storms hit. The town's rugged coastline, with its hidden rocky coves, has always posed a perilous challenge to sailors. Porthcawl Lighthouse was built to help guide the increasing maritime traffic along the Bristol Channel. This cast-iron lighthouse was the last one in the UK to be powered by coal and gas. Although it was converted to electric power in 1997, the lighthouse still maintains its historical charm.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Porthcawl Lighthouse, Wales, UK](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Porthcawl Lighthouse, Wales, UK](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_1080x1920.jpg) |
+
 ### 20241117
 
 > Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)
@@ -112,24 +131,7 @@
 
 | ![Arches National Park anniversary](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arches National Park anniversary](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg) |
-
-### 20241111
-
-> Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Freedom is not free, and nobody understands that better than veterans. Today, America honors its military men and women for their service. The holiday originally celebrated a temporary halt in fighting between Allied nations and Germany during World War I—the official end of the war came the following year in 1919. Armistice Day, as it was later named, commemorated this respite, and it became a federal holiday in 1938. A few years later, America fought in World War II, and later, the Korean War. As a result, Congress amended the holiday in 1954, exchanging the word 'Armistice' with 'Veterans' to include veterans of all the country's wars.
-> 
-> Today's image depicts the Mural Wall, one of five parts of the Korean War Veterans Memorial in Washington, D.C. Also known as 'The Forgotten War,' the three-year conflict began in 1950 and was one of America's most hard-fought wars. Near the National Mall, the Korean War Veterans Memorial honors the tens of thousands of US service personnel who died or went missing and more than 100,000 soldiers who were wounded.
-> 
-> 
-
-</details>
-
-| ![Veterans Day](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Veterans Day](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg) |m/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
