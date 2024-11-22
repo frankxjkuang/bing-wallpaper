@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241120
+
+> Giant land art painting 'Beyond Crisis' by Saype, Leysin, Switzerland (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> What's more creative than a young mind? This World Children's Day, let's celebrate the boundless imagination of kids and the ideas they bring to life. A UNICEF initiative, this day is a global day of action for children, by children, which marks the UN's adoption of the Convention on the Rights of the Child. Kids are raising their voices on issues ranging from conflict and climate change to mental health and discrimination, in a bid to influence the future.
+> 
+> Featured in today's image is the giant land art painting 'Beyond Crisis' in Leysin, Switzerland. It was created by French contemporary artist Saype in 2020 in response to the pandemic. Saype is renowned for his ultra-realistic giant nature paintings—this fresco spanned over 32,000 square feet—made using biodegradable paint. Through the eyes of a little girl gazing at the horizon, the artist envisioned a more united and humane world. The arc of figures she draws serves as a powerful reminder that, in times of crisis, we must focus on what lies ahead together.
+> 
+> 
+
+</details>
+
+| ![World Children's Day](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Children's Day](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_1080x1920.jpg) |
+
 ### 20241119
 
 > Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)
@@ -112,24 +131,7 @@
 
 | ![Manarola, Cinque Terre National Park, Liguria, Italy](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Manarola, Cinque Terre National Park, Liguria, Italy](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1080x1920.jpg) |
-
-### 20241113
-
-> California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Take a stroll along almost any marina from Costa Rica to Alaska, and you'll likely hear the playful barks of sea lions echo through the air. California sea lions, like the one pictured, are a common sight basking in the sun along the rocky shores of North America's western coast. These marine mammals, belonging to the pinniped group, are often mistaken for seals. An easy way to distinguish between them is by looking at their ears—sea lions have visible flaps, seals don't.
-> 
-> Sea lions also have a special relationship with giant kelp, seen in today's image from Baja California, Mexico. These towering underwater plants, which can grow up to 175 feet in ideal conditions, sway gently with the currents, creating beautiful scenery. Kelp forests are home to a diverse array of marine life, including sea lions, tiny invertebrates like snails, prawns, and jellyfish, and a wide range of fish, like cod, rockfish, and wrasse. Sea lions twist and turn through the thick kelp strands, hunting fish hiding within the leaves. They also use kelp as refuge from predators like sharks, blending in with the fronds of the brown algae to avoid detection. Kelp's rapid growth makes it an ideal habitat for marine life of all types to thrive.
-> 
-> 
-
-</details>
-
-| ![Sea lion in a kelp forest, Baja California, Mexico](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea lion in a kelp forest, Baja California, Mexico](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_1080x1920.jpg) |rs=1&c=4) | ![Arches National Park anniversary](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
