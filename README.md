@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241121
+
+> Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Curious about what it's like to be a lion cub living in the wild? Let's explore their life. African lion cubs like those featured here, sunbathing in the wilderness of South Africa, start life tucked away in a secluded den. Blind at birth, these little ones are vulnerable in the first few weeks of their lives and depend entirely on their mothers. At around 8 weeks old, they meet the rest of the pride and learn to socialize so they can find their place in the group. After they hit 6 months, they begin to go out hunting with adults, learning essential skills through real-life adventures.
+> 
+> Lions enter adolescence around 2 years old, and they reach maturity by 3 or 4. At this point, young males leave their mothers and group with other males, while females remain to hunt and breed in the same pride. For the lion cubs in today's image, their early experiences will lay the foundation for their place in the wild.
+> 
+> 
+
+</details>
+
+| ![Lion cubs, South Africa](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lion cubs, South Africa](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_1080x1920.jpg) |
+
 ### 20241120
 
 > Giant land art painting 'Beyond Crisis' by Saype, Leysin, Switzerland (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
@@ -112,24 +131,7 @@
 
 | ![Yi Peng lantern festival, Chiang Mai, Thailand](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yi Peng lantern festival, Chiang Mai, Thailand](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1080x1920.jpg) |
-
-### 20241114
-
-> Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Known for its rows of pastel houses that stretch down to the Mediterranean Sea, Manarola, seen in today's image, is a picturesque village on the Italian Riviera. Perched on the rugged cliffs of the Ligurian coast, it's one of the five villages that make up Cinque Terre National Park, a UNESCO World Heritage Site. The name 'Manarola' might have evolved from the Latin 'Magna rota,' which means 'large wheel,' a nod to the village's historical mill wheel.
-> 
-> Believed to be the oldest village in the Cinque Terre, dating to 1338, Manarola's history is rooted in fishing and winemaking. Sciacchetrà, a dessert wine unique to this area, has long been immortalized in the verses of Italian poets. Take a walk along the Via dell'Amore, or 'Path of Love'—a scenic coastal trail connecting Manarola to its neighboring village, Riomaggiore—and you can sense the romance and charm that defines this region. Legend has it that the footpath became a meeting place for lovers from the two villages. Time slows down when you're in Manarola, and the magic of the country's coastal heritage comes to life.
-> 
-> 
-
-</details>
-
-| ![Manarola, Cinque Terre National Park, Liguria, Italy](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Manarola, Cinque Terre National Park, Liguria, Italy](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1080x1920.jpg) |_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
