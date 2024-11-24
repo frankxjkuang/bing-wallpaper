@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241122
+
+> Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Perched atop a sandstone outcrop high in the Sierra de Caldereros stands the Castle of Zafra. When the Christian kingdoms of northern Spain took the region from its Moorish defenders in the 12th century, they built this castle on the site of an older fortress to defend the borderland between the two powers. Over the years, it withstood countless battles of the Reconquista—the military campaigns waged by Christian kingdoms against Muslim rule in Spain—and of the Castilian Civil War of the 14th century.
+> 
+> When the fighting ended in the late 15th century, the Castle of Zafra was no longer strategically important and began to fall into ruin. In 1971, Don Antonio Sanz Polo, a descendant of the castle's last warden, bought the site from the Spanish state. He then spent the next 30 years restoring the castle. These days, you're more likely to see the Castle of Zafra on the screen than in a history book—it doubled as the Tower of Joy in the sixth season of 'Game of Thrones.'
+> 
+> 
+
+</details>
+
+| ![Castle of Zafra, Spain](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castle of Zafra, Spain](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_1080x1920.jpg) |
+
 ### 20241121
 
 > Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Wadden Sea coast, Friesland, Netherlands](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wadden Sea coast, Friesland, Netherlands](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_1080x1920.jpg) |
-
-### 20241115
-
-> Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As twilight descends today, Chiang Mai, Thailand's second-largest city, will come alive with thousands of glowing lanterns for Yi Peng. Held on the full moon of the second month of the Lanna lunar calendar, this celebration is about letting go of negativity and embracing new beginnings. The highlight of the festival is the release of 'khom loi' or 'khom loy'—floating paper lanterns—into the night sky, which becomes a sea of warm, golden lights. People often write their hopes and dreams on the lanterns. They gather around temples and palaces to send their wishes skyward, hoping for good fortune in the year to come.
-> 
-> In addition to the lantern release, the city hosts vibrant parades, traditional dance performances, and stunning decorations. Yi Peng coincides with Loy Krathong, another festival where small, intricately crafted baskets, decorated with banana leaves, incense, and candles, are floated down rivers. Together, these festivals create a spectacle that draws visitors from across the world to witness the illumination of Chiang Mai.
-> 
-> 
-
-</details>
-
-| ![Yi Peng lantern festival, Chiang Mai, Thailand](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yi Peng lantern festival, Chiang Mai, Thailand](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1080x1920.jpg) |_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_1080x1920.jpg) |_EN-US2889801198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1080x1920.jpg) |_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
