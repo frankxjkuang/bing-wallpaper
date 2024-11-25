@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241123
+
+> Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> On Fibonacci Day, mathematicians and scientists honor one of their own: Leonardo Bonacci, better known as Fibonacci. The medieval mathematician popularized the Hindu-Arabic numeral system, with its use of zero, decimal points, and 10 numbers instead of the ponderous Roman numeral system. He's most famous, however, for his sequence of numbers: 0, 1, 1, 2, 3, 5, 8... By adding the first two numbers, you arrive at the third, and adding the previous two numbers, you arrive at the next number, and so on. Disregarding the zero, the first four numbers correspond to today's date, 11/23.
+> 
+> The Fibonacci sequence is also related to a mathematical phenomenon called the golden ratio, an irrational number that begins 1.61803 but whose terms go on forever after the decimal point. It is found in nature, including the spiral shapes of nautilus shells, sunflower seeds, pinecones, and the leaves of the spiral aloe plant in today's image. It is also found in the relationship between adjacent numbers in the Fibonacci sequence. As successive Fibonacci numbers above 5 are divided by the previous number, the answer gets ever closer to the golden ratio. These mysterious numbers intertwine in nature, creating beautiful patterns in unexpected places.
+> 
+> 
+
+</details>
+
+| ![Fibonacci Day](https://cn.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fibonacci Day](https://cn.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_1080x1920.jpg) |
+
 ### 20241122
 
 > Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Red deer stag in Glen Affric, Scottish Highlands](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red deer stag in Glen Affric, Scottish Highlands](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_1080x1920.jpg) |
-
-### 20241116
-
-> Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> If you've ever dreamed of walking on water, or something close to it, the Wadden Sea is the place for you. Tracing over 300 miles along the coast of the Netherlands, Germany, and Denmark, this UNESCO World Heritage Site offers a unique landscape of tidal flats and wetlands. In fact, it is the world's largest unbroken intertidal zone—underwater at high tide and exposed at low tide—of sand and mud flats. The area is also a playground for aquatic species such as houting fish, brown trout, and white-beaked dolphins, and is home to birds like waders and herons.
-> 
-> Pictured here is the Wadden Sea coast in Friesland, Netherlands. This coast is dotted with charming fishing villages and medieval churches. Mudflat hiking is a recreational pastime here—the Dutch call it wadlopen. As the tide recedes, mud-trampers can walk across the seabed, squishing through the mud and wading through shallow waters. Whether you're up for a wadlopen challenge or a seal-spotting safari, there's plenty of adventure to be found here. Just don't forget your boots—things are bound to get a little messy!
-> 
-> 
-
-</details>
-
-| ![Wadden Sea coast, Friesland, Netherlands](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wadden Sea coast, Friesland, Netherlands](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_1080x1920.jpg) |_EN-US2889801198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1080x1920.jpg) |_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1080x1920.jpg) |_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
