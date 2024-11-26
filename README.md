@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241124
+
+> Sonoma Coast State Park, California (© Rachid Dahnoun/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Sonoma Coast State Park offers a picturesque retreat with its sandy beaches, natural arches, and secluded coves. Established in 1934, the park encompasses 17 miles of Northern California coastline between Jenner and Bodega Bay. Wildlife enthusiasts can spot seals, sea lions, whales, and a variety of birds like towhees, warblers, finches, sparrows, and orioles. History buffs will enjoy exploring the sea stack formation with rubbing marks believed to have been made by mammoths that roamed the area 40,000 years ago. The park is also home to historical sites like Bodega Head, where Russians built a fort in the early 1800s.
+> 
+> Fort Ross, near the park, was established in 1812 by the Russian-American Company. This settlement marked the southernmost expansion of Russian colonization in North America. The fort primarily served as a hub for the fur trade, focusing on hunting sea otters along the Pacific coast. By the mid-1830s, the fur trade had declined, and in 1841, the fort was sold to John Sutter, an American entrepreneur.
+> 
+> 
+
+</details>
+
+| ![Sonoma Coast State Park, California](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sonoma Coast State Park, California](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_1080x1920.jpg) |
+
 ### 20241123
 
 > Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Porthcawl Lighthouse, Wales, UK](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Porthcawl Lighthouse, Wales, UK](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_1080x1920.jpg) |
-
-### 20241117
-
-> Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Striking appearance, strong presence, and impressive antlers—meet the red deer, photographed in the ancient forests of Glen Affric, one of Scotland's most beautiful valleys. Found across Europe, Asia, and parts of North Africa, this species is Britain's largest land mammal and an integral part of the Caledonian pinewoods, Scotland's coniferous forests. From featuring in cave art found throughout Europe to medieval hunting traditions, red deer have always held a special place in the human imagination. In many parts of the world, their image is synonymous with the wild, free spirit of nature. Glen Affric, with its lochs, moorlands, and mountains, provides the perfect habitat for these magnificent creatures. This national nature reserve is also popular with hikers, climbers, and nature enthusiasts.
-> 
-> The Scottish red deer is a subspecies that is slightly smaller than its counterparts in continental Europe. This species exhibits insular dwarfism, a process where large animals evolve to have smaller bodies over many generations.
-> 
-> 
-
-</details>
-
-| ![Red deer stag in Glen Affric, Scottish Highlands](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red deer stag in Glen Affric, Scottish Highlands](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1080x1920.jpg) |_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_1080x1920.jpg) |edStag_EN-US3910525623_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1080x1920.jpg) |_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
