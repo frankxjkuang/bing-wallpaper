@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241125
+
+> Masai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)
+
+<details>
+<summary>Description</summary>
+
+> Masai giraffes roam the vast landscapes of Amboseli National Park in Kenya, as seen in today's image. At 18 feet or more, giraffes are the world's tallest land mammals. Along with prehensile tongues that are more than a foot and a half long, they use their impressive height to eat foliage found almost 20 feet from the ground. They're also faster than you might think, being able to sprint over short distances up to 37 mph. Giraffes are common in East Africa and can be seen grazing in grasslands, woodlands, and reserves.
+> 
+> Established 50 years ago, Amboseli National Park covers more than 150 square miles. Its swamps and wetlands teem with wildlife, including 400 species of birds, 40 of which are birds of prey. During safaris, people can see giraffes and four of Africa's 'Big Five' animals up close—lions, leopards, elephants, and African buffalo. Amboseli offers visitors a glimpse into the traditional Maasai way of life through cultural interactions, livestock herding, and coexistence with wildlife.
+> 
+> 
+
+</details>
+
+| ![Masai giraffes in Amboseli National Park, Kenya](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Masai giraffes in Amboseli National Park, Kenya](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |
+
 ### 20241124
 
 > Sonoma Coast State Park, California (© Rachid Dahnoun/Tandem Stills + Motion)
@@ -112,28 +131,7 @@
 
 | ![Tasmans Arch, Tasmania, Australia](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tasmans Arch, Tasmania, Australia](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_1080x1920.jpg) |
-
-### 20241118
-
-> Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> With waves crashing against its sturdy base and a stormy sea swirling around, this lighthouse in Porthcawl, on the south coast of Wales, has been standing resilient since 1860. At 30 feet tall, Porthcawl Lighthouse, designed by the eminent engineer James Walker, is often pictured being battered by waves when storms hit. The town's rugged coastline, with its hidden rocky coves, has always posed a perilous challenge to sailors. Porthcawl Lighthouse was built to help guide the increasing maritime traffic along the Bristol Channel. This cast-iron lighthouse was the last one in the UK to be powered by coal and gas. Although it was converted to electric power in 1997, the lighthouse still maintains its historical charm.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Porthcawl Lighthouse, Wales, UK](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Porthcawl Lighthouse, Wales, UK](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_1080x1920.jpg) |edStag_EN-US3910525623_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1080x1920.jpg) |_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_1080x1920.jpg) |com/th?id=OHR.ManarolaItaly_EN-US4826543395_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_1080x1920.jpg) |rs=1&c=4) | ![Arches National Park anniversary](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
