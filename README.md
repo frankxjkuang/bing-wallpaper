@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241126
+
+> Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Today, we're not just offering you an olive branch—we've got the whole tree. November 26 is World Olive Tree Day, so we're taking some time to appreciate this amazing plant. Olive trees were first cultivated in the eastern Mediterranean around 8,000 years ago. From there, they were introduced to the Greek islands and mainland by the Phoenicians, then farther afield, reaching Spain and the western edge of the Mediterranean by around 1000 BCE. The olive branch has been a symbol of peace since ancient times, and olive trees have been grown for their oil, wood, and fruit for millennia.
+> 
+> The southern region of Puglia in Italy, seen here, has an estimated 60 million olive trees and produces about 40% of the country's olive oil. The oldest olive tree in Puglia, and one of the oldest in Italy, is thought to be almost 4,000 years old and its olives are still used to make oil. The olive grove in today's image also has another link to the past: The structure between the trees is a trullo. These dwellings, made without mortar, are only found in Puglia. They show how deeply rooted the traditions of this region are.
+> 
+> 
+
+</details>
+
+| ![Celebrating World Olive Tree Day](https://cn.bing.com/th?id=OHR.TrulliGrove_EN-US5919292259_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating World Olive Tree Day](https://cn.bing.com/th?id=OHR.TrulliGrove_EN-US5919292259_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrulliGrove_EN-US5919292259_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrulliGrove_EN-US5919292259_1080x1920.jpg) |
+
 ### 20241125
 
 > Masai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)
@@ -112,28 +131,7 @@
 
 | ![World Children's Day](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Children's Day](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_1080x1920.jpg) |
-
-### 20241119
-
-> Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Ready for a coastal adventure? Welcome to Tasman National Park in Tasmania, an island state of Australia about 150 miles off its southeastern coast. Spanning more than 41 square miles, this park features dramatic cliffs and distinctive columns of dolerite rock. Tasmans Arch, seen in today's image, is a standout example. Shaped over time by the Tasman Sea, it was once the roof of a massive sea cave. The sea's pressure, combined with air, sand, and stones, slowly pried open the vertical cracks in the cliff, dislodging chunks of rock. The cave kept growing, deepening, and lengthening, until it eventually gave way, leaving behind this towering natural bridge. Tasmans Arch is named after the Dutch explorer Abel Tasman, who also lends his name to the state of Tasmania.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Tasmans Arch, Tasmania, Australia](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tasmans Arch, Tasmania, Australia](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_1080x1920.jpg) |com/th?id=OHR.ManarolaItaly_EN-US4826543395_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_1080x1920.jpg) |rs=1&c=4) | ![Arches National Park anniversary](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_1080x1920.jpg) |ersary](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg) |m/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
