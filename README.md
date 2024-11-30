@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241128
+
+> Wild turkeys, New York (© John Cancalosi/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Today, many Americans will spend time with friends and family, giving thanks and enjoying what some consider to be the best meal of the year. The tradition dates back to English colonists who celebrated the first Thanksgiving in Plymouth, Massachusetts, in 1621. Their treacherous journey from England the year before and their first winter claimed half of the colonists, and the rest might have died too if not for the generosity of the Wampanoag people. To celebrate their first corn harvest and thank the Native Americans who helped them, the colonists held a three-day feast.
+> 
+> The centerpiece of today's feast for many will be the turkey, which wasn't part of early celebrations. Turkey only became a tradition in the mid-1800s after President Abraham Lincoln and writer Sarah Hale popularized the holiday and meal as a way to heal post-Civil War America. Wild turkeys like the toms (males) seen in today's image are native to North America, where they have been evolving for 20 million years. Hunted to near extinction in the 19th century, the wild turkey population has rebounded to more than 7 million birds today, thanks to conservation programs.
+> 
+> 
+
+</details>
+
+| ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_1080x1920.jpg) |
+
 ### 20241127
 
 > Tombeau du Géant (Giant's Tomb) in autumn, Bouillon, Belgium (© David Briard/Getty)
@@ -112,28 +131,7 @@
 
 | ![Castle of Zafra, Spain](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castle of Zafra, Spain](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_1080x1920.jpg) |
-
-### 20241121
-
-> Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Curious about what it's like to be a lion cub living in the wild? Let's explore their life. African lion cubs like those featured here, sunbathing in the wilderness of South Africa, start life tucked away in a secluded den. Blind at birth, these little ones are vulnerable in the first few weeks of their lives and depend entirely on their mothers. At around 8 weeks old, they meet the rest of the pride and learn to socialize so they can find their place in the group. After they hit 6 months, they begin to go out hunting with adults, learning essential skills through real-life adventures.
-> 
-> Lions enter adolescence around 2 years old, and they reach maturity by 3 or 4. At this point, young males leave their mothers and group with other males, while females remain to hunt and breed in the same pride. For the lion cubs in today's image, their early experiences will lay the foundation for their place in the wild.
-> 
-> 
-
-</details>
-
-| ![Lion cubs, South Africa](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lion cubs, South Africa](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_1080x1920.jpg) |EN-US4398054405_1080x1920.jpg) |ersary](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg) |m/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_1080x1920.jpg) |d=OHR.CoveArch_EN-US4653050772_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg) |m/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
