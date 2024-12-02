@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241130
+
+> Kilchurn Castle reflected in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)
+
+<details>
+<summary>Description</summary>
+
+> Put on your tartan and let the bagpipes play—it's St. Andrew's Day! Scotland's national day is a public holiday there—though not everyone takes the day off. A fisherman by trade, St. Andrew—also the patron saint of several other countries including Greece, Barbados, Romania, and Ukraine—was one of the 12 apostles and a key figure in Christianity. Though he never set foot in Scotland, his influence is immortalized in the country's flag, a white saltire on a blue background, said to represent the cross on which he was martyred.
+> 
+> Festivities on St. Andrew's Day range from traditional folk music to high-spirited cèilidhs—social gatherings that involve music, dancing, and storytelling. Food plays a central role in celebrations, too. Expect hearty servings of Scottish staples like haggis, neeps and tatties (mashed rutabaga and potatoes), smoked salmon, and oatcakes. The day also serves as a warm-up to Scotland's winter festivals, leading into Christmas, Hogmanay, and Burns Night. To mark this day, we're visiting Kilchurn Castle, a historic landmark in the Scottish Highlands. Perched on the banks of Loch Awe, the fortress was built in the mid-15th century by Sir Colin Campbell. Though this castle now stands in ruins, it still offers a glimpse into the country's medieval past and the powerful Clan Campbell.
+> 
+> 
+
+</details>
+
+| ![Saint Andrew's Day](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Saint Andrew's Day](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1080x1920.jpg) |
+
 ### 20241129
 
 > Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Sonoma Coast State Park, California](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sonoma Coast State Park, California](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_1080x1920.jpg) |
-
-### 20241123
-
-> Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> On Fibonacci Day, mathematicians and scientists honor one of their own: Leonardo Bonacci, better known as Fibonacci. The medieval mathematician popularized the Hindu-Arabic numeral system, with its use of zero, decimal points, and 10 numbers instead of the ponderous Roman numeral system. He's most famous, however, for his sequence of numbers: 0, 1, 1, 2, 3, 5, 8... By adding the first two numbers, you arrive at the third, and adding the previous two numbers, you arrive at the next number, and so on. Disregarding the zero, the first four numbers correspond to today's date, 11/23.
-> 
-> The Fibonacci sequence is also related to a mathematical phenomenon called the golden ratio, an irrational number that begins 1.61803 but whose terms go on forever after the decimal point. It is found in nature, including the spiral shapes of nautilus shells, sunflower seeds, pinecones, and the leaves of the spiral aloe plant in today's image. It is also found in the relationship between adjacent numbers in the Fibonacci sequence. As successive Fibonacci numbers above 5 are divided by the previous number, the answer gets ever closer to the golden ratio. These mysterious numbers intertwine in nature, creating beautiful patterns in unexpected places.
-> 
-> 
-
-</details>
-
-| ![Fibonacci Day](https://cn.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fibonacci Day](https://cn.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_1080x1920.jpg) |trait 4K](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1080x1920.jpg) |m/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_1080x1920.jpg) |080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
