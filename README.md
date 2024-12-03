@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241201
+
+> Icebergs, Antarctica (© Art Wolfe/DanitaDelimont.com)
+
+<details>
+<summary>Description</summary>
+
+> Today, Antarctica Day shines a spotlight on one of the world's most remarkable international agreements—the Antarctic Treaty. Signed in 1959 by 12 nations, this treaty designated the entire continent as a demilitarized zone, with a special focus on promoting scientific research and collaboration.. This day honors the spirit of global cooperation, reminding us of the collective responsibility to protect the planet's last great wilderness.
+> 
+> The name 'Antarctica' is derived from the ancient Greek word 'antarktikos,' meaning opposite the Arctic. The concept of an 'Antarctic region' was first mentioned by Greek philosopher Aristotle around 350 BCE. Despite this early reference, it wasn't until the 19th century that humans actually laid eyes on Antarctica. It is the coldest, driest, and windiest of the Earth's continents, with temperatures plunging as low as -112 degrees Fahrenheit. Vast ice sheets and glaciers found here hold about 70% of the world's fresh water. The waters are dotted with icebergs, as seen in today's image, which drift across the Southern Ocean and gradually melt over time. Species like Emperor and Adélie penguins, along with seals, mites, roundworms, and moss piglets, have made this icy habitat their permanent home.
+> 
+> 
+
+</details>
+
+| ![Antarctica Day](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Antarctica Day](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_1080x1920.jpg) |
+
 ### 20241130
 
 > Kilchurn Castle reflected in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)
@@ -112,28 +131,7 @@
 
 | ![Masai giraffes in Amboseli National Park, Kenya](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Masai giraffes in Amboseli National Park, Kenya](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |
-
-### 20241124
-
-> Sonoma Coast State Park, California (© Rachid Dahnoun/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Sonoma Coast State Park offers a picturesque retreat with its sandy beaches, natural arches, and secluded coves. Established in 1934, the park encompasses 17 miles of Northern California coastline between Jenner and Bodega Bay. Wildlife enthusiasts can spot seals, sea lions, whales, and a variety of birds like towhees, warblers, finches, sparrows, and orioles. History buffs will enjoy exploring the sea stack formation with rubbing marks believed to have been made by mammoths that roamed the area 40,000 years ago. The park is also home to historical sites like Bodega Head, where Russians built a fort in the early 1800s.
-> 
-> Fort Ross, near the park, was established in 1812 by the Russian-American Company. This settlement marked the southernmost expansion of Russian colonization in North America. The fort primarily served as a hub for the fur trade, focusing on hunting sea otters along the Pacific coast. By the mid-1830s, the fur trade had declined, and in 1841, the fort was sold to John Sutter, an American entrepreneur.
-> 
-> 
-
-</details>
-
-| ![Sonoma Coast State Park, California](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sonoma Coast State Park, California](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_1080x1920.jpg) |080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
