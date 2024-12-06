@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241204
+
+> Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> It's Wildlife Conservation Day—an important reminder to celebrate and defend our planet's incredible biodiversity. Many species face extinction, including African forest elephants, Cross River gorillas, and Yangtze finless porpoises. Since its launch in 2012, this special day has highlighted illegal wildlife trade and other threats that animals face. It also draws attention to the need for stronger long-term solutions.
+> 
+> The journey of the white rhinoceros, featured in today's image, illustrates the importance of conservation efforts. They have two subspecies: the near-threatened southern white rhinoceros and the critically endangered northern white rhinoceros. In the late 19th century, the southern white rhino, found in South Africa, Namibia, Zimbabwe, and Kenya, was on the brink of extinction due to relentless poaching for their horns. But thanks to more than a century of dedicated management, their numbers have bounced back significantly. Unfortunately, the northern white rhino is in a precarious situation, with only two left—a mother and daughter. They're now under protection at Kenya's Ol Pejeta Conservancy.
+> 
+> 
+
+</details>
+
+| ![Wildlife Conservation Day](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wildlife Conservation Day](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_1080x1920.jpg) |
+
 ### 20241203
 
 > Sattais Katcheri (Court of 27 Pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_1080x1920.jpg) |
-
-### 20241127
-
-> Tombeau du Géant (Giant's Tomb) in autumn, Bouillon, Belgium (© David Briard/Getty)
-
-<details>
-<summary>Description</summary>
-
-> Tombeau du Géant in Bouillon, Belgium, offers a picturesque panorama for those who make the journey to see it. The Giant's Tomb, as the hill is known in English, resembles a giant resting in the crook of the 130-mile-long Semois River. The name originates from a local legend about a Gallic giant, Treviso, who chose to leap off the cliffs of Rocher des Gattes rather than be captured by Roman soldiers. This vantage point, popular among hikers and road-trippers, provides a view that shifts dramatically with the seasons. During autumn, the landscape dons warm colors, as seen in today's image, making it an ideal spot for nature enthusiasts and photographers.
-> 
-> While here, you might want to visit Bouillon, a town that invites you to step back in time. It's famous for its medieval castle, Château de Bouillon, once home to Godfrey of Bouillon, a leader of the First Crusade. Visitors can explore the tunnels and towers of the castle, imagining what life was like during the Middle Ages.
-> 
-> 
-
-</details>
-
-| ![Tombeau du Géant in Bouillon, Belgium](https://cn.bing.com/th?id=OHR.SemoisRiver_EN-US6047540380_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tombeau du Géant in Bouillon, Belgium](https://cn.bing.com/th?id=OHR.SemoisRiver_EN-US6047540380_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SemoisRiver_EN-US6047540380_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SemoisRiver_EN-US6047540380_1080x1920.jpg) |&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_1080x1920.jpg) |?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
