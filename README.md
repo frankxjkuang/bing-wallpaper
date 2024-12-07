@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241205
+
+> Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Shaped by the slow passage of time, tufa—a type of porous limestone—emerges as one of nature's most spectacular formations. While these towers can be found in many places, today's image shows some at Mono Lake in Mono County, California. These structures develop when calcium-rich fresh water, flowing into the lake from several creeks and streams, mixes with the lake's alkaline water. Over centuries, this interaction caused calcium carbonate to build up, forming tufa spires above the lake's surface. To preserve the tufa towers, the Mono Lake Tufa State Natural Reserve was established in 1981.
+> 
+> Mono Lake is a fascinating desert lake with hypersaline and alkaline waters and no natural outlet. It supports a thriving ecosystem teeming with billions of brine shrimp and alkali flies. These tiny creatures are essential snacks for a variety of migratory birds, like California gulls and eared grebes. As a food source, Mono Lake is a critical pit stop along the Pacific Flyway, a major migration route for birds journeying from Alaska all the way south to Patagonia.
+> 
+> 
+
+</details>
+
+| ![Tufa formations in Mono Lake, California](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tufa formations in Mono Lake, California](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_1080x1920.jpg) |
+
 ### 20241204
 
 > Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Mont-Saint-Michel, Normandy, France](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mont-Saint-Michel, Normandy, France](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_1080x1920.jpg) |
-
-### 20241128
-
-> Wild turkeys, New York (© John Cancalosi/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Today, many Americans will spend time with friends and family, giving thanks and enjoying what some consider to be the best meal of the year. The tradition dates back to English colonists who celebrated the first Thanksgiving in Plymouth, Massachusetts, in 1621. Their treacherous journey from England the year before and their first winter claimed half of the colonists, and the rest might have died too if not for the generosity of the Wampanoag people. To celebrate their first corn harvest and thank the Native Americans who helped them, the colonists held a three-day feast.
-> 
-> The centerpiece of today's feast for many will be the turkey, which wasn't part of early celebrations. Turkey only became a tradition in the mid-1800s after President Abraham Lincoln and writer Sarah Hale popularized the holiday and meal as a way to heal post-Civil War America. Wild turkeys like the toms (males) seen in today's image are native to North America, where they have been evolving for 20 million years. Hunted to near extinction in the 19th century, the wild turkey population has rebounded to more than 7 million birds today, thanks to conservation programs.
-> 
-> 
-
-</details>
-
-| ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_1080x1920.jpg) |?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_1080x1920.jpg) |x1920.jpg) |?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
