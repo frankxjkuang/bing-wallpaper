@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241206
+
+> Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Happy Independence Day, Finland! On this day in 1917, the Nordic nation declared its independence from Russia. Finland had been a grand duchy of the Russian Empire since 1809, and it was part of the Swedish Empire for the previous 600 years. However, during the Russian revolutions of 1917, Finnish nationalists saw their chance to establish an independent nation. After several months of negotiations, Finland declared independence on December 6.
+> 
+> Independence Day celebrations officially begin when the Finnish flag is raised on Tähtitorninmäki (Observatory Hill) in Helsinki. People across the country place two blue-and-white candles in their windows, a tradition dating back to the 19th century when two candles were a symbol of Finnish nationalism. In university towns, students take to the streets for torchlit processions. The day's celebrations culminate at the Presidential Palace in Helsinki. It's here that Linnan juhlat (the Castle Ball) takes place. This special gala is broadcast live and watched by millions across the country.
+> 
+> 
+
+</details>
+
+| ![Finnish Independence Day](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Finnish Independence Day](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_1080x1920.jpg) |
+
 ### 20241205
 
 > Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Saint Andrew's Day](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Saint Andrew's Day](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1080x1920.jpg) |
-
-### 20241129
-
-> Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> A tidal marvel and a slice of medieval life all rolled into one rocky outcrop—welcome to Mont-Saint-Michel in Normandy, northern France. The story of this 'Wonder of the West' goes back to the early 8th century, when Archangel Michael was said to have appeared to the bishop of Avranches in a vision. The divine message was clear: build a sanctuary on this rock. Taking this angelic advice seriously, the bishop laid the foundations of what would eventually become the abbey that dominates the island today. Over the centuries, this UNESCO World Heritage Site grew in size and reputation, attracting monks, pilgrims, and invaders alike.
-> 
-> One of the things that makes Mont-Saint-Michel such a striking place is its dramatic tidal range. When the tide is low, you can stroll across the sandy flats and approach the island on foot. But when the tide rushes in, the sea encircles the mount, turning it back into an island that can only be reached over a bridge. It's easy to see why it attracts over 3 million visitors a year.
-> 
-> 
-
-</details>
-
-| ![Mont-Saint-Michel, Normandy, France](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mont-Saint-Michel, Normandy, France](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_1080x1920.jpg) |x1920.jpg) |?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1080x1920.jpg) | |x1920.jpg) |?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
