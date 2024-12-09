@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241207
+
+> Pearl Harbor Memorial Bridge, New Haven, Connecticut (© Enzo Figueres/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, the country remembers 'a date which will live in infamy.' President Franklin D. Roosevelt spoke these words to Congress in 1941, the day after Japan's attack on the Pearl Harbor naval base in Oahu, Hawaii. The destruction inflicted on the US Pacific Fleet is one of military history's most devastating surprise attacks. More than 3,500 US servicepeople were killed or wounded, and eight battleships were destroyed or damaged in less than two hours. Following Roosevelt's speech came a declaration of war and the entrance of the US into World War II. Congress named December 7 National Pearl Harbor Remembrance Day in 1994.
+> 
+> The Pearl Harbor National Memorial holds an annual observance, but other places have also commemorated the event. Today's image is of the Pearl Harbor Memorial Bridge in New Haven, Connecticut. Locally known as the Q Bridge, it carries the I-95 over the mouth of the Quinnipiac River. In 1995, this innovative bridge replaced an older one and was renamed. With cannons of light that shoot up to the sky and a red, white, and blue lighting scheme on patriotic holidays, the Q Bridge is a poignant reminder of a dark chapter in the nation's history.
+> 
+> 
+
+</details>
+
+| ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_1080x1920.jpg) |
+
 ### 20241206
 
 > Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Antarctica Day](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Antarctica Day](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_1080x1920.jpg) |
-
-### 20241130
-
-> Kilchurn Castle reflected in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)
-
-<details>
-<summary>Description</summary>
-
-> Put on your tartan and let the bagpipes play—it's St. Andrew's Day! Scotland's national day is a public holiday there—though not everyone takes the day off. A fisherman by trade, St. Andrew—also the patron saint of several other countries including Greece, Barbados, Romania, and Ukraine—was one of the 12 apostles and a key figure in Christianity. Though he never set foot in Scotland, his influence is immortalized in the country's flag, a white saltire on a blue background, said to represent the cross on which he was martyred.
-> 
-> Festivities on St. Andrew's Day range from traditional folk music to high-spirited cèilidhs—social gatherings that involve music, dancing, and storytelling. Food plays a central role in celebrations, too. Expect hearty servings of Scottish staples like haggis, neeps and tatties (mashed rutabaga and potatoes), smoked salmon, and oatcakes. The day also serves as a warm-up to Scotland's winter festivals, leading into Christmas, Hogmanay, and Burns Night. To mark this day, we're visiting Kilchurn Castle, a historic landmark in the Scottish Highlands. Perched on the banks of Loch Awe, the fortress was built in the mid-15th century by Sir Colin Campbell. Though this castle now stands in ruins, it still offers a glimpse into the country's medieval past and the powerful Clan Campbell.
-> 
-> 
-
-</details>
-
-| ![Saint Andrew's Day](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Saint Andrew's Day](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1080x1920.jpg) | |x1920.jpg) |?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_1080x1920.jpg) |US6737063910_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1080x1920.jpg) | |x1920.jpg) |?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
