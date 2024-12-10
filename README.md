@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241208
+
+> Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In the heart of Paris stands one of the city's most enduring icons: Notre-Dame Cathedral. Built between the 12th and 13th centuries on the Île de la Cité—an island in the Seine—Notre-Dame has witnessed centuries of French history, from the Hundred Years' War to the French Revolution, and beyond. Although it was chosen by Napoleon as the site of his coronation as emperor in 1804, by the early 19th century, the cathedral was in a state of disrepair. However, one novel changed its fortunes: 'The Hunchback of Notre-Dame' by Victor Hugo, published in 1831. The popularity of this book helped encourage a restoration project that renewed the cathedral's former beauty.
+> 
+> In April 2019, tragedy struck—a fire broke out in the roof space of Notre-Dame. By the time the blaze was extinguished, the cathedral's wooden spire had been destroyed, along with most of the roof, and there was extensive damage to the tops of the building's walls. Reconstruction efforts have been underway over the last five years , and today, Notre-Dame will reopen to the public. Finally, visitors will once again be able to marvel at the medieval majesty of this beautiful cathedral.
+> 
+> 
+
+</details>
+
+| ![Notre-Dame Cathedral reopens](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Notre-Dame Cathedral reopens](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |
+
 ### 20241207
 
 > Pearl Harbor Memorial Bridge, New Haven, Connecticut (© Enzo Figueres/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Moose, Denali National Park, Alaska](https://cn.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Moose, Denali National Park, Alaska](https://cn.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_1080x1920.jpg) |
-
-### 20241201
-
-> Icebergs, Antarctica (© Art Wolfe/DanitaDelimont.com)
-
-<details>
-<summary>Description</summary>
-
-> Today, Antarctica Day shines a spotlight on one of the world's most remarkable international agreements—the Antarctic Treaty. Signed in 1959 by 12 nations, this treaty designated the entire continent as a demilitarized zone, with a special focus on promoting scientific research and collaboration.. This day honors the spirit of global cooperation, reminding us of the collective responsibility to protect the planet's last great wilderness.
-> 
-> The name 'Antarctica' is derived from the ancient Greek word 'antarktikos,' meaning opposite the Arctic. The concept of an 'Antarctic region' was first mentioned by Greek philosopher Aristotle around 350 BCE. Despite this early reference, it wasn't until the 19th century that humans actually laid eyes on Antarctica. It is the coldest, driest, and windiest of the Earth's continents, with temperatures plunging as low as -112 degrees Fahrenheit. Vast ice sheets and glaciers found here hold about 70% of the world's fresh water. The waters are dotted with icebergs, as seen in today's image, which drift across the Southern Ocean and gradually melt over time. Species like Emperor and Adélie penguins, along with seals, mites, roundworms, and moss piglets, have made this icy habitat their permanent home.
-> 
-> 
-
-</details>
-
-| ![Antarctica Day](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Antarctica Day](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_1080x1920.jpg) |US6737063910_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1080x1920.jpg) | |x1920.jpg) |?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_1080x1920.jpg) |ntarctica_EN-US6829804691_1080x1920.jpg) |US6737063910_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1080x1920.jpg) | |x1920.jpg) |?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
