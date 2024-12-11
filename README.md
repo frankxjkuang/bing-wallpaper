@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241209
+
+> Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Prick up your ears and crane your neck—it's National Llama Day. Part of a family that includes camels, alpacas, and guanacos, llamas have long been domesticated in South America because of their hardiness and ability to thrive on the bleak vegetation in the mountains and plateaus of the Andes. At up to 6 feet tall and weighing up to 400 pounds, they were used primarily as pack animals for about 6,500 years. They were also bred as a source of food, hides, tallow for candles, dung for fuel, and fabric. While inferior to alpaca and guanaco wool, llama fleece is soft, warm, durable, and fairly lightweight. It's used for clothing, rugs, and rope.
+> 
+> Unlike their wild guanaco cousins, seen in today's image in Torres del Paine National Park, Chile, llamas have been popular on farms across the US since the 1980s. Llamas are surprisingly clean, smart, and loyal companions that can even be trained as therapy animals. Their gentle nature has made them popular at petting zoos and farms, and unlike their camel cousins, they rarely spit at humans. They're also good guard animals that will charge at predators and scream at intruders. With a population of almost 30,000 in the country, Americans have clearly fallen in love with llamas.
+> 
+> 
+
+</details>
+
+| ![Llama Day](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Llama Day](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_1080x1920.jpg) |
+
 ### 20241208
 
 > Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Amber Fort, Jaipur, Rajasthan, India](https://cn.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Amber Fort, Jaipur, Rajasthan, India](https://cn.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_1080x1920.jpg) |
-
-### 20241202
-
-> Female moose, Denali National Park, Alaska (© Cavan Images/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Have you ever experienced the awe of seeing an Alaskan moose? The largest moose species, these creatures can weigh 1,400 pounds and reach heights of up to 6 feet at the shoulder. Male moose are called bulls, females are known as cows, and their young are referred to as calves. One thing that really sets moose apart is their incredible antlers, which are only sported by the males.
-> 
-> Pictured here is a cow in Denali National Park, where around 1,800 moose roam the forested areas near lakes and marshes north of the Alaska Range. Denali's largest herbivores, these mammals feast on willow, birch, and aspen twigs during the winter. When summer rolls around, they enjoy a diverse diet of flowering plants, pond vegetation, and deciduous leaves. While moose aren't usually aggressive, they can turn hostile if bothered by people, dogs, or traffic—especially when they're tired or hungry in winter, struggling through deep snow. Bull moose may also become quite aggressive during mating season in autumn and winter. So, best to admire these giants from a safe distance!
-> 
-> 
-
-</details>
-
-| ![Moose, Denali National Park, Alaska](https://cn.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Moose, Denali National Park, Alaska](https://cn.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_1080x1920.jpg) |ntarctica_EN-US6829804691_1080x1920.jpg) |US6737063910_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1080x1920.jpg) | |x1920.jpg) |?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_1080x1920.jpg) |0.jpg) | |x1920.jpg) |?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
