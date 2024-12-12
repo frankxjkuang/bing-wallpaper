@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241210
+
+> The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Windswept cliffs, rugged beauty, and dramatic ocean views—welcome to Land's End in Cornwall, England. Since ancient Greek times, when it was known as 'Belerion' or 'Place of the Sun,' or in Arthurian legends about the lost land of Lyonesse, Land's End has always been a place of fascination. Land's End is the most southwestern point on mainland Britain. It's often the starting point or end of charity races that run the length of the island of Great Britain from Land's End to John o'Groats at Britain's northeastern tip.
+> 
+> The first thing you'll notice about Land's End is the cliffs towering above the crashing waves. The sea carved these granite walls over millennia, creating one of the most striking coastlines in the United Kingdom. These cliffs are part of the South West Coast Path, a 630-mile trail popular among hikers that runs from Minehead in Somerset to Poole in Dorset. The Cornish Coastal Path, featured in today's image, is a section of this trail, and snow here is a rare occurrence because of Cornwall's mild coastal climate and proximity to the Atlantic Ocean. So, whether you're here to hike, relax, or just stand at the frozen edge, Land's End is a memorable cliffhanger.
+> 
+> 
+
+</details>
+
+| ![Land's End, Cornwall, England](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Land's End, Cornwall, England](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_1080x1920.jpg) |
+
 ### 20241209
 
 > Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)
@@ -112,28 +131,7 @@
 
 | ![Wildlife Conservation Day](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wildlife Conservation Day](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_1080x1920.jpg) |
-
-### 20241203
-
-> Sattais Katcheri (Court of 27 Pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Grand palaces and towering forts shape the landscape of the Indian state of Rajasthan. Among the most prominent is Amber Fort, also known as Amer Fort or Amber Palace, which is perched on a small hill about 7 miles from the main city of Jaipur. Within its regal walls lies the Sattais Katcheri, which means 'court of 27 pillars,' featured in today's image. Amber Fort was built in 1592 and it served as the residence of the maharajas, or rulers, of the area. Famous for its unique blend of Hindu, Rajput, and Mughal architectural styles, it is constructed from pale yellow and pink sandstone alongside white marble. This masterpiece is spread across four levels, each with its own courtyard. Part of the wider Hill Forts of Rajasthan UNESCO World Heritage Site, Amber Fort invites visitors to explore a rich blend of history and royalty.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Amber Fort, Jaipur, Rajasthan, India](https://cn.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Amber Fort, Jaipur, Rajasthan, India](https://cn.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_1080x1920.jpg) |0.jpg) | |x1920.jpg) |?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1080x1920.jpg) |_EN-US4470232432_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
