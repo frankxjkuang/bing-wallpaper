@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241211
+
+> Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, we celebrate International Mountain Day, an event to honor the towering giants of our planet. Among them are the Tre Cime di Lavaredo, or the 'Three Peaks of Lavaredo,' seen on the right in today's image. A part of the Sexten Dolomites in northeastern Italy, they're one of the most famous mountain groups in the Alps. These three peaks—Cima Grande, Cima Ovest, and Cima Piccola—are a UNESCO World Heritage Site that captivates adventurers and nature lovers alike. During World War I, the front line between Italy and Austria-Hungary cut through the peaks, leaving the area with many remnants of the conflict, such as fortifications, trenches, tunnels, and commemorative plaques.
+> 
+> International Mountain Day promotes sustainable mountain development and the preservation of these landscapes. Mountains are not only home to thousands of species of land animals and plants, but also to 15% of the world's human population. Because of climate change and overexploitation, the fragile ecosystems that mountains support—and the time we have to protect them—are slipping away faster than we think. Sometimes, even the mightiest peaks can't hold out forever.
+> 
+> 
+
+</details>
+
+| ![International Mountain Day](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Mountain Day](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_1080x1920.jpg) |
+
 ### 20241210
 
 > The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Tufa formations in Mono Lake, California](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tufa formations in Mono Lake, California](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_1080x1920.jpg) |
-
-### 20241204
-
-> Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> It's Wildlife Conservation Day—an important reminder to celebrate and defend our planet's incredible biodiversity. Many species face extinction, including African forest elephants, Cross River gorillas, and Yangtze finless porpoises. Since its launch in 2012, this special day has highlighted illegal wildlife trade and other threats that animals face. It also draws attention to the need for stronger long-term solutions.
-> 
-> The journey of the white rhinoceros, featured in today's image, illustrates the importance of conservation efforts. They have two subspecies: the near-threatened southern white rhinoceros and the critically endangered northern white rhinoceros. In the late 19th century, the southern white rhino, found in South Africa, Namibia, Zimbabwe, and Kenya, was on the brink of extinction due to relentless poaching for their horns. But thanks to more than a century of dedicated management, their numbers have bounced back significantly. Unfortunately, the northern white rhino is in a precarious situation, with only two left—a mother and daughter. They're now under protection at Kenya's Ol Pejeta Conservancy.
-> 
-> 
-
-</details>
-
-| ![Wildlife Conservation Day](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wildlife Conservation Day](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_1080x1920.jpg) |h?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
