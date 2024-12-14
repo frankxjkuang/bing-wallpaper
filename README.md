@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241212
+
+> Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Here's the red poinsettia, one of the plants synonymous with the holiday season in the United States. With its striking star-shaped leaves, the poinsettia has become a symbol of Christmas cheer, brightening homes and public spaces during winter. Today, National Poinsettia Day celebrates the legacy of Joel Roberts Poinsett, the first US ambassador to Mexico, who introduced these vibrant plants to America in the 1820s. He discovered them while exploring the Taxco region in Guerrero. So taken by their beauty, he sent clippings back to his home in Charleston, South Carolina.
+> 
+> The history of the poinsettia can be traced back to ancient civilizations. The Aztecs, who called it cuetlaxóchitl, used it to make a reddish-purple dye and treat fevers. But the plant's association with Christmas has roots in Mexican tradition, where it's known as 'la flor de Nochebuena' or 'Holy Night flower.' According to legend, a young girl, unable to afford a gift for Baby Jesus, was inspired to offer humble weeds, which miraculously transformed into the vibrant poinsettias we know today.
+> 
+> 
+
+</details>
+
+| ![Poinsettia Day](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Poinsettia Day](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_1080x1920.jpg) |
+
 ### 20241211
 
 > Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Finnish Independence Day](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Finnish Independence Day](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_1080x1920.jpg) |
-
-### 20241205
-
-> Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Shaped by the slow passage of time, tufa—a type of porous limestone—emerges as one of nature's most spectacular formations. While these towers can be found in many places, today's image shows some at Mono Lake in Mono County, California. These structures develop when calcium-rich fresh water, flowing into the lake from several creeks and streams, mixes with the lake's alkaline water. Over centuries, this interaction caused calcium carbonate to build up, forming tufa spires above the lake's surface. To preserve the tufa towers, the Mono Lake Tufa State Natural Reserve was established in 1981.
-> 
-> Mono Lake is a fascinating desert lake with hypersaline and alkaline waters and no natural outlet. It supports a thriving ecosystem teeming with billions of brine shrimp and alkali flies. These tiny creatures are essential snacks for a variety of migratory birds, like California gulls and eared grebes. As a food source, Mono Lake is a critical pit stop along the Pacific Flyway, a major migration route for birds journeying from Alaska all the way south to Patagonia.
-> 
-> 
-
-</details>
-
-| ![Tufa formations in Mono Lake, California](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tufa formations in Mono Lake, California](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_1080x1920.jpg) |h?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_1080x1920.jpg) |S7607210506_1080x1920.jpg) |h?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
