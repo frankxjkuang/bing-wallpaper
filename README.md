@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241213
+
+> Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> As the holiday season kicks off, St. Stephen's Basilica becomes the dazzling centerpiece of one of Budapest's iconic Christmas markets. The fair buzzes with holiday spirit, offering a mix of Hungarian craft, festive décor, and local delicacies, capturing the essence of a traditional Christmas. The Advent Feast—an event held in the weeks leading up to Christmas and part of Hungary's holiday traditions—invites guests to savor dishes like chimney cakes, stuffed cabbage, and goulash soup, while the scent of mulled wine and roasted chestnuts fills the air. A highlight for many is the 3D light show projected onto the basilica's facade, a modern touch that brings this historic structure to life.
+> 
+> This neoclassical basilica honors Stephen I, also known as King Saint Stephen, who was Hungary's first monarch. Completed in 1906 after decades of construction, it is topped by a towering dome. Visitors can explore its chapels, admire the intricate stained glass, or view a relic that is believed to be the mummified right hand of the king himself. For those seeking a panoramic view, the dome has an observation deck where visitors can enjoy sweeping views of the city's skyline, as shown in today's image.
+> 
+> 
+
+</details>
+
+| ![Christmas market, St. Stephen's Basilica, Budapest, Hungary](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas market, St. Stephen's Basilica, Budapest, Hungary](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_1080x1920.jpg) |
+
 ### 20241212
 
 > Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)
@@ -112,27 +131,7 @@
 
 | ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_1080x1920.jpg) |
-
-### 20241206
-
-> Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Happy Independence Day, Finland! On this day in 1917, the Nordic nation declared its independence from Russia. Finland had been a grand duchy of the Russian Empire since 1809, and it was part of the Swedish Empire for the previous 600 years. However, during the Russian revolutions of 1917, Finnish nationalists saw their chance to establish an independent nation. After several months of negotiations, Finland declared independence on December 6.
-> 
-> Independence Day celebrations officially begin when the Finnish flag is raised on Tähtitorninmäki (Observatory Hill) in Helsinki. People across the country place two blue-and-white candles in their windows, a tradition dating back to the 19th century when two candles were a symbol of Finnish nationalism. In university towns, students take to the streets for torchlit processions. The day's celebrations culminate at the Presidential Palace in Helsinki. It's here that Linnan juhlat (the Castle Ball) takes place. This special gala is broadcast live and watched by millions across the country.
-> 
-> 
-
-</details>
-
-| ![Finnish Independence Day](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Finnish Independence Day](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_1080x1920.jpg) |S7607210506_1080x1920.jpg) |h?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1080x1920.jpg) |--:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
