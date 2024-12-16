@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241214
+
+> Northern hawk-owl, Canada (© pchoui/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> For 125 years, bird enthusiasts across North America have turned the holiday season into a festive, feathered affair with the Christmas Bird Count. Founded by ornithologist Frank Chapman as an eco-friendly twist on holiday hunting parties, this annual event replaced shotguns with binoculars. Since then, it has become one of the world's longest-running citizen science projects. Every year from December 14 to January 5, volunteers of all ages and birding skill levels come together to survey designated areas called 'circles.' Each circle has a 15-mile diameter, and participants count every bird they see or hear within it. The result is a colossal snapshot of bird diversity, with data collected from over 2,500 locations each season. It's a serious effort to track changes in bird populations, providing valuable data for scientists working to protect vulnerable species.
+> 
+> One of the fascinating species you might spot is the northern hawk-owl. This medium-sized owl is found in the boreal forests of North America and Europe. Active only during the day, it has exceptional hearing and can plunge into the snow to capture rodents. With its long, tapered tail and small head resembling a hawk, the northern hawk-owl is a striking sight. These owls don't migrate, so they can be spotted year-round. However, winter is the best time to catch a glimpse as they may move south from Canada into the northern United States to find food when it's scarce in their regular territory.
+> 
+> 
+
+</details>
+
+| ![Christmas Bird Count turns 125](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas Bird Count turns 125](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1080x1920.jpg) |
+
 ### 20241213
 
 > Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![Notre-Dame Cathedral reopens](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Notre-Dame Cathedral reopens](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |
-
-### 20241207
-
-> Pearl Harbor Memorial Bridge, New Haven, Connecticut (© Enzo Figueres/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, the country remembers 'a date which will live in infamy.' President Franklin D. Roosevelt spoke these words to Congress in 1941, the day after Japan's attack on the Pearl Harbor naval base in Oahu, Hawaii. The destruction inflicted on the US Pacific Fleet is one of military history's most devastating surprise attacks. More than 3,500 US servicepeople were killed or wounded, and eight battleships were destroyed or damaged in less than two hours. Following Roosevelt's speech came a declaration of war and the entrance of the US into World War II. Congress named December 7 National Pearl Harbor Remembrance Day in 1994.
-> 
-> The Pearl Harbor National Memorial holds an annual observance, but other places have also commemorated the event. Today's image is of the Pearl Harbor Memorial Bridge in New Haven, Connecticut. Locally known as the Q Bridge, it carries the I-95 over the mouth of the Quinnipiac River. In 1995, this innovative bridge replaced an older one and was renamed. With cannons of light that shoot up to the sky and a red, white, and blue lighting scheme on patriotic holidays, the Q Bridge is a poignant reminder of a dark chapter in the nation's history.
-> 
-> 
-
-</details>
-
-| ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Pearl Harbor Remembrance Day](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_1080x1920.jpg) |pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
