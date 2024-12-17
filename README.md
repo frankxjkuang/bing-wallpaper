@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241215
+
+> Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> You might have heard of a pool of tears, but have you ever heard of a lake of tears? Well, legend has it that Lake Misurina, pictured here, in Italy's Dolomites, was born from the sorrow of a giant named Sorapis. At more than 5,700 feet above sea level, it is the largest natural lake in the Cadore region, with its perimeter stretching more than 1.5 miles. The area around the lake is known for its beneficial climate, especially for those with respiratory conditions. Its crystal-clear waters and surrounding hotels provide a perfect getaway for up to 500 visitors. The lake played a role in the 1956 Winter Olympics, where it hosted speed skating events on natural ice, and it has even been immortalized in a pop song by singer Claudio Baglioni. With astounding views, mythical roots, and activities for every season, this lake may well be the Dolomites' most alluring reflection.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Lake Misurina, Dolomites, Italy](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Misurina, Dolomites, Italy](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_1080x1920.jpg) |
+
 ### 20241214
 
 > Northern hawk-owl, Canada (© pchoui/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Llama Day](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Llama Day](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_1080x1920.jpg) |
-
-### 20241208
-
-> Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In the heart of Paris stands one of the city's most enduring icons: Notre-Dame Cathedral. Built between the 12th and 13th centuries on the Île de la Cité—an island in the Seine—Notre-Dame has witnessed centuries of French history, from the Hundred Years' War to the French Revolution, and beyond. Although it was chosen by Napoleon as the site of his coronation as emperor in 1804, by the early 19th century, the cathedral was in a state of disrepair. However, one novel changed its fortunes: 'The Hunchback of Notre-Dame' by Victor Hugo, published in 1831. The popularity of this book helped encourage a restoration project that renewed the cathedral's former beauty.
-> 
-> In April 2019, tragedy struck—a fire broke out in the roof space of Notre-Dame. By the time the blaze was extinguished, the cathedral's wooden spire had been destroyed, along with most of the roof, and there was extensive damage to the tops of the building's walls. Reconstruction efforts have been underway over the last five years , and today, Notre-Dame will reopen to the public. Finally, visitors will once again be able to marvel at the medieval majesty of this beautiful cathedral.
-> 
-> 
-
-</details>
-
-| ![Notre-Dame Cathedral reopens](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Notre-Dame Cathedral reopens](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_1080x1920.jpg) |NotreDame_EN-US8084146311_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
