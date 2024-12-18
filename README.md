@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241216
+
+> Salzburg, Austria (© bluejayphoto/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, we're in the Austrian city of Salzburg, a place that never goes out of style. The Advent season here creates a magical atmosphere, making it a truly unforgettable time to visit this city. Twinkling decorations bring the place to life, and the cozy scents of warm chestnuts, mulled wine, and freshly baked cookies mingle in the air. During this time, Salzburger Christkindlmarkt, a world-famous traditional Advent market, is hosted here. Seen on the hill in today's image is the Hohensalzburg Fortress, home to the popular Fortress Advent market, brimming with holiday cheer.
+> 
+> The streets come alive with parades featuring Krampus and Perchten, unsettling figures central to Austria's cherished folk traditions. When these fearsome characters storm down the streets, half dancing, half stomping, they leave everyone watching with chills. These parades are unlike anything else and are as much a part of Salzburg's Christmas spirit as the soul-soothing Advent Singing. Starting as a simple Christmas carol concert back in 1946, the Salzburg Advent Singing tradition has grown into a genre all its own, inspiring Advent singing events throughout German-speaking countries. Blending traditional songs, alpine tunes, heartfelt readings, and scenic performances, it's now a cherished highlight of the pre-Christmas season. So, the Advent season in Salzburg offers a magical experience you don't want to miss.
+> 
+> 
+
+</details>
+
+| ![Salzburg, Austria](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salzburg, Austria](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg) |
+
 ### 20241215
 
 > Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Land's End, Cornwall, England](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Land's End, Cornwall, England](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_1080x1920.jpg) |
-
-### 20241209
-
-> Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Prick up your ears and crane your neck—it's National Llama Day. Part of a family that includes camels, alpacas, and guanacos, llamas have long been domesticated in South America because of their hardiness and ability to thrive on the bleak vegetation in the mountains and plateaus of the Andes. At up to 6 feet tall and weighing up to 400 pounds, they were used primarily as pack animals for about 6,500 years. They were also bred as a source of food, hides, tallow for candles, dung for fuel, and fabric. While inferior to alpaca and guanaco wool, llama fleece is soft, warm, durable, and fairly lightweight. It's used for clothing, rugs, and rope.
-> 
-> Unlike their wild guanaco cousins, seen in today's image in Torres del Paine National Park, Chile, llamas have been popular on farms across the US since the 1980s. Llamas are surprisingly clean, smart, and loyal companions that can even be trained as therapy animals. Their gentle nature has made them popular at petting zoos and farms, and unlike their camel cousins, they rarely spit at humans. They're also good guard animals that will charge at predators and scream at intruders. With a population of almost 30,000 in the country, Americans have clearly fallen in love with llamas.
-> 
-> 
-
-</details>
-
-| ![Llama Day](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Llama Day](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_1080x1920.jpg) |NotreDame_EN-US8084146311_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_1080x1920.jpg) |om/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
