@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241217
+
+> Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Step aside, regular beach houses—Reine's little red cabins are here to steal the show. One of the prettiest places in the Lofoten Islands of Norway, Reine is a fishing village with a population of around 300. A trading post since 1775, it has evolved from a commercial hub to become a sought-after tourist destination. The village's waterfront is lined with the traditional fishermen's cabins called rorbu or rorbuer, which are mostly red in color, as seen in today's image. Once important to fishermen, these cabins have now become a popular pick for tourist rentals. In 1999, German painter Ingo Kühl set up a pop-up studio in a rorbu in Reine, where he painted scenes of the harbor framed by the towering mountain range. This village truly shines in winter, when you have the chance to see the northern lights twinkling in the night sky.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Traditional red fishermen's cabins, Reine, Norway](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Traditional red fishermen's cabins, Reine, Norway](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_1080x1920.jpg) |
+
 ### 20241216
 
 > Salzburg, Austria (© bluejayphoto/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![International Mountain Day](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Mountain Day](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_1080x1920.jpg) |
-
-### 20241210
-
-> The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Windswept cliffs, rugged beauty, and dramatic ocean views—welcome to Land's End in Cornwall, England. Since ancient Greek times, when it was known as 'Belerion' or 'Place of the Sun,' or in Arthurian legends about the lost land of Lyonesse, Land's End has always been a place of fascination. Land's End is the most southwestern point on mainland Britain. It's often the starting point or end of charity races that run the length of the island of Great Britain from Land's End to John o'Groats at Britain's northeastern tip.
-> 
-> The first thing you'll notice about Land's End is the cliffs towering above the crashing waves. The sea carved these granite walls over millennia, creating one of the most striking coastlines in the United Kingdom. These cliffs are part of the South West Coast Path, a 630-mile trail popular among hikers that runs from Minehead in Somerset to Poole in Dorset. The Cornish Coastal Path, featured in today's image, is a section of this trail, and snow here is a rare occurrence because of Cornwall's mild coastal climate and proximity to the Atlantic Ocean. So, whether you're here to hike, relax, or just stand at the frozen edge, Land's End is a memorable cliffhanger.
-> 
-> 
-
-</details>
-
-| ![Land's End, Cornwall, England](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Land's End, Cornwall, England](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_1080x1920.jpg) |id=OHR.CornwallSnow_EN-US8476437458_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_1080x1920.jpg) |om/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
