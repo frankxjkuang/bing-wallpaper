@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241218
+
+> English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Every holiday season, as snow begins to fall and Christmas lights twinkle in the night, the story of 'The Nutcracker' comes to life on stages around the world. Written by Russian composer Pyotr Ilyich Tchaikovsky in 1892, this beloved ballet is based on E.T.A. Hoffmann's fairy tale 'The Nutcracker and the Mouse King.' Set on Christmas Eve, it follows a young girl named Clara, who goes on an adventure with the Nutcracker Prince as they battle the evil Mouse King. Many renowned ballet companies present their rendition of this classic every year, including the New York City Ballet, the Boston Ballet, and the English National Ballet, pictured here.
+> 
+> 'The Nutcracker' is cherished for its beautiful choreography, which includes scenes such as the 'Dance of the Sugar Plum Fairy,' performed by the principal female ballerina, and the 'Waltz of the Flowers.' Tchaikovsky's score is noted for its use of the celesta, an instrument with a bell-like tone, which perfectly captures the fairy-tale atmosphere. The ballet's first performance at St. Petersburg's Mariinsky Theatre was not well-received, but it gained worldwide popularity in the mid-20th century, particularly in the United States. Today, 'The Nutcracker,' with its timeless story of magic, wonder, and the festive spirit, remains a holiday favorite.
+> 
+> 
+
+</details>
+
+| ![English National Ballet performing 'The Nutcracker'](https://cn.bing.com/th?id=OHR.NutcrackerBallet_EN-US8927830113_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![English National Ballet performing 'The Nutcracker'](https://cn.bing.com/th?id=OHR.NutcrackerBallet_EN-US8927830113_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NutcrackerBallet_EN-US8927830113_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerBallet_EN-US8927830113_1080x1920.jpg) |
+
 ### 20241217
 
 > Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)
@@ -97,7 +116,7 @@
 
 ### 20241212
 
-> Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)
+> Wild poinsettia (aka Christmas flower) (© David Hosking/Minden Pictures)
 
 <details>
 <summary>Description</summary>
@@ -112,28 +131,7 @@
 
 | ![Poinsettia Day](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Poinsettia Day](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_1080x1920.jpg) |
-
-### 20241211
-
-> Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, we celebrate International Mountain Day, an event to honor the towering giants of our planet. Among them are the Tre Cime di Lavaredo, or the 'Three Peaks of Lavaredo,' seen on the right in today's image. A part of the Sexten Dolomites in northeastern Italy, they're one of the most famous mountain groups in the Alps. These three peaks—Cima Grande, Cima Ovest, and Cima Piccola—are a UNESCO World Heritage Site that captivates adventurers and nature lovers alike. During World War I, the front line between Italy and Austria-Hungary cut through the peaks, leaving the area with many remnants of the conflict, such as fortifications, trenches, tunnels, and commemorative plaques.
-> 
-> International Mountain Day promotes sustainable mountain development and the preservation of these landscapes. Mountains are not only home to thousands of species of land animals and plants, but also to 15% of the world's human population. Because of climate change and overexploitation, the fragile ecosystems that mountains support—and the time we have to protect them—are slipping away faster than we think. Sometimes, even the mightiest peaks can't hold out forever.
-> 
-> 
-
-</details>
-
-| ![International Mountain Day](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Mountain Day](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_1080x1920.jpg) |id=OHR.CornwallSnow_EN-US8476437458_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_1080x1920.jpg) |om/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_1080x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_1080x1920.jpg) |om/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
