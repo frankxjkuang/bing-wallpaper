@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241219
+
+> Christmas market in Sibiu, Romania (© Calin Stan/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> As the winter chill sets in, the city of Sibiu transforms into a dazzling holiday wonderland as it hosts one of Romania's most popular Christmas markets. The Sibiu Christmas Market, known in Romanian as Târgul de Crăciun din Sibiu, is held in the central square from the end of November until early January. Sparkling strings of lights drape across the square, seen in today's image, creating a canopy that bathes the cobblestone streets in a warm, festive glow. There also stands a beautifully lit Christmas tree, surrounded by charming wooden huts selling everything from handcrafted ornaments to locally made treats like cozonac, a traditional Romanian sweet bread; vin fiert, an aromatic mulled wine; and covrigi, a type of pretzel served warm and sprinkled with salt.
+> 
+> Sibiu itself is a place steeped in history, known for its well-preserved medieval architecture, colorful facades, and vibrant cultural scene. Once the wealthiest city founded by German settlers in the 12th century, it was designated the European Capital of Culture for 2007. During the Christmas season, Sibiu shines even brighter, with carousels, ice skating rinks, and performances that bring the city to life.
+> 
+> 
+
+</details>
+
+| ![Sibiu Christmas market, Romania](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sibiu Christmas market, Romania](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_1080x1920.jpg) |
+
 ### 20241218
 
 > English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Christmas market, St. Stephen's Basilica, Budapest, Hungary](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas market, St. Stephen's Basilica, Budapest, Hungary](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_1080x1920.jpg) |
-
-### 20241212
-
-> Wild poinsettia (aka Christmas flower) (© David Hosking/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Here's the red poinsettia, one of the plants synonymous with the holiday season in the United States. With its striking star-shaped leaves, the poinsettia has become a symbol of Christmas cheer, brightening homes and public spaces during winter. Today, National Poinsettia Day celebrates the legacy of Joel Roberts Poinsett, the first US ambassador to Mexico, who introduced these vibrant plants to America in the 1820s. He discovered them while exploring the Taxco region in Guerrero. So taken by their beauty, he sent clippings back to his home in Charleston, South Carolina.
-> 
-> The history of the poinsettia can be traced back to ancient civilizations. The Aztecs, who called it cuetlaxóchitl, used it to make a reddish-purple dye and treat fevers. But the plant's association with Christmas has roots in Mexican tradition, where it's known as 'la flor de Nochebuena' or 'Holy Night flower.' According to legend, a young girl, unable to afford a gift for Baby Jesus, was inspired to offer humble weeds, which miraculously transformed into the vibrant poinsettias we know today.
-> 
-> 
-
-</details>
-
-| ![Poinsettia Day](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Poinsettia Day](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_1080x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_1080x1920.jpg) |om/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_1080x1920.jpg) |eDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
