@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241220
+
+> Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Nestled in Rovaniemi, Finland, and pictured in today's image, Santa Claus Village is a magical year-round destination where visitors can step into the enchanting world of Christmas. Situated right on the Arctic Circle, this village offers unique experiences, like meeting Santa Claus himself or crossing the Arctic Circle line. Children and adults alike can meet Santa's loyal reindeer and explore a vibrant collection of Christmas-themed attractions designed to delight visitors of all ages.
+> 
+> Right at the heart of Finnish Lapland, Rovaniemi is the capital of the region. Known for its winter-wonderland landscapes of snowy forests and the magical northern lights, Rovaniemi offers a unique blend of natural beauty and festive spirit. From snowy forests to festive encounters, Rovaniemi invites visitors to experience its enchantment year-round. Whether you're on Team Christmas or Team Grinch, there's no way you won't be amazed by Rovaniemi's charm.
+> 
+> 
+
+</details>
+
+| ![Santa Claus Village in Rovaniemi, Lapland, Finland](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Santa Claus Village in Rovaniemi, Lapland, Finland](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_1080x1920.jpg) |
+
 ### 20241219
 
 > Christmas market in Sibiu, Romania (© Calin Stan/Alamy)
@@ -112,24 +131,7 @@
 
 | ![Christmas Bird Count turns 125](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas Bird Count turns 125](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1080x1920.jpg) |
-
-### 20241213
-
-> Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> As the holiday season kicks off, St. Stephen's Basilica becomes the dazzling centerpiece of one of Budapest's iconic Christmas markets. The fair buzzes with holiday spirit, offering a mix of Hungarian craft, festive décor, and local delicacies, capturing the essence of a traditional Christmas. The Advent Feast—an event held in the weeks leading up to Christmas and part of Hungary's holiday traditions—invites guests to savor dishes like chimney cakes, stuffed cabbage, and goulash soup, while the scent of mulled wine and roasted chestnuts fills the air. A highlight for many is the 3D light show projected onto the basilica's facade, a modern touch that brings this historic structure to life.
-> 
-> This neoclassical basilica honors Stephen I, also known as King Saint Stephen, who was Hungary's first monarch. Completed in 1906 after decades of construction, it is topped by a towering dome. Visitors can explore its chapels, admire the intricate stained glass, or view a relic that is believed to be the mummified right hand of the king himself. For those seeking a panoramic view, the dome has an observation deck where visitors can enjoy sweeping views of the city's skyline, as shown in today's image.
-> 
-> 
-
-</details>
-
-| ![Christmas market, St. Stephen's Basilica, Budapest, Hungary](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas market, St. Stephen's Basilica, Budapest, Hungary](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1080x1920.jpg) |N-US0865695821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_1080x1920.jpg) |eDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
