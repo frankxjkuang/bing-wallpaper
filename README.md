@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241221
+
+> Loisach River at Lake Kochelsee, Bavaria, Germany (© Christian Back/eStock Photo)
+
+<details>
+<summary>Description</summary>
+
+> The winter solstice is here. Today marks the shortest day in the Northern Hemisphere, while last night was the longest night of the year. This has been an important event for millennia, with evidence of celebrations going back as far as 10,000 BCE. Some of the world's most famous Stone Age monuments, including Stonehenge, are aligned with the point that the sun rises or sets on the winter solstice. Traditionally, it was a time for feasting and lighting of fires to symbolize the darkest day of the year. Ancient Germanic tribes celebrated the winter solstice by bringing evergreens into their homes as a symbol of the returning light and the coming spring.
+> 
+> Today's image takes us to modern-day Germany. Here we can see the Loisach, a river in Bavaria, and the solstice sun just peeking out from behind the Bavarian Alps. In many parts of Germany, the winter solstice is celebrated as Thomastag. Traditions on this day include trying to predict the future for the year ahead and getting up early to work. From today, the evenings will start to get shorter, and the days will slowly but surely get lighter. Happy midwinter!
+> 
+> 
+
+</details>
+
+| ![Happy winter solstice!](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy winter solstice!](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_1080x1920.jpg) |
+
 ### 20241220
 
 > Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)
@@ -112,24 +131,7 @@
 
 | ![Lake Misurina, Dolomites, Italy](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Misurina, Dolomites, Italy](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_1080x1920.jpg) |
-
-### 20241214
-
-> Northern hawk-owl, Canada (© pchoui/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> For 125 years, bird enthusiasts across North America have turned the holiday season into a festive, feathered affair with the Christmas Bird Count. Founded by ornithologist Frank Chapman as an eco-friendly twist on holiday hunting parties, this annual event replaced shotguns with binoculars. Since then, it has become one of the world's longest-running citizen science projects. Every year from December 14 to January 5, volunteers of all ages and birding skill levels come together to survey designated areas called 'circles.' Each circle has a 15-mile diameter, and participants count every bird they see or hear within it. The result is a colossal snapshot of bird diversity, with data collected from over 2,500 locations each season. It's a serious effort to track changes in bird populations, providing valuable data for scientists working to protect vulnerable species.
-> 
-> One of the fascinating species you might spot is the northern hawk-owl. This medium-sized owl is found in the boreal forests of North America and Europe. Active only during the day, it has exceptional hearing and can plunge into the snow to capture rodents. With its long, tapered tail and small head resembling a hawk, the northern hawk-owl is a striking sight. These owls don't migrate, so they can be spotted year-round. However, winter is the best time to catch a glimpse as they may move south from Canada into the northern United States to find food when it's scarce in their regular territory.
-> 
-> 
-
-</details>
-
-| ![Christmas Bird Count turns 125](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas Bird Count turns 125](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_1080x1920.jpg) |s 125](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1080x1920.jpg) |N-US0865695821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
