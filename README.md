@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241222
+
+> Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Santa has plenty of runway to land, but good luck trying to find a chimney. Today, we're getting ready for Christmas at Pacific Beach in San Diego, California. While it might not snow here, there's still plenty of yuletide spirit leading up to Christmas in sunny Southern California. Among many beautiful examples on San Diego's Christmas Tree Trail is the 20-foot tree at the end of a festively decorated Crystal Pier.
+> 
+> Stretching out 872 feet into the water, the family-owned pier has been a Pacific Beach icon since 1927. Once home to a ballroom and carnival-like midway, Crystal Pier has since become a mellower vacation destination and one of the few places on the West Coast with rental accommodations over the ocean. Open to the public during the day and 24/7 for hotel guests, the pier is an ideal place to take in panoramic coastal views, watch whales and surfers at play, do some fishing, or bathe in glorious coastal sunsets. Pacific Beach also has a lively restaurant, bar, and club scene if eggnog isn't your thing. There are certainly colder places to spend Christmas, but perhaps no place cooler than Crystal Pier.
+> 
+> 
+
+</details>
+
+| ![Christmas tree at Crystal Pier, San Diego, California](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas tree at Crystal Pier, San Diego, California](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_1080x1920.jpg) |
+
 ### 20241221
 
 > Loisach River at Lake Kochelsee, Bavaria, Germany (© Christian Back/eStock Photo)
@@ -112,28 +131,7 @@
 
 | ![Salzburg, Austria](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salzburg, Austria](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg) |
-
-### 20241215
-
-> Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> You might have heard of a pool of tears, but have you ever heard of a lake of tears? Well, legend has it that Lake Misurina, pictured here, in Italy's Dolomites, was born from the sorrow of a giant named Sorapis. At more than 5,700 feet above sea level, it is the largest natural lake in the Cadore region, with its perimeter stretching more than 1.5 miles. The area around the lake is known for its beneficial climate, especially for those with respiratory conditions. Its crystal-clear waters and surrounding hotels provide a perfect getaway for up to 500 visitors. The lake played a role in the 1956 Winter Olympics, where it hosted speed skating events on natural ice, and it has even been immortalized in a pop song by singer Claudio Baglioni. With astounding views, mythical roots, and activities for every season, this lake may well be the Dolomites' most alluring reflection.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Lake Misurina, Dolomites, Italy](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Misurina, Dolomites, Italy](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_1080x1920.jpg) |s 125](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1080x1920.jpg) |N-US0865695821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg) |80x1920.jpg) |N-US0865695821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_1080x1920.jpg) |eDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
