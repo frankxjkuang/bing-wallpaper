@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241223
+
+> Red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)
+
+<details>
+<summary>Description</summary>
+
+> 'A Festivus for the rest of us!' This is the unofficial motto of a non-commercial alternative to Christmas. Celebrated on December 23, Festivus was popularized by the TV show 'Seinfeld,' although it was actually invented by the family of one of the series' writers. The celebration centers around the unadorned aluminum Festivus pole. After dinner, the traditional Festivus 'airing of grievances' gets underway. This consists of telling friends and family the ways they've disappointed you over the year. This can provide some much-needed catharsis at what can be a stressful time of year. The day traditionally concludes with feats of strength. Once the head of the household has been pinned, Festivus is officially over. Those who embrace this farcical holiday welcome the opportunity to let off some steam amid the Christmas build-up chaos—much like these red-crowned cranes in Hokkaido, Japan.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Celebrating Festivus](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Festivus](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_1080x1920.jpg) |
+
 ### 20241222
 
 > Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)
@@ -112,22 +131,7 @@
 
 | ![Traditional red fishermen's cabins, Reine, Norway](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Traditional red fishermen's cabins, Reine, Norway](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_1080x1920.jpg) |
-
-### 20241216
-
-> Salzburg, Austria (© bluejayphoto/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, we're in the Austrian city of Salzburg, a place that never goes out of style. The Advent season here creates a magical atmosphere, making it a truly unforgettable time to visit this city. Twinkling decorations bring the place to life, and the cozy scents of warm chestnuts, mulled wine, and freshly baked cookies mingle in the air. During this time, Salzburger Christkindlmarkt, a world-famous traditional Advent market, is hosted here. Seen on the hill in today's image is the Hohensalzburg Fortress, home to the popular Fortress Advent market, brimming with holiday cheer.
-> 
-> The streets come alive with parades featuring Krampus and Perchten, unsettling figures central to Austria's cherished folk traditions. When these fearsome characters storm down the streets, half dancing, half stomping, they leave everyone watching with chills. These parades are unlike anything else and are as much a part of Salzburg's Christmas spirit as the soul-soothing Advent Singing. Starting as a simple Christmas carol concert back in 1946, the Salzburg Advent Singing tradition has grown into a genre all its own, inspiring Advent singing events throughout German-speaking countries. Blending traditional songs, alpine tunes, heartfelt readings, and scenic performances, it's now a cherished highlight of the pre-Christmas season. So, the Advent season in Salzburg offers a magical experience you don't want to miss.
-> 
-> 
-
-</details>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_1080x1920.jpg) |>
 
 | ![Salzburg, Austria](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salzburg, Austria](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
