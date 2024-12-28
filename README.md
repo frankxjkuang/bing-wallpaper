@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241226
+
+> Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As the last notes of Christmas carols linger in the air, Boxing Day arrives. This day is celebrated in the United Kingdom, Canada, and several Commonwealth countries. In the past, it was customary for the wealthy to give boxes filled with gifts to their servants on the day after Christmas. The tradition evolved into a day for charitable giving to the less fortunate. Today, while the spirit of giving remains, it has transformed into a holiday about enjoying bustling sales and a lineup of soccer matches.
+> 
+> Let's visit the harbor of Mousehole, a fishing village in Cornwall, England, to keep the merriment going. Featured in today's image, Mousehole harbor is known for its Christmas illuminations. The Mousehole lights were first lit in the early 1960s, thanks to local artist Joan Gillchrest. A few humble strings of lights soon turned into a full-blown spectacle, growing over the years to include iconic scenes, nautical motifs, and Cornish themes. Today, the lights, switched on from December until early January, span the entire harbor, wrapping buildings, boats, and even the water's edge in a soft glow.
+> 
+> 
+
+</details>
+
+| ![Boxing Day](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Boxing Day](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_1080x1920.jpg) |
+
 ### 20241225
 
 > Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Santa Claus Village in Rovaniemi, Lapland, Finland](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Santa Claus Village in Rovaniemi, Lapland, Finland](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_1080x1920.jpg) |
-
-### 20241219
-
-> Christmas market in Sibiu, Romania (© Calin Stan/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> As the winter chill sets in, the city of Sibiu transforms into a dazzling holiday wonderland as it hosts one of Romania's most popular Christmas markets. The Sibiu Christmas Market, known in Romanian as Târgul de Crăciun din Sibiu, is held in the central square from the end of November until early January. Sparkling strings of lights drape across the square, seen in today's image, creating a canopy that bathes the cobblestone streets in a warm, festive glow. There also stands a beautifully lit Christmas tree, surrounded by charming wooden huts selling everything from handcrafted ornaments to locally made treats like cozonac, a traditional Romanian sweet bread; vin fiert, an aromatic mulled wine; and covrigi, a type of pretzel served warm and sprinkled with salt.
-> 
-> Sibiu itself is a place steeped in history, known for its well-preserved medieval architecture, colorful facades, and vibrant cultural scene. Once the wealthiest city founded by German settlers in the 12th century, it was designated the European Capital of Culture for 2007. During the Christmas season, Sibiu shines even brighter, with carousels, ice skating rinks, and performances that bring the city to life.
-> 
-> 
-
-</details>
-
-| ![Sibiu Christmas market, Romania](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sibiu Christmas market, Romania](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_1080x1920.jpg) |.SalzburgSnow_EN-US8262729220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salzburg, Austria](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_1080x1920.jpg) |.SalzburgSnow_EN-US8262729220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salzburg, Austria](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg) |80x1920.jpg) |N-US0865695821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
