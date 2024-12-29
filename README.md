@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241227
+
+> Lake Bled, Slovenia (© Kesu01/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Lake Bled in Slovenia gets plenty of attention in summer, but winter? That's when things slow down in the best way. The lake's emerald waters take on a softer tone, and Bled Island, with its quaint church, looks straight out of a winter fairytale, as seen in today's image. The 1.3-mile lake, surrounded by the snow-dusted Julian Alps, was formed over 14,000 years ago through glacial and tectonic activity. The first signs of settlement on Bled Island date back to the New Stone Age (10,000 BCE to 3,000 BCE). Additionally, archaeologists uncovered an Early Medieval graveyard here from the 9th century CE. Today, it houses the Church of the Assumption—built in its current form near the end of the 17th century—where visitors ring the 'wishing bell' for good luck.
+> 
+> When you're here, don't let the cold keep you indoors. Take a walk around the lake, ride the traditional boat, called a pletna, to Bled Island, or head up to Bled Castle for sweeping views of the town. Feeling adventurous? There are plenty of ski slopes not far from the lake. And before you go, treat yourself to a slice of Bled cream cake—yes, it's famous for a reason, and no, you won't regret it.
+> 
+> 
+
+</details>
+
+| ![Lake Bled, Slovenia](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Bled, Slovenia](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_1080x1920.jpg) |
+
 ### 20241226
 
 > Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Happy winter solstice!](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy winter solstice!](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_1080x1920.jpg) |
-
-### 20241220
-
-> Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Nestled in Rovaniemi, Finland, and pictured in today's image, Santa Claus Village is a magical year-round destination where visitors can step into the enchanting world of Christmas. Situated right on the Arctic Circle, this village offers unique experiences, like meeting Santa Claus himself or crossing the Arctic Circle line. Children and adults alike can meet Santa's loyal reindeer and explore a vibrant collection of Christmas-themed attractions designed to delight visitors of all ages.
-> 
-> Right at the heart of Finnish Lapland, Rovaniemi is the capital of the region. Known for its winter-wonderland landscapes of snowy forests and the magical northern lights, Rovaniemi offers a unique blend of natural beauty and festive spirit. From snowy forests to festive encounters, Rovaniemi invites visitors to experience its enchantment year-round. Whether you're on Team Christmas or Team Grinch, there's no way you won't be amazed by Rovaniemi's charm.
-> 
-> 
-
-</details>
-
-| ![Santa Claus Village in Rovaniemi, Lapland, Finland](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Santa Claus Village in Rovaniemi, Lapland, Finland](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_1080x1920.jpg) |.SalzburgSnow_EN-US8262729220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salzburg, Austria](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_1080x1920.jpg) |2729220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salzburg, Austria](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg) |80x1920.jpg) |N-US0865695821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
