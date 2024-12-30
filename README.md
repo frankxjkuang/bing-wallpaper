@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241228
+
+> A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Today is a big day for conservation—it's the anniversary of the Endangered Species Act. Passed in the US in 1973, this law was a game-changer, ensuring that economic growth wouldn't steamroll over species at risk of disappearing forever. For the first time, plants were given protection too, and the focus shifted from merely avoiding extinction to actively helping species recover to the point where they could thrive without protection.
+> 
+> Today's image shows an endangered green sea turtle swimming in the waters off New Caledonia in the southwest Pacific Ocean. Found along the coastlines of over 140 countries, they nest in more than 80 countries year round. In the US, they can be found on both coasts, from Texas to Maine, and from California all the way up to southern Alaska. Despite their size and strength, they face significant challenges, including hunting, boat collisions, and entanglement in fishing nets. In the image, the turtle is gliding over staghorn coral, a threatened species of marine invertebrates. This coral can grow to over 6 feet and is crucial to marine ecosystems. Thanks to its rapid growth, it acts as a marine nursery for juvenile fish, as well as providing buffer zones against erosion and storms. Let's take a moment to appreciate the progress we've made in protecting our planet's most vulnerable species—and remember that the work is far from over.
+> 
+> 
+
+</details>
+
+| ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |
+
 ### 20241227
 
 > Lake Bled, Slovenia (© Kesu01/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Christmas tree at Crystal Pier, San Diego, California](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas tree at Crystal Pier, San Diego, California](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_1080x1920.jpg) |
-
-### 20241221
-
-> Loisach River at Lake Kochelsee, Bavaria, Germany (© Christian Back/eStock Photo)
-
-<details>
-<summary>Description</summary>
-
-> The winter solstice is here. Today marks the shortest day in the Northern Hemisphere, while last night was the longest night of the year. This has been an important event for millennia, with evidence of celebrations going back as far as 10,000 BCE. Some of the world's most famous Stone Age monuments, including Stonehenge, are aligned with the point that the sun rises or sets on the winter solstice. Traditionally, it was a time for feasting and lighting of fires to symbolize the darkest day of the year. Ancient Germanic tribes celebrated the winter solstice by bringing evergreens into their homes as a symbol of the returning light and the coming spring.
-> 
-> Today's image takes us to modern-day Germany. Here we can see the Loisach, a river in Bavaria, and the solstice sun just peeking out from behind the Bavarian Alps. In many parts of Germany, the winter solstice is celebrated as Thomastag. Traditions on this day include trying to predict the future for the year ahead and getting up early to work. From today, the evenings will start to get shorter, and the days will slowly but surely get lighter. Happy midwinter!
-> 
-> 
-
-</details>
-
-| ![Happy winter solstice!](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy winter solstice!](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_1080x1920.jpg) |2729220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salzburg, Austria](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg) |80x1920.jpg) |N-US0865695821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg) |80x1920.jpg) |N-US0865695821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_1080x1920.jpg) |eDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
