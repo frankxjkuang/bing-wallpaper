@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20241229
+
+> Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Imagine a colossal puzzle made from over 2 million stone blocks—that's Borobudur, seen in today's image. Built during the 9th century in the reign of the Shailendra dynasty—an influential ruling family in Southeast Asia—it's the world's largest Buddhist temple, standing tall on the island of Java, Indonesia. This ancient sanctum has withstood centuries of natural challenges, including volcanic eruptions and earthquakes, thanks to its advanced interlocking stone system. Historically, Borobudur was an important pilgrimage site. After being abandoned for centuries, it was rediscovered in the 19th century by the English lieutenant governor Thomas Stamford Raffles.
+> 
+> Here, each step is an architectural marvel, combining Gupta, Buddhist, and Javanese styles. The structure is divided into three sections: the base has detailed carvings that teach moral lessons; the middle level consists of five square terraces with reliefs depicting daily life and historical events; and the upper levels are three circular platforms with 72 stupas—mound-like structures containing Buddha statues. Oh, and those bell-shaped stupas on the top? Inside each one, a serene Buddha waits, watching as visitors soak in the surroundings.
+> 
+> 
+
+</details>
+
+| ![Borobudur Temple, Java, Indonesia](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Borobudur Temple, Java, Indonesia](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_1080x1920.jpg) |
+
 ### 20241228
 
 > A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Celebrating Festivus](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Festivus](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_1080x1920.jpg) |
-
-### 20241222
-
-> Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Santa has plenty of runway to land, but good luck trying to find a chimney. Today, we're getting ready for Christmas at Pacific Beach in San Diego, California. While it might not snow here, there's still plenty of yuletide spirit leading up to Christmas in sunny Southern California. Among many beautiful examples on San Diego's Christmas Tree Trail is the 20-foot tree at the end of a festively decorated Crystal Pier.
-> 
-> Stretching out 872 feet into the water, the family-owned pier has been a Pacific Beach icon since 1927. Once home to a ballroom and carnival-like midway, Crystal Pier has since become a mellower vacation destination and one of the few places on the West Coast with rental accommodations over the ocean. Open to the public during the day and 24/7 for hotel guests, the pier is an ideal place to take in panoramic coastal views, watch whales and surfers at play, do some fishing, or bathe in glorious coastal sunsets. Pacific Beach also has a lively restaurant, bar, and club scene if eggnog isn't your thing. There are certainly colder places to spend Christmas, but perhaps no place cooler than Crystal Pier.
-> 
-> 
-
-</details>
-
-| ![Christmas tree at Crystal Pier, San Diego, California](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas tree at Crystal Pier, San Diego, California](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_1080x1920.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg) |80x1920.jpg) |N-US0865695821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1080x1920.jpg) |80x1920.jpg) |N-US0865695821_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_1080x1920.jpg) |eDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
