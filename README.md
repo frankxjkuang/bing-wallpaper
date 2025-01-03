@@ -2,144 +2,136 @@
 
 ### 20250101
 
-> 在北极玩耍的北极熊 (© Ondrej Prosicky/Shutterstock)
+> Polar bears at play in the Arctic (© Ondrej Prosicky/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 元旦快乐！人类至少从公元前2000年开始庆祝新年，但不同的文化选择了与不同日期，通常与春分或是月相周期相关。公元前153年，罗马人将1月1日定为新年的开始，但在中世纪的欧洲，这一习俗逐渐被冷落。然而，自1582年起随着广泛采用格里高里历（公历），今天成为世界上大部分地区庆祝新年的日子。除了观看烟花、喝香槟和许下新年愿望外，其他全球性的传统还包括了品尝象征幸运的美食和互相赠送礼物。
+> Happy New Year's Day! Humans have celebrated the new year since at least 2000 BCE, but various cultures have chosen different days coinciding with equinoxes or lunar cycles. The Romans established January 1 as the beginning of the year in 153 BCE, but this fell out of favor throughout Europe during the medieval era. Since 1582 and the widespread adoption of the Gregorian calendar, however, much of the world now celebrates the new year today. In addition to watching fireworks, drinking champagne, and making resolutions in the wee hours of the morning, other global traditions include making noise, eating lucky foods, and giving gifts.
 > 
-> 如果你想知道今日图片中的北极熊与新年有什么关系，答案很简单，那就是“北极熊跳水”活动。世界各国都会举办冬季跳水活动，参与者跳入冰冷甚至结冰的水中，以独特的方式迎接新年。美国、加拿大、荷兰和英国等地通常都会在元旦这天举行。无论你是作为爱好者参加为慈善筹款，抑或是体验新年的传统习俗，如果打算冒险尝试“北极熊跳水”活动，请记得提前准备好一条温暖的毛巾。
+> If you're wondering what polar bears like the ones in today's image have to do with the new year, the answer is simple: polar bear plunges. Countries around the world hold winter events where participants enter frigid, often icy bodies of water, and communities in the US, Canada, the Netherlands, and the United Kingdom do this on New Year's Day. Whether doing so as an enthusiast, to raise money for charity, or as part of a new year's tradition, keep a warm towel handy if you plan to take the plunge.
 > 
 > 
 
 </details>
 
-| ![元旦快乐](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![元旦快乐](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Happy New Year!](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy New Year!](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_1080x1920.jpg) |
 
 ### 20241231
 
-> 国会山上空的烟花，渥太华，加拿大 (© naibank/Getty Images)
+> New Year's Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 今天是2024年的最后一天。新旧之年交替的夜晚被称为跨年夜，世界各地通常会举办烟火表演，一些地区则通过宗教和文化仪式迎接新年。许多国家还会用象征繁荣、长寿和好运的食物来迎接新年。在中国，人们会与亲朋好友聚在一起进行各种“除夕夜”活动，如旅行、听除夕音乐会或享用丰盛的除夕晚餐。
+> New Year's Eve, also known as Old Year's Day, is celebrated around the world with revelry, fireworks, and for some, religious and cultural observances. Many countries celebrate with foods symbolic of prosperity, long life, and good fortune for the coming year, and many people sing the Scottish folk song 'Auld Lang Syne' at the stroke of midnight in remembrance of old friends and past experiences. The new year is often personified as a baby in a tradition that dates back to ancient Greeks, and paired with an old man who represents the year that is ending.
 > 
-> 
+> Get-togethers are a common way to ring in the new year, and Rio de Janeiro, Brazil, throws a memorable one. Rio is known for many things, including colorful, exuberant celebrations, glorious beaches, and the free New Year's Eve party at Copacabana Beach, seen in today's image. Known as Réveillon to locals, this New Year's Eve soiree is the largest in the world, with millions of revelers.
 > 
 > 
 
 </details>
 
-| ![国会山上空的烟花，渥太华，加拿大](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国会山上空的烟花，渥太华，加拿大](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![New Year's Eve in Rio de Janeiro, Brazil](https://cn.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![New Year's Eve in Rio de Janeiro, Brazil](https://cn.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_1080x1920.jpg) |
 
 ### 20241230
 
-> 多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚 (© Whitworth Images/Getty Images)
+> Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 位于澳大利亚东南海岸附近的塔斯马尼亚岛的中心，坐落着菲尔德山国家公园。该公园占地超过60平方英里，是该州最古老的国家公园之一。沿着蜿蜒的公路驶入公园，你将看到多样的自然景观，从温带雨林中世界上最高的桉树到高山沼泽地。这些千变万化的景色让公园有了“四季公园”的美誉。公园必去的景点之一是罗素瀑布，瀑布呈三级，落差达190英尺。
+> At the heart of Tasmania, an island state off the southeastern coast of Australia, lies Mount Field National Park. Covering more than 60 square miles, it's one of the state's oldest national parks. As you follow the winding road up through the park, you'll see a whole range of landscapes, from temperate rainforests full of some of the world's tallest eucalyptus trees to alpine moorland. These ever-changing views are what give the park its nickname, 'the park for all seasons.' One of the park's must-visit sites is Russell Falls, a three-tiered waterfall that plunges 190 feet.
 > 
-> 今日图片展示了公园中两种世界上仅在塔斯马尼亚才有的植物。潘达尼（也被称为巨型草树）和塔斯马尼亚蓝桉。潘达尼是石楠家族中体型最大的成员，可生长至40英尺高。塔斯马尼亚雪胶是一种适宜生长在塔斯马尼亚中部高原的桉树。除了令人印象深刻的植物外，公园里还可以看到塔斯马尼亚恶魔、袋鼠和鸭嘴兽这些令人惊叹的动物。无论春夏秋冬，这个公园都能给游客带来惊喜。
+> Today's image, taken in the park, features two plants found nowhere on Earth but Tasmania: pandani—also known as the giant grass tree—and Tasmanian snow gum. Pandani is the tallest member of the heather family and can grow almost 40 feet tall, while Tasmanian snow gum is a type of eucalyptus tree that thrives in the central plateau of Tasmania. Along with its impressive flora, the park is also home to amazing fauna: Tasmanian devils, wombats, and platypuses can all be spotted here. In spring, summer, fall, and winter, this park is guaranteed to amaze.
 > 
 > 
 
 </details>
 
-| ![费尔德山国家公园，塔斯马尼亚，澳大利亚](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![费尔德山国家公园，塔斯马尼亚，澳大利亚](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Mount Field National Park, Tasmania, Australia](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Field National Park, Tasmania, Australia](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_1080x1920.jpg) |
 
 ### 20241229
 
-> 婆罗浮屠大佛寺，爪哇岛，印度尼西亚 (© Robertharding/Shutterstock)
+> Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 想象一下，一个由200多万块石头拼成的巨大拼图，这就是今日图片中的婆罗浮屠。这座寺庙建于公元9世纪，由当时统治爪哇岛的夏连特拉王朝的统治者建造，是世界上最大的佛教寺庙，巍然屹立在印度尼西亚的爪哇岛。这座古老的圣殿因其采用了先进的石块连接系统，在数百年的自然灾害中屹立不倒，包括火山喷发和地震。历史上，婆罗浮屠是一个重要的朝圣地。在被遗弃数百年后，它在19世纪被英国副总督莱佛士重新发现。
+> Imagine a colossal puzzle made from over 2 million stone blocks—that's Borobudur, seen in today's image. Built during the 9th century in the reign of the Shailendra dynasty—an influential ruling family in Southeast Asia—it's the world's largest Buddhist temple, standing tall on the island of Java, Indonesia. This ancient sanctum has withstood centuries of natural challenges, including volcanic eruptions and earthquakes, thanks to its advanced interlocking stone system. Historically, Borobudur was an important pilgrimage site. After being abandoned for centuries, it was rediscovered in the 19th century by the English lieutenant governor Thomas Stamford Raffles.
 > 
-> 婆罗浮屠的每一层都堪称建筑奇迹，融合了笈多风格、佛教风格和爪哇风格。这座建筑分为三部分：底层有雕刻精美的浮雕，传授道德教义；中间层由五个方台组成，上面的浮雕描绘了日常生活和历史事件；而上层则是三层圆台，每一层圆台边缘有一圈钟形小塔，3层共有72座，每座塔内均供奉一尊佛像。婆罗浮屠的顶端为一座巨大的钟形主塔，主塔中有一尊最大的佛像，仿佛在看着来此参观的游客是如何沉浸在这片圣地的氛围中。
+> Here, each step is an architectural marvel, combining Gupta, Buddhist, and Javanese styles. The structure is divided into three sections: the base has detailed carvings that teach moral lessons; the middle level consists of five square terraces with reliefs depicting daily life and historical events; and the upper levels are three circular platforms with 72 stupas—mound-like structures containing Buddha statues. Oh, and those bell-shaped stupas on the top? Inside each one, a serene Buddha waits, watching as visitors soak in the surroundings.
 > 
 > 
 
 </details>
 
-| ![婆罗浮屠大佛寺，爪哇岛，印度尼西亚](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![婆罗浮屠大佛寺，爪哇岛，印度尼西亚](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Borobudur Temple, Java, Indonesia](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Borobudur Temple, Java, Indonesia](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_1080x1920.jpg) |
 
 ### 20241228
 
-> 一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚 (© Damsea/Shutterstock)
+> A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 今日图片中展示了一只濒危的绿海龟正在太平洋西南部的新喀里多尼亚海域游泳。绿海龟在140多个国家的海岸线上均有分布，并全年在80多个国家筑巢。在中国，绿海龟大致分布于北起山东、南至北部湾海域。它们在中国江苏、浙江、福建、台湾、广东等沿海地带均有分布，尤其以南海最多。
+> Today is a big day for conservation—it's the anniversary of the Endangered Species Act. Passed in the US in 1973, this law was a game-changer, ensuring that economic growth wouldn't steamroll over species at risk of disappearing forever. For the first time, plants were given protection too, and the focus shifted from merely avoiding extinction to actively helping species recover to the point where they could thrive without protection.
 > 
-> 尽管绿海龟体型庞大且强壮，但它们仍面临着捕猎、船只碰撞以及被渔网缠绕等巨大的挑战。图片中，这只海龟正从鹿角珊瑚上滑过，鹿角珊瑚是一种濒危的海洋无脊椎动物，它可生长至6英尺以上，是海洋生态系统的重要组成部分。由于鹿角珊瑚快速的生长速度，它不仅为幼鱼提供了海洋育婴室，同时也为海岸线提供了抵御侵蚀和风暴的缓冲区。今天让我们花点时间来欣赏我们在保护地球上最脆弱物种方面取得的成果，但同时也别忘了，这项工作还并未结束。
+> Today's image shows an endangered green sea turtle swimming in the waters off New Caledonia in the southwest Pacific Ocean. Found along the coastlines of over 140 countries, they nest in more than 80 countries year round. In the US, they can be found on both coasts, from Texas to Maine, and from California all the way up to southern Alaska. Despite their size and strength, they face significant challenges, including hunting, boat collisions, and entanglement in fishing nets. In the image, the turtle is gliding over staghorn coral, a threatened species of marine invertebrates. This coral can grow to over 6 feet and is crucial to marine ecosystems. Thanks to its rapid growth, it acts as a marine nursery for juvenile fish, as well as providing buffer zones against erosion and storms. Let's take a moment to appreciate the progress we've made in protecting our planet's most vulnerable species—and remember that the work is far from over.
 > 
 > 
 
 </details>
 
-| ![绿海龟](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![绿海龟](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |
 
 ### 20241227
 
-> 布莱德湖，斯洛文尼亚 (© Kesu01/Getty Images)
+> Lake Bled, Slovenia (© Kesu01/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 斯洛文尼亚的布莱德湖在夏季备受关注，而在冬季，这里的一切都放慢了脚步。湖水碧绿，色调柔和，湖心岛上的古朴教堂宛如从冬季童话中走出的一般，正如今日图片所示。这座长1.3英里的湖泊，被积雪覆盖的朱利安阿尔卑斯山环绕，形成于大约14,000年前的冰川与地质活动。布莱德岛上最早的定居迹象可追溯至新石器时代（公元前10,000年至公元前3,000年）。此外，考古学家在这里还发现了公元9世纪的中世纪早期墓地。如今，这里坐落着圣母升天教堂，其现有建筑形式建于17世纪末，游客们会在这里敲响“许愿钟”以祈求好运。
+> Lake Bled in Slovenia gets plenty of attention in summer, but winter? That's when things slow down in the best way. The lake's emerald waters take on a softer tone, and Bled Island, with its quaint church, looks straight out of a winter fairytale, as seen in today's image. The 1.3-mile lake, surrounded by the snow-dusted Julian Alps, was formed over 14,000 years ago through glacial and tectonic activity. The first signs of settlement on Bled Island date back to the New Stone Age (10,000 BCE to 3,000 BCE). Additionally, archaeologists uncovered an Early Medieval graveyard here from the 9th century CE. Today, it houses the Church of the Assumption—built in its current form near the end of the 17th century—where visitors ring the 'wishing bell' for good luck.
 > 
-> 当你来到这里时，不要因为惧怕寒冷就只待在室内。围绕湖边散步，乘坐传统的手划船“普莱特纳”前往布莱德岛，或前往布莱德城堡俯瞰小镇全貌。如果喜欢冒险，湖附近还有许多滑雪场可供体验。在离开之前，不妨犒劳一下自己，去尝尝布莱德奶油蛋糕，就会明白它为什么能成为当地的美食符号。
+> When you're here, don't let the cold keep you indoors. Take a walk around the lake, ride the traditional boat, called a pletna, to Bled Island, or head up to Bled Castle for sweeping views of the town. Feeling adventurous? There are plenty of ski slopes not far from the lake. And before you go, treat yourself to a slice of Bled cream cake—yes, it's famous for a reason, and no, you won't regret it.
 > 
 > 
 
 </details>
 
-| ![布莱德湖，斯洛文尼亚](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![布莱德湖，斯洛文尼亚](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Lake Bled, Slovenia](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Bled, Slovenia](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_1080x1920.jpg) |
 
 ### 20241226
 
-> 莫斯霍尔港的圣诞灯饰，康沃尔，英格兰 (© ianwool/Getty Images)
+> Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 当圣诞颂歌的余音仍在空中回荡时，节礼日又到了。英国、加拿大及多个英联邦国家都会庆祝这个节日。过去，富人们会在圣诞节后的这一天给仆人赠送装满礼物的礼盒，这一传统后来演变为向不幸者进行慈善捐赠的日子。如今，尽管赠予的精神仍在，但这一天已转变为购物促销和观看足球比赛的节日。
+> As the last notes of Christmas carols linger in the air, Boxing Day arrives. This day is celebrated in the United Kingdom, Canada, and several Commonwealth countries. In the past, it was customary for the wealthy to give boxes filled with gifts to their servants on the day after Christmas. The tradition evolved into a day for charitable giving to the less fortunate. Today, while the spirit of giving remains, it has transformed into a holiday about enjoying bustling sales and a lineup of soccer matches.
 > 
-> 让我们前往英格兰康沃尔的渔村港口莫斯霍尔港，继续感受节日的欢乐氛围。今天的图片中的莫斯霍尔港因其圣诞灯饰而闻名于世。这些灯饰最早是由当地艺术家琼·吉尔克雷斯特于20世纪60年代初点亮的。最初的几串简单灯饰很快发展为一场盛大的视觉盛宴，逐年增加了标志性场景、航海主题和康沃尔特色主题。如今，这些灯饰从12月开始被点亮，一直持续到次年1月初，覆盖了整个港口，让建筑物、船只甚至水边都披上了柔和的光芒。
+> Let's visit the harbor of Mousehole, a fishing village in Cornwall, England, to keep the merriment going. Featured in today's image, Mousehole harbor is known for its Christmas illuminations. The Mousehole lights were first lit in the early 1960s, thanks to local artist Joan Gillchrest. A few humble strings of lights soon turned into a full-blown spectacle, growing over the years to include iconic scenes, nautical motifs, and Cornish themes. Today, the lights, switched on from December until early January, span the entire harbor, wrapping buildings, boats, and even the water's edge in a soft glow.
 > 
 > 
 
 </details>
 
-| ![节礼日](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![节礼日](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Boxing Day](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Boxing Day](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_1080x1920.jpg) |ed holiday tradition that welcome visitors into a magical world of twinkling lights, festive music, and delicious seasonal treats. These markets date back to the Middle Ages and are held in town squares throughout Germany, with iconic examples in cities such as Nuremberg, Munich, and Dresden. Each market displays unique regional crafts and festive customs. Here, guests can discover handcrafted ornaments, wooden toys, and cozy winter accessories, along with specialties like Glühwein (mulled wine), Lebkuchen (gingerbread), and roasted nuts—ideal for enjoying while immersing themselves in the enchanting atmosphere.
-> 
-> This day is celebrated worldwide with a variety of traditions. Families gather for special meals, exchange gifts, or attend midnight church services. In Greece, the evening often includes a festive meal and the tradition of hanging karavaki (little boats) as decorations. In Spain, caroling and nativity scenes are central to the day, while in Nordic countries, people light candles and sing hymns. The night is filled with warmth, anticipation, and cultural customs.
-> 
-> 
-
-</details>
-
-| ![Silent night, sparkling lights, and hearts full of joy](https://cn.bing.com/th?id=OHR.SantaSnowglobe_EN-US0704281966_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Silent night, sparkling lights, and hearts full of joy](https://cn.bing.com/th?id=OHR.SantaSnowglobe_EN-US0704281966_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_1080x1920.jpg) |id=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaSnowglobe_EN-US0704281966_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaSnowglobe_EN-US0704281966_1080x1920.jpg) |0865695821_1080x1920.jpg) |eDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
