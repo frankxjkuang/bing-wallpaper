@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250103
+
+> The Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> 'Don't adventures ever have an end? I suppose not. Someone else always has to carry on the story.' Today, on Tolkien Day, fans around the world honor the master storyteller who crafted the epic adventures of Middle-earth: J.R.R. Tolkien. While Tolkien may have started the tale, it's his readers who carry it forward, generation after generation, diving into the pages of 'The Hobbit,' 'The Lord of the Rings,' and beyond. Tolkienists are encouraged to celebrate the author's birthday with a toast at 9 PM local time—to participate, all you must do is stand and raise a glass of your choice, say 'The Professor,' and take a sip.
+> 
+> For today's featured image, it is only fitting to visit a place that might have inspired the literary legend: the Radcliffe Camera, or Rad Cam, at the University of Oxford in England. Originally a science library, the domed, circular building now serves as a reading room for the Bodleian Library. This 18th-century building is said to be an inspiration for Sauron's temple to Morgoth on Númenor in Tolkien's fiction. Though Tolkien himself didn't study there—he was a student at Exeter College—he would have passed by the Rad Cam countless times during his years as a professor of English Language and Literature at Oxford. This building, with its extraordinary exterior, continues to captivate visitors and Tolkien enthusiasts alike.
+> 
+> 
+
+</details>
+
+| ![Happy Birthday, J.R.R. Tolkien!](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Birthday, J.R.R. Tolkien!](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_1080x1920.jpg) |
+
 ### 20250102
 
 > Star trails over Ardez, Graubunden, Switzerland (© Roberto Moiola/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |
-
-### 20241227
-
-> Lake Bled, Slovenia (© Kesu01/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Lake Bled in Slovenia gets plenty of attention in summer, but winter? That's when things slow down in the best way. The lake's emerald waters take on a softer tone, and Bled Island, with its quaint church, looks straight out of a winter fairytale, as seen in today's image. The 1.3-mile lake, surrounded by the snow-dusted Julian Alps, was formed over 14,000 years ago through glacial and tectonic activity. The first signs of settlement on Bled Island date back to the New Stone Age (10,000 BCE to 3,000 BCE). Additionally, archaeologists uncovered an Early Medieval graveyard here from the 9th century CE. Today, it houses the Church of the Assumption—built in its current form near the end of the 17th century—where visitors ring the 'wishing bell' for good luck.
-> 
-> When you're here, don't let the cold keep you indoors. Take a walk around the lake, ride the traditional boat, called a pletna, to Bled Island, or head up to Bled Castle for sweeping views of the town. Feeling adventurous? There are plenty of ski slopes not far from the lake. And before you go, treat yourself to a slice of Bled cream cake—yes, it's famous for a reason, and no, you won't regret it.
-> 
-> 
-
-</details>
-
-| ![Lake Bled, Slovenia](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Bled, Slovenia](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_1080x1920.jpg) |pg) |eDame_EN-US8084146311_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonksMound_EN-US9323884241_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
