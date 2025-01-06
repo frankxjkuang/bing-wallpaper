@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250104
+
+> Bản Giốc–Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to a spot where rivers meet borders in the most stunning way: Bản Giốc–Detian Falls, featured in today's image. Tucked between the karst hills of Daxin County in China and Trùng Khánh district in Vietnam, these falls tumble along the Quây Sơn River. Over 95 feet tall and 980 feet wide, it holds the distinction of being the widest waterfall in Vietnam. Located just 169 miles north of Hanoi, this waterfall have gradually worn away their crest over the years, inching upstream. For most of the year, they flow as two distinct cascades, but come summer, when the rains swell the river, they merge into one big fall.
+> 
+> Even with better roads, easier public transport, and drone videos showing off the jaw-dropping beauty of the falls, Bản Giốc remains refreshingly off the beaten path. Mass tourism hasn't caught up yet, and on most weekdays, you'll find only a handful of visitors—just you, the locals, and the sound of cascading water.
+> 
+> 
+
+</details>
+
+| ![Bản Giốc–Detian Falls, Vietnam](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bản Giốc–Detian Falls, Vietnam](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_1080x1920.jpg) |
+
 ### 20250103
 
 > The Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)
@@ -112,24 +131,7 @@
 
 | ![Borobudur Temple, Java, Indonesia](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Borobudur Temple, Java, Indonesia](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_1080x1920.jpg) |
-
-### 20241228
-
-> A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Today is a big day for conservation—it's the anniversary of the Endangered Species Act. Passed in the US in 1973, this law was a game-changer, ensuring that economic growth wouldn't steamroll over species at risk of disappearing forever. For the first time, plants were given protection too, and the focus shifted from merely avoiding extinction to actively helping species recover to the point where they could thrive without protection.
-> 
-> Today's image shows an endangered green sea turtle swimming in the waters off New Caledonia in the southwest Pacific Ocean. Found along the coastlines of over 140 countries, they nest in more than 80 countries year round. In the US, they can be found on both coasts, from Texas to Maine, and from California all the way up to southern Alaska. Despite their size and strength, they face significant challenges, including hunting, boat collisions, and entanglement in fishing nets. In the image, the turtle is gliding over staghorn coral, a threatened species of marine invertebrates. This coral can grow to over 6 feet and is crucial to marine ecosystems. Thanks to its rapid growth, it acts as a marine nursery for juvenile fish, as well as providing buffer zones against erosion and storms. Let's take a moment to appreciate the progress we've made in protecting our planet's most vulnerable species—and remember that the work is far from over.
-> 
-> 
-
-</details>
-
-| ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_1080x1920.jpg) |m/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
