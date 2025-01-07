@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250105
+
+> Plum-headed parakeet at Shimoga, Karnataka, India (© Hira Punjabi/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Look up at the skies and experience the magic of birds—it's National Bird Day. Birds come in many shapes and colors, but few are as striking as the plum-headed parakeet, seen in today's image. Native to the Indian subcontinent, these birds are known for their swift, acrobatic flight and distinctive calls that echo through the air. There have been reports of plum-headed parakeets making their way to places like New York, Florida, and even parts of the Middle East.
+> 
+> Today's event was set up to help draw attention to the problems that the bird trade causes. When kept in captivity, birds are deprived of their ability to fly and socialize, which can be distressing to these animals. This activity also has an impact on wild bird populations, with thousands of parrots captured from the wild and sold as pets every year. National Bird Day also encourages the adoption of rescued birds and promotes habitat conservation efforts for wild birds, urging people not to buy wild-caught parrots. On this day, half a million bird lovers engage in activities like birdwatching, studying bird species, and, importantly, adopting birds.
+> 
+> 
+
+</details>
+
+| ![National Bird Day](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bird Day](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_1080x1920.jpg) |
+
 ### 20250104
 
 > Bản Giốc–Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Mount Field National Park, Tasmania, Australia](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Field National Park, Tasmania, Australia](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_1080x1920.jpg) |
-
-### 20241229
-
-> Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Imagine a colossal puzzle made from over 2 million stone blocks—that's Borobudur, seen in today's image. Built during the 9th century in the reign of the Shailendra dynasty—an influential ruling family in Southeast Asia—it's the world's largest Buddhist temple, standing tall on the island of Java, Indonesia. This ancient sanctum has withstood centuries of natural challenges, including volcanic eruptions and earthquakes, thanks to its advanced interlocking stone system. Historically, Borobudur was an important pilgrimage site. After being abandoned for centuries, it was rediscovered in the 19th century by the English lieutenant governor Thomas Stamford Raffles.
-> 
-> Here, each step is an architectural marvel, combining Gupta, Buddhist, and Javanese styles. The structure is divided into three sections: the base has detailed carvings that teach moral lessons; the middle level consists of five square terraces with reliefs depicting daily life and historical events; and the upper levels are three circular platforms with 72 stupas—mound-like structures containing Buddha statues. Oh, and those bell-shaped stupas on the top? Inside each one, a serene Buddha waits, watching as visitors soak in the surroundings.
-> 
-> 
-
-</details>
-
-| ![Borobudur Temple, Java, Indonesia](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Borobudur Temple, Java, Indonesia](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_1080x1920.jpg) |m/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_1080x1920.jpg) |_EN-US6354350828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_1080x1920.jpg) |m/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
