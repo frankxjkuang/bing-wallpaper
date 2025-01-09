@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250107
+
+> Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)
+
+<details>
+<summary>Description</summary>
+
+> Are you ready to rock the new year? Today is Old Rock Day, a day for celebrating and learning about old rocks and fossils. Rocks are common and few of us take the time to consider how amazing they are. But forged in volcanoes or molded by millennia of pressure, these solid masses of minerals hold the key to understanding how our planet formed. Rocks can also contain fossils, the remnants of long-extinct organisms, which give scientists clues about what creatures and plants have lived on Earth during its 4.5-billion-year history.
+> 
+> One of the world's most curious rock displays can be found on Koekohe Beach in New Zealand. The Moeraki Boulders, some of which are 7 feet in diameter, have been shaped by nature over millions of years. Each boulder started as a pebble on the seabed around 65 million years ago. Over time, layers of mud and silt built up around them, cemented together by calcite. Thanks to erosion and the movement of the sea, the boulders eventually emerged. Today, new boulders are still appearing, while the elements are slowly breaking down existing ones.
+> 
+> 
+
+</details>
+
+| ![Moeraki Boulders, South Island, New Zealand](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Moeraki Boulders, South Island, New Zealand](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_1080x1920.jpg) |
+
 ### 20250106
 
 > Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Happy New Year!](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy New Year!](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_1080x1920.jpg) |
-
-### 20241231
-
-> New Year's Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> New Year's Eve, also known as Old Year's Day, is celebrated around the world with revelry, fireworks, and for some, religious and cultural observances. Many countries celebrate with foods symbolic of prosperity, long life, and good fortune for the coming year, and many people sing the Scottish folk song 'Auld Lang Syne' at the stroke of midnight in remembrance of old friends and past experiences. The new year is often personified as a baby in a tradition that dates back to ancient Greeks, and paired with an old man who represents the year that is ending.
-> 
-> Get-togethers are a common way to ring in the new year, and Rio de Janeiro, Brazil, throws a memorable one. Rio is known for many things, including colorful, exuberant celebrations, glorious beaches, and the free New Year's Eve party at Copacabana Beach, seen in today's image. Known as Réveillon to locals, this New Year's Eve soiree is the largest in the world, with millions of revelers.
-> 
-> 
-
-</details>
-
-| ![New Year's Eve in Rio de Janeiro, Brazil](https://cn.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![New Year's Eve in Rio de Janeiro, Brazil](https://cn.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_1080x1920.jpg) |m/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_1080x1920.jpg) |EN-US6100263163_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
