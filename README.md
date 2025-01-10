@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250108
+
+> Snow on the Great Wall of China (© View Stock/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> New year, new goals—so why not start by taking a step toward better health? On this National Take the Stairs Day, let's climb into the past. The Great Wall of China, one of the longest humanmade structures in the world, offers the perfect inspiration. Stretching more than 13,000 miles and dating back thousands of years, the ancient marvel in today's picture is a series of fortifications spanning rugged mountains, valleys, and deserts. Featuring steep trenches and watchtowers, parts of it were designed to keep invaders at bay. Hiking the Great Wall offers a unique glimpse into this historical landmark. The experience varies from well-preserved sections like Mutianyu to wild, unrestored parts such as Jiankou. Some steps are so high, they're more like steps on a ladder! Talk about a workout—taking these stairs could rival any modern fitness challenge.
+> 
+> The Great Wall of China isn't just a wall, but a symbol of perseverance and strength. Similarly, taking the stairs instead of the elevator is a small but empowering step toward better health. Millions of people live with chronic conditions like asthma, and by choosing the stairs, you're not just building strength, but also improving your overall health. So, the next time you face an elevator, think of the Great Wall and take the stairs. Your future self will thank you!
+> 
+> 
+
+</details>
+
+| ![National Take the Stairs Day](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take the Stairs Day](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_1080x1920.jpg) |
+
 ### 20250107
 
 > Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)
@@ -112,28 +131,7 @@
 
 | ![Ardez, Graubunden, Switzerland](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ardez, Graubunden, Switzerland](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_1080x1920.jpg) |
-
-### 20250101
-
-> Polar bears at play in the Arctic (© Ondrej Prosicky/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Happy New Year's Day! Humans have celebrated the new year since at least 2000 BCE, but various cultures have chosen different days coinciding with equinoxes or lunar cycles. The Romans established January 1 as the beginning of the year in 153 BCE, but this fell out of favor throughout Europe during the medieval era. Since 1582 and the widespread adoption of the Gregorian calendar, however, much of the world now celebrates the new year today. In addition to watching fireworks, drinking champagne, and making resolutions in the wee hours of the morning, other global traditions include making noise, eating lucky foods, and giving gifts.
-> 
-> If you're wondering what polar bears like the ones in today's image have to do with the new year, the answer is simple: polar bear plunges. Countries around the world hold winter events where participants enter frigid, often icy bodies of water, and communities in the US, Canada, the Netherlands, and the United Kingdom do this on New Year's Day. Whether doing so as an enthusiast, to raise money for charity, or as part of a new year's tradition, keep a warm towel handy if you plan to take the plunge.
-> 
-> 
-
-</details>
-
-| ![Happy New Year!](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy New Year!](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_1080x1920.jpg) |EN-US6100263163_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Act](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
