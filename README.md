@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250110
+
+> Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Ever heard of frozen bubbles? Abraham Lake in Alberta, Canada, has them during the winter, and they're not just beautiful—they're science in action. Created in 1972, Abraham Lake is a human-made reservoir that spans more than 20 square miles along the North Saskatchewan River. Thanks to glacier-fed waters from the Rocky Mountains, the lake stays transparent even in the coldest months. Glacial meltwater carries fine sediment that scatters sunlight, while natural filtration through rocks keeps pollutants to a minimum.
+> 
+> The snowy season attracts photographers and visitors from around the world who are eager to capture a rare sight at Preacher's Point: bubbles. These frozen globes form when microorganisms break down dead plants and animals on the lake bed, releasing methane. As the gas rises, it gets trapped by the ice, creating layers of bubbles in various sizes and shapes. It's wild to think that they're flammable and chilling under your feet. The ice is thickest in January and February and the bubbles clearly visible. If you're planning to check it out, just remember to stick close to the shoreline for your safety.
+> 
+> 
+
+</details>
+
+| ![Abraham Lake, Alberta, Canada](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Abraham Lake, Alberta, Canada](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_1080x1920.jpg) |
+
 ### 20250109
 
 > The US Capitol dome with flags flying at half-staff in honor of former President Jimmy Carter, Washington, DC (© J. David Ake/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Bản Giốc–Detian Falls, Vietnam](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bản Giốc–Detian Falls, Vietnam](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_1080x1920.jpg) |
-
-### 20250103
-
-> The Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> 'Don't adventures ever have an end? I suppose not. Someone else always has to carry on the story.' Today, on Tolkien Day, fans around the world honor the master storyteller who crafted the epic adventures of Middle-earth: J.R.R. Tolkien. While Tolkien may have started the tale, it's his readers who carry it forward, generation after generation, diving into the pages of 'The Hobbit,' 'The Lord of the Rings,' and beyond. Tolkienists are encouraged to celebrate the author's birthday with a toast at 9 PM local time—to participate, all you must do is stand and raise a glass of your choice, say 'The Professor,' and take a sip.
-> 
-> For today's featured image, it is only fitting to visit a place that might have inspired the literary legend: the Radcliffe Camera, or Rad Cam, at the University of Oxford in England. Originally a science library, the domed, circular building now serves as a reading room for the Bodleian Library. This 18th-century building is said to be an inspiration for Sauron's temple to Morgoth on Númenor in Tolkien's fiction. Though Tolkien himself didn't study there—he was a student at Exeter College—he would have passed by the Rad Cam countless times during his years as a professor of English Language and Literature at Oxford. This building, with its extraordinary exterior, continues to captivate visitors and Tolkien enthusiasts alike.
-> 
-> 
-
-</details>
-
-| ![Happy Birthday, J.R.R. Tolkien!](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Birthday, J.R.R. Tolkien!](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_1080x1920.jpg) |S6755564963_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_1080x1920.jpg) |, from the late Bronze Age through the early Iron Age and even includes artifacts from the Roman Empire. Against this backdrop, the star trails in today's photo illuminate the timeless allure of Ardez, where history and natural beauty converge.
 > 
