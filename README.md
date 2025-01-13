@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250111
+
+> Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> An imperial city in northern central Morocco, Meknes is steeped in history. Once the capital of Morocco under Sultan Ismail Ibn Sharif of the Alawi dynasty in the 17th century, it's known for its massive walls, grand gates, and structures built to last centuries. Meknes reflects the Moroccan style of architecture, with one of its most impressive landmarks being Heri es-Swani, seen in today's image.
+> 
+> Heri es-Swani was originally constructed as a stable and for storing vast amounts of grain to sustain the settlement and the sultan's armies. Its design was both practical and impressive—thick walls and an innovative cooling system helped maintain the food supply. Twenty-two rows of symmetrical arches divided the space into corridors that once had vaulted ceilings. Back then, mules climbed onto the roof terrace to deliver grain, which was dropped through specially designed holes to the floor below. The structure housed more than 12,000 horses. Today, it stands as an empty shell, acting as a scenic backdrop ready to be explored. This historical monument is a must-see for anyone curious about how empires were built and fed.
+> 
+> 
+
+</details>
+
+| ![Heri es-Swani in Meknes, Morocco](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Heri es-Swani in Meknes, Morocco](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1080x1920.jpg) |
+
 ### 20250110
 
 > Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![National Bird Day](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bird Day](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_1080x1920.jpg) |
-
-### 20250104
-
-> Bản Giốc–Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to a spot where rivers meet borders in the most stunning way: Bản Giốc–Detian Falls, featured in today's image. Tucked between the karst hills of Daxin County in China and Trùng Khánh district in Vietnam, these falls tumble along the Quây Sơn River. Over 95 feet tall and 980 feet wide, it holds the distinction of being the widest waterfall in Vietnam. Located just 169 miles north of Hanoi, this waterfall have gradually worn away their crest over the years, inching upstream. For most of the year, they flow as two distinct cascades, but come summer, when the rains swell the river, they merge into one big fall.
-> 
-> Even with better roads, easier public transport, and drone videos showing off the jaw-dropping beauty of the falls, Bản Giốc remains refreshingly off the beaten path. Mass tourism hasn't caught up yet, and on most weekdays, you'll find only a handful of visitors—just you, the locals, and the sound of cascading water.
-> 
-> 
-
-</details>
-
-| ![Bản Giốc–Detian Falls, Vietnam](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bản Giốc–Detian Falls, Vietnam](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_1080x1920.jpg) |S6755564963_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_1080x1920.jpg) |, from the late Bronze Age through the early Iron Age and even includes artifacts from the Roman Empire. Against this backdrop, the star trails in today's photo illuminate the timeless allure of Ardez, where history and natural beauty converge.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_1080x1920.jpg) |.TolkienOxford_EN-US6755564963_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_1080x1920.jpg) |, from the late Bronze Age through the early Iron Age and even includes artifacts from the Roman Empire. Against this backdrop, the star trails in today's photo illuminate the timeless allure of Ardez, where history and natural beauty converge.
 > 
 > 
 
