@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250113
+
+> Cottage with Tŵr Bach Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Who says New Year's Day has to be on January 1? In Wales, the clocks turn back—figuratively—to celebrate Hen Galan, or the 'Old New Year,' on January 13. As part of this tradition, Calennig, meaning 'New Year's gift' in Welsh, plays a central role, linking the celebration to customs from the Julian calendar era. Even after most of the world switched to the Gregorian calendar in 1582, some Welsh communities clung to their old ways. Traditionally, the day involves children going door-to-door, singing songs, and offering good wishes in exchange for gifts like coins, food, or sweets. A unique feature is its clove-decorated apples. These aren't for snacking, though; they're miniature symbols of luck and prosperity.
+> 
+> While these old traditions have evolved in some parts of Wales, the spirit of Calennig thrives. Cities like Cardiff, the capital of Wales, have transformed the celebration into large-scale events, complete with fireworks, markets, and community gatherings. If your New Year's resolutions are already wobbling by January 13, Calennig offers a do-over. So why not embrace a little Welsh magic? Raise a toast to the joys of taking things slow or visit Ynys Llanddwyn for its lighthouse and cottages, featured in today's image. After all, in Wales, it's never too late to celebrate.
+> 
+> 
+
+</details>
+
+| ![Happy Welsh New Year!](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Welsh New Year!](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_1080x1920.jpg) |
+
 ### 20250112
 
 > Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Moeraki Boulders, South Island, New Zealand](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Moeraki Boulders, South Island, New Zealand](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_1080x1920.jpg) |
-
-### 20250106
-
-> Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In the Italian province of Ravenna lies the Basilica of San Francesco, recognized for its beauty and historical significance. This Romanesque church, originally built in 450, features a sturdy square bell tower added in the 9th century, enhancing the basilica's exterior. Its design features three naves, divided by two rows of 12 columns each. Featured in today's image is the basilica's real showstopper: The basement crypt, or burial chamber, is a stunning model of early religious design. Complete with vaulted ceilings that slope down into rows of stone columns, its floor is a work of art itself. It's inlaid with beautifully intricate mosaic tiles that have withstood the test of time.
-> 
-> Built on soft marshland, Ravenna faces ongoing structural challenges because the entire city is gradually sinking. This is particularly evident in the crypt, which now remains perpetually submerged under about a foot of water. But instead of battling the slow flood, the basilica has embraced it, filling the pool with goldfish that glide between the ancient columns and above the submerged mosaics. Visitors often toss coins into the water, making the crypt more of a wishing well than a burial site.
-> 
-> 
-
-</details>
-
-| ![Flooded crypt, Basilica of San Francesco, Ravenna, Italy](https://cn.bing.com/th?id=OHR.RavennaBasilica_EN-US9585765715_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Flooded crypt, Basilica of San Francesco, Ravenna, Italy](https://cn.bing.com/th?id=OHR.RavennaBasilica_EN-US9585765715_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RavennaBasilica_EN-US9585765715_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RavennaBasilica_EN-US9585765715_1080x1920.jpg) |.TolkienOxford_EN-US6755564963_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_1080x1920.jpg) |, from the late Bronze Age through the early Iron Age and even includes artifacts from the Roman Empire. Against this backdrop, the star trails in today's photo illuminate the timeless allure of Ardez, where history and natural beauty converge.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_1080x1920.jpg) |, from the late Bronze Age through the early Iron Age and even includes artifacts from the Roman Empire. Against this backdrop, the star trails in today's photo illuminate the timeless allure of Ardez, where history and natural beauty converge.
 > 
 > 
 
