@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250114
+
+> Village of Zahara de la Sierra overlooking Zahara-El Gastor Reservoir, Cádiz province, Spain (© SEN LI/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Zahara de la Sierra, a stunning whitewashed village in the hills of Cádiz province in Spain, offers a blend of history and nature in the south of the Iberian Peninsula. Perched on a rocky hilltop, the village seen in today's image overlooks the Zahara-El Gastor Reservoir and the Sierra de Grazalema Natural Park, a UNESCO Biosphere Reserve since 1977. Its Moorish castle ruins and 15th-century tower reflect its history as a medieval fortress. Stroll through streets lined with flower-filled balconies, visit the church of Santa María de la Mesa, or simply relax and take in the views. Zahara is also a gateway to adventure—activities like hiking, cycling, and kayaking are only a little of what the village has to offer.
+> 
+> The name 'Zahara de la Sierra' was once thought to have come from 'azahar,' the Arabic word for 'citrus blossom.' However, studies suggest it comes from 'sahra,' which means 'wild' or 'barren land,' reflecting the rugged hill where the village is located. As part of Andalusia's Route of the White Villages, Zahara de la Sierra promises unforgettable experiences in a beautiful corner of Spain.
+> 
+> 
+
+</details>
+
+| ![Village of Zahara de la Sierra, Cadiz, Spain](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Zahara de la Sierra, Cadiz, Spain](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |
+
 ### 20250113
 
 > Cottage with Tŵr Bach Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![National Take the Stairs Day](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take the Stairs Day](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_1080x1920.jpg) |
-
-### 20250107
-
-> Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)
-
-<details>
-<summary>Description</summary>
-
-> Are you ready to rock the new year? Today is Old Rock Day, a day for celebrating and learning about old rocks and fossils. Rocks are common and few of us take the time to consider how amazing they are. But forged in volcanoes or molded by millennia of pressure, these solid masses of minerals hold the key to understanding how our planet formed. Rocks can also contain fossils, the remnants of long-extinct organisms, which give scientists clues about what creatures and plants have lived on Earth during its 4.5-billion-year history.
-> 
-> One of the world's most curious rock displays can be found on Koekohe Beach in New Zealand. The Moeraki Boulders, some of which are 7 feet in diameter, have been shaped by nature over millions of years. Each boulder started as a pebble on the seabed around 65 million years ago. Over time, layers of mud and silt built up around them, cemented together by calcite. Thanks to erosion and the movement of the sea, the boulders eventually emerged. Today, new boulders are still appearing, while the elements are slowly breaking down existing ones.
-> 
-> 
-
-</details>
-
-| ![Moeraki Boulders, South Island, New Zealand](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Moeraki Boulders, South Island, New Zealand](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_1080x1920.jpg) |, from the late Bronze Age through the early Iron Age and even includes artifacts from the Roman Empire. Against this backdrop, the star trails in today's photo illuminate the timeless allure of Ardez, where history and natural beauty converge.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_1080x1920.jpg) |080x1920.jpg) |, from the late Bronze Age through the early Iron Age and even includes artifacts from the Roman Empire. Against this backdrop, the star trails in today's photo illuminate the timeless allure of Ardez, where history and natural beauty converge.
 > 
 > 
 
