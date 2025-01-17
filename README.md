@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250115
+
+> The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> January 15, 1759, marked the opening of a place that would become the pride of London, a hub of global history, and a keeper of countless stories: the British Museum. For the first time, a national museum flung its doors wide open, offering free access to knowledge and culture for all. The story begins with Sir Hans Sloane, an Anglo-Irish physician and avid collector. His collection of more than 71,000 items, ranging from books and manuscripts to botanical samples and antiquities, formed the museum's foundation. Fast-forward 266 years, and the museum now houses more than 8 million objects, the largest collection of artifacts in the world, although only about 1% of the collection is currently on display. Its treasures span continents and millennia, from the Rosetta Stone—key to deciphering ancient Egyptian hieroglyphs—to the Parthenon Sculptures, the Benin Bronzes, and samurai armor.
+> 
+> Moreover, the museum has embraced modernity with virtual tours, interactive exhibits, and even TikTok moments, proving that history isn't stuck in the past. Fun fact: For more than 20 years, a cat named Mike roamed the museum grounds, charming staff and visitors alike. Mike even had an obituary published in The Times when he passed away in 1929.
+> 
+> 
+
+</details>
+
+| ![Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |
+
 ### 20250114
 
 > Village of Zahara de la Sierra overlooking Zahara-El Gastor Reservoir, Cádiz province, Spain (© SEN LI/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Remembering Jimmy Carter](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Remembering Jimmy Carter](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_1080x1920.jpg) |
-
-### 20250108
-
-> Snow on the Great Wall of China (© View Stock/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> New year, new goals—so why not start by taking a step toward better health? On this National Take the Stairs Day, let's climb into the past. The Great Wall of China, one of the longest humanmade structures in the world, offers the perfect inspiration. Stretching more than 13,000 miles and dating back thousands of years, the ancient marvel in today's picture is a series of fortifications spanning rugged mountains, valleys, and deserts. Featuring steep trenches and watchtowers, parts of it were designed to keep invaders at bay. Hiking the Great Wall offers a unique glimpse into this historical landmark. The experience varies from well-preserved sections like Mutianyu to wild, unrestored parts such as Jiankou. Some steps are so high, they're more like steps on a ladder! Talk about a workout—taking these stairs could rival any modern fitness challenge.
-> 
-> The Great Wall of China isn't just a wall, but a symbol of perseverance and strength. Similarly, taking the stairs instead of the elevator is a small but empowering step toward better health. Millions of people live with chronic conditions like asthma, and by choosing the stairs, you're not just building strength, but also improving your overall health. So, the next time you face an elevator, think of the Great Wall and take the stairs. Your future self will thank you!
-> 
-> 
-
-</details>
-
-| ![National Take the Stairs Day](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take the Stairs Day](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_1080x1920.jpg) |080x1920.jpg) |, from the late Bronze Age through the early Iron Age and even includes artifacts from the Roman Empire. Against this backdrop, the star trails in today's photo illuminate the timeless allure of Ardez, where history and natural beauty converge.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_1080x1920.jpg) |th?id=OHR.GreatWallStairs_EN-US0360405933_1080x1920.jpg) |080x1920.jpg) |, from the late Bronze Age through the early Iron Age and even includes artifacts from the Roman Empire. Against this backdrop, the star trails in today's photo illuminate the timeless allure of Ardez, where history and natural beauty converge.
 > 
 > 
 
