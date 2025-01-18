@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250116
+
+> High Peaks Trail in Pinnacles National Park, San Benito County, California (© yhelfman/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Jagged pinnacles and spires, monoliths, and unusual caves—welcome to Pinnacles National Park in central California. President Theodore Roosevelt designated the area as a national monument in 1908, and Pinnacles would earn its status as a national park in 2013. As we celebrate the park's anniversary today, let's take a moment to appreciate this landscape. Pinnacles owes its formations to an ancient volcanic eruption that occurred 23 million years ago. The fiery beginnings made towering spires, cliffs, and talus caves, which are created by falling boulders wedged into narrow canyons. Over millennia, tectonic forces shifted the landmass northward, leaving the park far from its volcanic birthplace. Talk about a journey!
+> 
+> Pinnacles offers a variety of trails, from easy walks to challenging climbs. The High Peaks Trail, featured in today's image, tests your stamina with steep climbs and narrow passages, while Bear Gulch Reservoir provides a more relaxed stroll. Pinnacles is home to a range of wildlife including bobcats, jackrabbits, and black-tailed deer, and bird species like woodpeckers and bats, making it attractive for wildlife enthusiasts. Among the park's many treasures are once-endangered California condors, which were reintroduced here in a successful conservation effort.
+> 
+> 
+
+</details>
+
+| ![Anniversary of Pinnacles National Park, California](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-US6350520288_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of Pinnacles National Park, California](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-US6350520288_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-US6350520288_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-US6350520288_1080x1920.jpg) |
+
 ### 20250115
 
 > The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)
@@ -112,34 +131,7 @@
 
 | ![Abraham Lake, Alberta, Canada](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Abraham Lake, Alberta, Canada](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_1080x1920.jpg) |
-
-### 20250109
-
-> The US Capitol dome with flags flying at half-staff in honor of former President Jimmy Carter, Washington, DC (© J. David Ake/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Thursday, January 9 is a national day of mourning in the United States in honor of former President Jimmy Carter, who died on December 29 at 100 years old. After his lying in state at the Capitol, a funeral for the 39th president will be held today at Washington National Cathedral. The federal government will be closed today, as will other institutions, including the New York Stock Exchange. Our photo shows the Capitol dome on December 30, 2024, with flags flying at half-staff in honor of the longest-lived US president.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Remembering Jimmy Carter](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Remembering Jimmy Carter](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_1080x1920.jpg) |th?id=OHR.GreatWallStairs_EN-US0360405933_1080x1920.jpg) |080x1920.jpg) |, from the late Bronze Age through the early Iron Age and even includes artifacts from the Roman Empire. Against this backdrop, the star trails in today's photo illuminate the timeless allure of Ardez, where history and natural beauty converge.
-> 
-> 
-
-</details>
-
-| ![Ardez, Graubunden, Switzerland](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ardez, Graubunden, Switzerland](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_1080x1920.jpg) |com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
