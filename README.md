@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250117
+
+> Brown pelican, San Diego, California (© Arthur Morris/BIRDS AS ART/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today's image features the brown pelican, a bird that doesn't just fly but soars, spots, and dives with unmatched precision. Although it's the smallest of the eight pelican species worldwide, it's still a large bird, measuring about 4 feet in length and having a wingspan of 6.5 feet. It's a marine-dwelling species and can be spotted along the Atlantic coast of the Americas, from New Jersey to the mouth of the Amazon River. On the Pacific coast, it can be spotted from British Columbia all the way to Peru, including a stop at the Galápagos Islands.
+> 
+> The brown pelican is a piscivore, meaning its diet mainly consists of fish. Dixon Lanier Merritt's limerick famously begins, 'A wonderful bird is the pelican; his bill can hold more than his belly can,' and it's spot on—its pouch can store up to three times the volume of its stomach. This versatile feature acts as a scoop, a tool for cooling off during hot weather, and a feeding trough for young pelicans. The brown pelican faced near extinction twice, first due to hunting and later from the impact of pesticides like DDT. Today, it's an Endangered Species Act and Environmental Protection Agency success story.
+> 
+> 
+
+</details>
+
+| ![Brown pelican, San Diego, California](https://cn.bing.com/th?id=OHR.PelicanPortrait_EN-US0510978735_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Brown pelican, San Diego, California](https://cn.bing.com/th?id=OHR.PelicanPortrait_EN-US0510978735_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PelicanPortrait_EN-US0510978735_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PelicanPortrait_EN-US0510978735_1080x1920.jpg) |
+
 ### 20250116
 
 > High Peaks Trail in Pinnacles National Park, San Benito County, California (© yhelfman/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Heri es-Swani in Meknes, Morocco](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Heri es-Swani in Meknes, Morocco](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1080x1920.jpg) |
-
-### 20250110
-
-> Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Ever heard of frozen bubbles? Abraham Lake in Alberta, Canada, has them during the winter, and they're not just beautiful—they're science in action. Created in 1972, Abraham Lake is a human-made reservoir that spans more than 20 square miles along the North Saskatchewan River. Thanks to glacier-fed waters from the Rocky Mountains, the lake stays transparent even in the coldest months. Glacial meltwater carries fine sediment that scatters sunlight, while natural filtration through rocks keeps pollutants to a minimum.
-> 
-> The snowy season attracts photographers and visitors from around the world who are eager to capture a rare sight at Preacher's Point: bubbles. These frozen globes form when microorganisms break down dead plants and animals on the lake bed, releasing methane. As the gas rises, it gets trapped by the ice, creating layers of bubbles in various sizes and shapes. It's wild to think that they're flammable and chilling under your feet. The ice is thickest in January and February and the bubbles clearly visible. If you're planning to check it out, just remember to stick close to the shoreline for your safety.
-> 
-> 
-
-</details>
-
-| ![Abraham Lake, Alberta, Canada](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Abraham Lake, Alberta, Canada](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_1080x1920.jpg) |com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
