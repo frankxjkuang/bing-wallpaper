@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250118
+
+> Sunset at White Sands National Park, New Mexico (© Image Professionals GmbH/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Today's image features the dazzling beauty of White Sands National Park, New Mexico—a surreal expanse of glistening white gypsum dunes, the largest of its kind on Earth. Spanning more than 145,000 acres, these ever-shifting dunes rise up to 60 feet tall, creating a landscape not seen in many places. This park isn't only a natural wonder but a historical treasure, with fossilized human footprints dating back as far as 23,000 years, some of the oldest in North America.
+> 
+> Today marks the anniversary of White Sands being established as a protected site in 1933 by President Herbert Hoover. What better way to celebrate than by immersing yourself in its beauty? Enjoy activities like hiking, sledding down the dunes, or taking a scenic drive. Whether for its rich history or jaw-dropping sunsets, White Sands National Park is a wish-list destination that will leave you in awe.
+> 
+> 
+
+</details>
+
+| ![Dunes at White Sands National Park, New Mexico](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-US0745183236_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dunes at White Sands National Park, New Mexico](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-US0745183236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-US0745183236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-US0745183236_1080x1920.jpg) |
+
 ### 20250117
 
 > Brown pelican, San Diego, California (© Arthur Morris/BIRDS AS ART/Getty Images)
@@ -112,25 +131,7 @@
 
 | ![Crescent-tail bigeye fish, Great Barrier Reef, Australia](https://cn.bing.com/th?id=OHR.CrescentTail_EN-US7217745417_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Crescent-tail bigeye fish, Great Barrier Reef, Australia](https://cn.bing.com/th?id=OHR.CrescentTail_EN-US7217745417_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrescentTail_EN-US7217745417_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrescentTail_EN-US7217745417_1080x1920.jpg) |
-
-### 20250111
-
-> Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> An imperial city in northern central Morocco, Meknes is steeped in history. Once the capital of Morocco under Sultan Ismail Ibn Sharif of the Alawi dynasty in the 17th century, it's known for its massive walls, grand gates, and structures built to last centuries. Meknes reflects the Moroccan style of architecture, with one of its most impressive landmarks being Heri es-Swani, seen in today's image.
-> 
-> Heri es-Swani was originally constructed as a stable and for storing vast amounts of grain to sustain the settlement and the sultan's armies. Its design was both practical and impressive—thick walls and an innovative cooling system helped maintain the food supply. Twenty-two rows of symmetrical arches divided the space into corridors that once had vaulted ceilings. Back then, mules climbed onto the roof terrace to deliver grain, which was dropped through specially designed holes to the floor below. The structure housed more than 12,000 horses. Today, it stands as an empty shell, acting as a scenic backdrop ready to be explored. This historical monument is a must-see for anyone curious about how empires were built and fed.
-> 
-> 
-
-</details>
-
-| ![Heri es-Swani in Meknes, Morocco](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Heri es-Swani in Meknes, Morocco](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrescentTail_EN-US7217745417_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrescentTail_EN-US7217745417_1080x1920.jpg) |:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
