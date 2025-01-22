@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250120
+
+> Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today we honor the life and legacy of Rev. Martin Luther King Jr. Prominent in the 1950s and 1960s, King was a Baptist minister who promoted nonviolent protest to effectuate social change. In 1963, he helped organize the March on Washington, DC, which 250,000 people attended to protest discrimination and support pending civil rights legislation. During this event, King delivered his famous "I Have a Dream" speech, imagining America free of racism and segregation. His speech is regarded as one of America's greatest, and his leadership was instrumental in ending racial segregation of African Americans throughout many parts of the United States. He received the Nobel Peace Prize in 1964, but his life was cut short by an assassin in 1968.
+> 
+> Seen in today's image near the Washington Monument, his 30-foot statue is the centerpiece of the Martin Luther King Jr. Memorial in Washington, DC. Emerging from between the Stone of Hope and Mountain of Despair, the figure of Dr. King resolutely looks to the horizon, and his memorial is a place for visitors to ponder a future where all are free at last.
+> 
+> 
+
+</details>
+
+| ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_1080x1920.jpg) |
+
 ### 20250119
 
 > Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Village of Zahara de la Sierra, Cadiz, Spain](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Zahara de la Sierra, Cadiz, Spain](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |
-
-### 20250113
-
-> Cottage with Tŵr Bach Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Who says New Year's Day has to be on January 1? In Wales, the clocks turn back—figuratively—to celebrate Hen Galan, or the 'Old New Year,' on January 13. As part of this tradition, Calennig, meaning 'New Year's gift' in Welsh, plays a central role, linking the celebration to customs from the Julian calendar era. Even after most of the world switched to the Gregorian calendar in 1582, some Welsh communities clung to their old ways. Traditionally, the day involves children going door-to-door, singing songs, and offering good wishes in exchange for gifts like coins, food, or sweets. A unique feature is its clove-decorated apples. These aren't for snacking, though; they're miniature symbols of luck and prosperity.
-> 
-> While these old traditions have evolved in some parts of Wales, the spirit of Calennig thrives. Cities like Cardiff, the capital of Wales, have transformed the celebration into large-scale events, complete with fireworks, markets, and community gatherings. If your New Year's resolutions are already wobbling by January 13, Calennig offers a do-over. So why not embrace a little Welsh magic? Raise a toast to the joys of taking things slow or visit Ynys Llanddwyn for its lighthouse and cottages, featured in today's image. After all, in Wales, it's never too late to celebrate.
-> 
-> 
-
-</details>
-
-| ![Happy Welsh New Year!](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Welsh New Year!](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_1080x1920.jpg) |ng.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
