@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250121
+
+> Eurasian red squirrel (© Edwin Giesbers/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> What's that long, bushy tail scurrying across the branches? Chances are, it's a squirrel. These little rodents are found across most of the globe, and today is their special day: Squirrel Appreciation Day. This unofficial holiday was started by a North Carolina wildlife rehabilitator to encourage people to leave out seeds and nuts for these critters. From the tiny least pygmy squirrel—just 5.5 inches long—to the Bhutan giant flying squirrel at more than 4 feet, these mammals come in all shapes and sizes.
+> 
+> Today's image features a Eurasian red squirrel, photographed in the Netherlands. The red squirrel can be found across Europe and Russia, from western Spain and Portugal all the way to eastern Siberia. Their diet mainly consists of nuts, fungi, seeds, and berries, but they will occasionally eat birds' eggs. In addition to being the national mammal of Denmark, they also play a part in old Norse mythology. Ratatoskr is a red squirrel who scurries up and down Yggdrasil, the sacred tree, carrying messages and spreading gossip. So, next time you spot a red squirrel, it could just be a furry little messenger!
+> 
+> 
+
+</details>
+
+| ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg) |
+
 ### 20250120
 
 > Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |
-
-### 20250114
-
-> Village of Zahara de la Sierra overlooking Zahara-El Gastor Reservoir, Cádiz province, Spain (© SEN LI/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Zahara de la Sierra, a stunning whitewashed village in the hills of Cádiz province in Spain, offers a blend of history and nature in the south of the Iberian Peninsula. Perched on a rocky hilltop, the village seen in today's image overlooks the Zahara-El Gastor Reservoir and the Sierra de Grazalema Natural Park, a UNESCO Biosphere Reserve since 1977. Its Moorish castle ruins and 15th-century tower reflect its history as a medieval fortress. Stroll through streets lined with flower-filled balconies, visit the church of Santa María de la Mesa, or simply relax and take in the views. Zahara is also a gateway to adventure—activities like hiking, cycling, and kayaking are only a little of what the village has to offer.
-> 
-> The name 'Zahara de la Sierra' was once thought to have come from 'azahar,' the Arabic word for 'citrus blossom.' However, studies suggest it comes from 'sahra,' which means 'wild' or 'barren land,' reflecting the rugged hill where the village is located. As part of Andalusia's Route of the White Villages, Zahara de la Sierra promises unforgettable experiences in a beautiful corner of Spain.
-> 
-> 
-
-</details>
-
-| ![Village of Zahara de la Sierra, Cadiz, Spain](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Zahara de la Sierra, Cadiz, Spain](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_1080x1920.jpg) |ng.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
