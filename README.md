@@ -1,127 +1,137 @@
 ## bing wallpaper
 
-### 20250121
+### 20250123
 
-> Eurasian red squirrel (© Edwin Giesbers/Minden Pictures)
+> 黄昏时的鹿谷，帕克城，犹他州，美国 (© Adventure_Photo/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> What's that long, bushy tail scurrying across the branches? Chances are, it's a squirrel. These little rodents are found across most of the globe, and today is their special day: Squirrel Appreciation Day. This unofficial holiday was started by a North Carolina wildlife rehabilitator to encourage people to leave out seeds and nuts for these critters. From the tiny least pygmy squirrel—just 5.5 inches long—to the Bhutan giant flying squirrel at more than 4 feet, these mammals come in all shapes and sizes.
+> 今天，圣丹斯电影节拉开帷幕，以犹他州的群山为背景，庆祝电影的魅力。电影节的中心是帕克城，它是圣丹斯活力四射的主办城市之一，活动在犹他州的多个地点举行。每年一月，这个宁静的旅游胜地都会变成一个热闹的创意中心，吸引来自世界各地的电影制作人和电影爱好者。除了银幕，帕克城也值得一游。这里拥有迷人的风景、鹿谷和帕克城山等顶级滑雪胜地，以及无尽的户外探险活动，从徒步旅行、骑自行车到泡温泉，应有尽有。无论你是来看电影还是寻求刺激，帕克城圣丹斯电影节都将为你带来难忘的体验。
 > 
-> Today's image features a Eurasian red squirrel, photographed in the Netherlands. The red squirrel can be found across Europe and Russia, from western Spain and Portugal all the way to eastern Siberia. Their diet mainly consists of nuts, fungi, seeds, and berries, but they will occasionally eat birds' eggs. In addition to being the national mammal of Denmark, they also play a part in old Norse mythology. Ratatoskr is a red squirrel who scurries up and down Yggdrasil, the sacred tree, carrying messages and spreading gossip. So, next time you spot a red squirrel, it could just be a furry little messenger!
+> 
 > 
 > 
 
 </details>
 
-| ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![鹿谷，帕克城，犹他州，美国](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![鹿谷，帕克城，犹他州，美国](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_1080x1920.jpg) |
+
+### 20250122
+
+> 代尔修道院，佩特拉，约旦 (© Punnawit Suwuttananun/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 佩特拉及其皇冠上的明珠——代尔修道院，雕凿在玫瑰色的悬崖峭壁上，让人仿佛置身于电影《印第安纳琼斯》的探险场景中。这座古城坐落在约旦干旱沙漠地貌的中心，曾在公元前2世纪作为纳巴泰王国的首都而繁荣一时。它还是香料贸易的枢纽，连接着中国、埃及、希腊和印度等遥远地区。
+> 
+> 今天图片中的代尔修道院可追溯到公元1世纪。其设计融合了希腊风格和美索不达米亚风格。尽管对该建筑的确切用途还存在争议，但普遍认为它在拜占庭时期被用作教堂。这座建筑高近150英尺，宽160英尺，巨大的外墙直接雕刻在砂岩悬崖上，展示了纳巴泰人巧夺天工的工艺和建筑艺术。要到达这座地标性建筑，需徒步攀登800级陡峭的石阶，在岩石地形中蜿蜒前行。尽管攀登的过程有些艰辛，但到达山顶后，你可以俯瞰佩特拉崎岖山谷的全貌，一切努力在此刻都会非常值得。
+> 
+> 
+
+</details>
+
+| ![代尔修道院，佩特拉，约旦](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![代尔修道院，佩特拉，约旦](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_1080x1920.jpg) |
+
+### 20250121
+
+> 俯瞰那不勒斯湾和维苏威火山，意大利 (© ezypix/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 那不勒斯湾（意大利语：Golfo di Napoli）是位于意大利西南海岸（大都市区那不勒斯，坎帕尼亚地区）的一个海湾，宽约15公里，向西通往地中海。那不勒斯湾因风景优美而闻名，是著名的旅游区，沿岸有陡峭的火山峰，包括维苏威火山等活火山以及庞贝古城、赫库兰尼姆古城遗址。海湾入口处有卡普里岛、伊斯基亚岛和普罗奇达岛等风景名胜。据说罗马皇帝卡里古拉在海湾上建造了一座船桥，他身穿亚历山大大帝的盔甲，乘坐战车横跨海湾。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![那不勒斯湾和维苏威火山，意大利](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![那不勒斯湾和维苏威火山，意大利](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1080x1920.jpg) |
 
 ### 20250120
 
-> Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)
+> 欧亚红松鼠与毒蘑菇 (© Edwin Giesbers/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> Today we honor the life and legacy of Rev. Martin Luther King Jr. Prominent in the 1950s and 1960s, King was a Baptist minister who promoted nonviolent protest to effectuate social change. In 1963, he helped organize the March on Washington, DC, which 250,000 people attended to protest discrimination and support pending civil rights legislation. During this event, King delivered his famous "I Have a Dream" speech, imagining America free of racism and segregation. His speech is regarded as one of America's greatest, and his leadership was instrumental in ending racial segregation of African Americans throughout many parts of the United States. He received the Nobel Peace Prize in 1964, but his life was cut short by an assassin in 1968.
+> 一条长长的、蓬松的尾巴在树枝间飞快地穿梭着，那是什么？很可能是松鼠。这些小啮齿动物几乎遍布全球，今天是它们的特殊日子：松鼠感谢日。这个非官方的节日是由北卡罗来纳州的一位野生动物康复师发起的，旨在鼓励人们为这些小动物留下种子和坚果。从只有5.5英寸长的侏儒松鼠，到超过4英尺长的不丹巨型飞松鼠，这些哺乳动物有各种各样的体型。
 > 
-> Seen in today's image near the Washington Monument, his 30-foot statue is the centerpiece of the Martin Luther King Jr. Memorial in Washington, DC. Emerging from between the Stone of Hope and Mountain of Despair, the figure of Dr. King resolutely looks to the horizon, and his memorial is a place for visitors to ponder a future where all are free at last.
+> 今天的图片主角是一只欧亚红松鼠，拍摄于荷兰。红松鼠遍布欧洲和俄罗斯，从西班牙西部、葡萄牙一直到西伯利亚东部。它们的食物主要是坚果、真菌、种子和浆果，但偶尔也会吃鸟蛋。除了是丹麦的国兽外，它们还在古老的北欧神话中扮演着重要角色。Ratatoskr是一只红松鼠，它在巨树Yggdrasil上窜下跳，传递信息，传播流言蜚语。所以，下次当你看到红松鼠时，它可能只是一个毛茸茸的小信使！
 > 
 > 
 
 </details>
 
-| ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![松鼠感谢日](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![松鼠感谢日](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_1080x1920.jpg) |
 
 ### 20250119
 
-> Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)
+> 海王星石窟，撒丁岛， 意大利 (© Carlo Murenu/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Down 654 steps, perched perilously over the sea in Sardinia, Italy, you'll find a surprise waiting for you. Neptune's Grotto is a stunning stalactite cave that sits just over 3 feet above sea level. First discovered by local fishermen in the 18th century, the grotto was named after the Roman god of the sea. The entire cave complex stretches on for around 2.5 miles, although visitors can only access about 1,000 feet of the total. Inside, there's a labyrinth of lit pathways winding past stalactite and stalagmite formations, leading to a 390-foot-long saltwater lake.
+> 沿着654级台阶俯瞰撒丁岛海面，令人惊叹的景象尽收眼底。海王星石窟是一座距海平面仅约3英尺的钟乳石洞穴。这座洞穴由当地渔民在18世纪首次发现，以罗马海神尼普顿命名。整个洞穴系统全长约4023米，游客可进入的区域仅约304.8米。洞内有迷宫般的小径，灯光照亮蜿蜒穿过钟乳石与石笋的路径，最终通向一个约119米长的咸水湖。
 > 
-> Neptune's Grotto is near the town of Alghero on the northwest coast of Sardinia, the second-largest island in the Mediterranean. It has been inhabited for at least 10,000 years, but its most important ancient civilization, the Nuragic peoples, lived there from around 1800 BCE until the 2nd century CE. At this time, villages were built around nuraghes, a kind of round tower fortress. Today, there are still around 7,000 of these nuraghes across the island, and they have become a symbol of Sardinia. Beyond its history, Sardinia is known for its beaches, mountains, and cuisine.
+> 海王星石窟位于地中海第二大岛撒丁岛西北海岸的阿尔盖罗镇附近。撒丁岛的历史可追溯至1万年前，努拉吉是最重要的古代文明，努拉吉人在公元前1800年至公元2世纪期间生活于此。当时，村庄围绕着一种称为努拉吉塔的圆形塔楼要塞建造。如今，岛上保存着约7,000座努拉吉塔，已成为撒丁岛的象征。除了丰富的历史遗迹，撒丁岛还以其原始的海滩、崎岖的山脉和美味佳肴而闻名于世。
 > 
 > 
 
 </details>
 
-| ![Neptune's Grotto, Sardinia, Italy](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Neptune's Grotto, Sardinia, Italy](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![海王星石窟，撒丁岛，意大利](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![海王星石窟，撒丁岛，意大利](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_1080x1920.jpg) |
 
 ### 20250118
 
-> Sunset at White Sands National Park, New Mexico (© Image Professionals GmbH/Alamy)
+> 白沙国家公园的日落，新墨西哥州，美国 (© Image Professionals GmbH/Alamy Stock Photo)
 
 <details>
 <summary>Description</summary>
 
-> Today's image features the dazzling beauty of White Sands National Park, New Mexico—a surreal expanse of glistening white gypsum dunes, the largest of its kind on Earth. Spanning more than 145,000 acres, these ever-shifting dunes rise up to 60 feet tall, creating a landscape not seen in many places. This park isn't only a natural wonder but a historical treasure, with fossilized human footprints dating back as far as 23,000 years, some of the oldest in North America.
+> 今日图片展示了新墨西哥州白沙国家公园最令人叹为观止的自然奇观，一片闪耀梦幻光芒的白色沙丘，这里有地球上规模最大的石膏沙丘。这片广袤的沙漠占地超过145,000英亩，沙丘高度可达60英尺，展现出其他地方难以见到的独特景观。这座公园不仅是自然奇观，更是历史瑰宝，这里发现了距今约23,000年的化石化人类脚印，被认为是北美最古老的人类遗迹之一。
 > 
-> Today marks the anniversary of White Sands being established as a protected site in 1933 by President Herbert Hoover. What better way to celebrate than by immersing yourself in its beauty? Enjoy activities like hiking, sledding down the dunes, or taking a scenic drive. Whether for its rich history or jaw-dropping sunsets, White Sands National Park is a wish-list destination that will leave you in awe.
+> 今天是白沙国家公园于1933年由总统赫伯特·胡佛设立为保护区的周年纪念日。还有什么比沉浸在白沙美景中更适合庆祝的方式呢？在这里可以徒步旅行、沙丘滑沙，或者沿风景优美的公路驾车欣赏美景。无论是其丰富的历史，还是叹为观止的日落，白沙国家公园都是一个令人心驰神往的旅行目的地。
 > 
 > 
 
 </details>
 
-| ![Dunes at White Sands National Park, New Mexico](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-US0745183236_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dunes at White Sands National Park, New Mexico](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-US0745183236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![白沙国家公园的沙丘，新墨西哥州](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![白沙国家公园的沙丘，新墨西哥州](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-US0745183236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-US0745183236_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1080x1920.jpg) |
 
 ### 20250117
 
-> Brown pelican, San Diego, California (© Arthur Morris/BIRDS AS ART/Getty Images)
+> 褐鹈鹕，圣地亚哥，加利福尼亚州，美国 (© Arthur Morris/BIRDS AS ART/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Today's image features the brown pelican, a bird that doesn't just fly but soars, spots, and dives with unmatched precision. Although it's the smallest of the eight pelican species worldwide, it's still a large bird, measuring about 4 feet in length and having a wingspan of 6.5 feet. It's a marine-dwelling species and can be spotted along the Atlantic coast of the Americas, from New Jersey to the mouth of the Amazon River. On the Pacific coast, it can be spotted from British Columbia all the way to Peru, including a stop at the Galápagos Islands.
+> 今日图片展示的是褐鹈鹕，这种鸟不仅会飞，还能以极高的精准度滑翔、发现猎物并俯冲捕食。虽然它是全球八种鹈鹕中体型最小的成员，但褐鹈鹕仍属于大型鸟类，身长约4英尺，翼展达6.5英尺。褐鹈鹕是海洋鸟类，分布在美洲的大西洋海岸，从新泽西到亚马逊河口；在太平洋沿岸，从不列颠哥伦比亚到秘鲁的沿海地区，包括加拉帕戈斯群岛，都可以找到它们的身影。
 > 
-> The brown pelican is a piscivore, meaning its diet mainly consists of fish. Dixon Lanier Merritt's limerick famously begins, 'A wonderful bird is the pelican; his bill can hold more than his belly can,' and it's spot on—its pouch can store up to three times the volume of its stomach. This versatile feature acts as a scoop, a tool for cooling off during hot weather, and a feeding trough for young pelicans. The brown pelican faced near extinction twice, first due to hunting and later from the impact of pesticides like DDT. Today, it's an Endangered Species Act and Environmental Protection Agency success story.
+> 褐鹈鹕是一种食鱼性的鸟类，以鱼类为主要食物来源。迪克森·拉尼尔·梅里特在打油诗中写道：“鹈鹕真是一种奇妙的鸟，它的喙能装下比肚子更多的东西。”这句话说得非常贴切，褐鹈鹕的喉囊不仅能储存多达胃容量三倍的食物。褐鹈鹕的喉囊不仅能储存多达胃容量三倍的食物，还可用作舀食工具、炎热天气中的降温器，以及小鹈鹕的喂食槽。褐鹈鹕曾两次濒临灭绝，第一次是因捕猎，后来是由于滴滴涕等杀虫剂的影响。如今，它已成为《濒危物种法》和环境保护署成功保护的案例之一，展示了人类在保护自然中的努力与成就。
 > 
 > 
 
 </details>
 
-| ![Brown pelican, San Diego, California](https://cn.bing.com/th?id=OHR.PelicanPortrait_EN-US0510978735_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Brown pelican, San Diego, California](https://cn.bing.com/th?id=OHR.PelicanPortrait_EN-US0510978735_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![褐鹈鹕，圣地亚哥，加利福尼亚州](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![褐鹈鹕，圣地亚哥，加利福尼亚州](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PelicanPortrait_EN-US0510978735_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PelicanPortrait_EN-US0510978735_1080x1920.jpg) |
-
-### 20250116
-
-> High Peaks Trail in Pinnacles National Park, San Benito County, California (© yhelfman/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Jagged pinnacles and spires, monoliths, and unusual caves—welcome to Pinnacles National Park in central California. President Theodore Roosevelt designated the area as a national monument in 1908, and Pinnacles would earn its status as a national park in 2013. As we celebrate the park's anniversary today, let's take a moment to appreciate this landscape. Pinnacles owes its formations to an ancient volcanic eruption that occurred 23 million years ago. The fiery beginnings made towering spires, cliffs, and talus caves, which are created by falling boulders wedged into narrow canyons. Over millennia, tectonic forces shifted the landmass northward, leaving the park far from its volcanic birthplace. Talk about a journey!
-> 
-> Pinnacles offers a variety of trails, from easy walks to challenging climbs. The High Peaks Trail, featured in today's image, tests your stamina with steep climbs and narrow passages, while Bear Gulch Reservoir provides a more relaxed stroll. Pinnacles is home to a range of wildlife including bobcats, jackrabbits, and black-tailed deer, and bird species like woodpeckers and bats, making it attractive for wildlife enthusiasts. Among the park's many treasures are once-endangered California condors, which were reintroduced here in a successful conservation effort.
-> 
-> 
-
-</details>
-
-| ![Anniversary of Pinnacles National Park, California](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-US6350520288_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of Pinnacles National Park, California](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-US6350520288_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-US6350520288_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-US6350520288_1080x1920.jpg) |
-
-### 20250115
-
-> The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> January 15, 1759, marked the opening of a place that would become the pride of London, a hub of global history, and a keeper of countless stories: the British Museum. For the first time, a national museum flung its doors wide open, offering free access to knowledge and culture for all. The story begins with Sir Hans Sloane, an Anglo-Irish physician and avid collector. His collection of more than 71,000 items, ranging from books and manuscripts to botanical samples and antiquities, formed the museum's foundation. Fast-forward 266 years, and the museum now houses more than 8 million objects, the largest collection of artifacts in the world, although only about 1% of the collection is currently on display. Its treasures span continents and millennia, from the Rosetta Stone—key to deciphering ancient Egyptian hieroglyphs—to the Parthenon Sculptures, the Benin Bronzes, and samurai armor.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_1080x1920.jpg) | first time, a national museum flung its doors wide open, offering free access to knowledge and culture for all. The story begins with Sir Hans Sloane, an Anglo-Irish physician and avid collector. His collection of more than 71,000 items, ranging from books and manuscripts to botanical samples and antiquities, formed the museum's foundation. Fast-forward 266 years, and the museum now houses more than 8 million objects, the largest collection of artifacts in the world, although only about 1% of the collection is currently on display. Its treasures span continents and millennia, from the Rosetta Stone—key to deciphering ancient Egyptian hieroglyphs—to the Parthenon Sculptures, the Benin Bronzes, and samurai armor.
 > 
 > Moreover, the museum has embraced modernity with virtual tours, interactive exhibits, and even TikTok moments, proving that history isn't stuck in the past. Fun fact: For more than 20 years, a cat named Mike roamed the museum grounds, charming staff and visitors alike. Mike even had an obituary published in The Times when he passed away in 1929.
 > 
