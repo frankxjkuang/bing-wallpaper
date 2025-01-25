@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250124
+
+> 冰岛的史托克间歇泉 (© John and Tina Reid/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 还有什么比一场充满乐趣与野性的盛宴更能温暖寒冬呢？臭食节作为冰岛的冬至节，邀请人们深入体验传统文化。这一庆祝活动围绕生存、文化和社区展开，可追溯至维京时代，当时冰岛人用它祭祀雷神托尔。如今，人们聚在一起，通过享用发酵鲨鱼肉、熏羊肉、黑麦面包及‘黑死神’布伦尼温烈酒等当地美食来庆祝这一节日。
+> 
+> 图片中的斯特罗克尔间歇泉则以另一种方式温暖着冬天。它位于赫维塔河旁的地热区，每隔 6 至 10 分钟喷发一次，热水可喷射至49到66英尺的高空，自1963年以来持续活跃。其喷发原理是地壳下的岩浆加热地下水，压力逐渐增大，最终将热水爆发式喷射到地表。无论是索拉布洛特的庆典，还是斯特罗克尔间歇泉的喷发，它们都展现了冰岛顽强不屈的精神：一种体现在人民身上，另一种根植于土地之中。
+> 
+> 
+
+</details>
+
+| ![臭食节：冰岛的仲冬节](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![臭食节：冰岛的仲冬节](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_1080x1920.jpg) |
+
 ### 20250123
 
 > 黄昏时的鹿谷，帕克城，犹他州，美国 (© Adventure_Photo/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![白沙国家公园的沙丘，新墨西哥州](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![白沙国家公园的沙丘，新墨西哥州](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1080x1920.jpg) |
-
-### 20250117
-
-> 褐鹈鹕，圣地亚哥，加利福尼亚州，美国 (© Arthur Morris/BIRDS AS ART/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 今日图片展示的是褐鹈鹕，这种鸟不仅会飞，还能以极高的精准度滑翔、发现猎物并俯冲捕食。虽然它是全球八种鹈鹕中体型最小的成员，但褐鹈鹕仍属于大型鸟类，身长约4英尺，翼展达6.5英尺。褐鹈鹕是海洋鸟类，分布在美洲的大西洋海岸，从新泽西到亚马逊河口；在太平洋沿岸，从不列颠哥伦比亚到秘鲁的沿海地区，包括加拉帕戈斯群岛，都可以找到它们的身影。
-> 
-> 褐鹈鹕是一种食鱼性的鸟类，以鱼类为主要食物来源。迪克森·拉尼尔·梅里特在打油诗中写道：“鹈鹕真是一种奇妙的鸟，它的喙能装下比肚子更多的东西。”这句话说得非常贴切，褐鹈鹕的喉囊不仅能储存多达胃容量三倍的食物。褐鹈鹕的喉囊不仅能储存多达胃容量三倍的食物，还可用作舀食工具、炎热天气中的降温器，以及小鹈鹕的喂食槽。褐鹈鹕曾两次濒临灭绝，第一次是因捕猎，后来是由于滴滴涕等杀虫剂的影响。如今，它已成为《濒危物种法》和环境保护署成功保护的案例之一，展示了人类在保护自然中的努力与成就。
-> 
-> 
-
-</details>
-
-| ![褐鹈鹕，圣地亚哥，加利福尼亚州](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![褐鹈鹕，圣地亚哥，加利福尼亚州](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1080x1920.jpg) |HR.PelicanPortrait_ZH-CN1928504597_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_1080x1920.jpg) | first time, a national museum flung its doors wide open, offering free access to knowledge and culture for all. The story begins with Sir Hans Sloane, an Anglo-Irish physician and avid collector. His collection of more than 71,000 items, ranging from books and manuscripts to botanical samples and antiquities, formed the museum's foundation. Fast-forward 266 years, and the museum now houses more than 8 million objects, the largest collection of artifacts in the world, although only about 1% of the collection is currently on display. Its treasures span continents and millennia, from the Rosetta Stone—key to deciphering ancient Egyptian hieroglyphs—to the Parthenon Sculptures, the Benin Bronzes, and samurai armor.
 > 
