@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250125
+
+> 波尔图，葡萄牙 (© Starcevic/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 今日图片带我们走进一座大胆而质朴，却充满魅力的城市。虽然波尔图以波特酒闻名，但这座葡萄牙城市还有更多值得探索的地方。漫步波尔图街头，你会注意到装饰着锡釉陶瓷砖的建筑。这种彩绘釉面瓷砖在葡萄牙和西班牙十分常见。此外，历史悠久的圣弗朗西斯科教堂和横跨蜿蜒杜罗河的标志性建筑——路易一世大桥，都令人印象深刻。
+> 
+> 波尔图的历史可追溯到罗马时代，作为重要的贸易枢纽，这座城市的历史影响深远。这里文化底蕴深厚，从悠扬的法朵音乐到热闹的市场，再到一年一度的圣若昂节，都让人沉浸其中。街头艺术随处可见，别具一格的书店和咖啡馆更是增添了探索的乐趣。美食爱好者还可以尽情享用一种叫做“法国小女孩”的波尔图特色三明治，或品尝新鲜的海鲜，再配上一杯当地的葡萄酒，尽享味蕾盛宴。
+> 
+> 
+
+</details>
+
+| ![波尔图，葡萄牙](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![波尔图，葡萄牙](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_1080x1920.jpg) |
+
 ### 20250124
 
 > 冰岛的史托克间歇泉 (© John and Tina Reid/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![海王星石窟，撒丁岛，意大利](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![海王星石窟，撒丁岛，意大利](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_1080x1920.jpg) |
-
-### 20250118
-
-> 白沙国家公园的日落，新墨西哥州，美国 (© Image Professionals GmbH/Alamy Stock Photo)
-
-<details>
-<summary>Description</summary>
-
-> 今日图片展示了新墨西哥州白沙国家公园最令人叹为观止的自然奇观，一片闪耀梦幻光芒的白色沙丘，这里有地球上规模最大的石膏沙丘。这片广袤的沙漠占地超过145,000英亩，沙丘高度可达60英尺，展现出其他地方难以见到的独特景观。这座公园不仅是自然奇观，更是历史瑰宝，这里发现了距今约23,000年的化石化人类脚印，被认为是北美最古老的人类遗迹之一。
-> 
-> 今天是白沙国家公园于1933年由总统赫伯特·胡佛设立为保护区的周年纪念日。还有什么比沉浸在白沙美景中更适合庆祝的方式呢？在这里可以徒步旅行、沙丘滑沙，或者沿风景优美的公路驾车欣赏美景。无论是其丰富的历史，还是叹为观止的日落，白沙国家公园都是一个令人心驰神往的旅行目的地。
-> 
-> 
-
-</details>
-
-| ![白沙国家公园的沙丘，新墨西哥州](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![白沙国家公园的沙丘，新墨西哥州](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1080x1920.jpg) |HR.PelicanPortrait_ZH-CN1928504597_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_1080x1920.jpg) |20.jpg) |HR.PelicanPortrait_ZH-CN1928504597_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_1080x1920.jpg) | first time, a national museum flung its doors wide open, offering free access to knowledge and culture for all. The story begins with Sir Hans Sloane, an Anglo-Irish physician and avid collector. His collection of more than 71,000 items, ranging from books and manuscripts to botanical samples and antiquities, formed the museum's foundation. Fast-forward 266 years, and the museum now houses more than 8 million objects, the largest collection of artifacts in the world, although only about 1% of the collection is currently on display. Its treasures span continents and millennia, from the Rosetta Stone—key to deciphering ancient Egyptian hieroglyphs—to the Parthenon Sculptures, the Benin Bronzes, and samurai armor.
 > 
