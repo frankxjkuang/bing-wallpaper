@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250126
+
+> European beech forest in Belgium (© Philippe Moes/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Beech trees are pretty amazing. There are several species worldwide, but the European beech steals the spotlight in much of Europe. With its smooth gray bark, short trunk, and sweeping branches, this tree is a standout in Belgium's forests, as shown in today's image. It grows in temperate regions and prefers well-drained, fertile soils, taking up to 30 years to mature. Not only do these 160-foot-tall trees dominate the landscape, but their wood is also used to make some of the sturdiest furniture, flooring, and even kitchen tools.
+> 
+> Wildlife such as black bears, foxes, squirrels, chipmunks, and mice love them too—beech nuts, though slightly bitter, provide a feast for all kinds of critters. In winter, the beech forests in Belgium become even more enchanting. The trees' big, sprawling branches go bare, and whole forests transform into quiet, frosty wonderlands—perfect for a peaceful stroll or simply soaking up some fresh air.
+> 
+> 
+
+</details>
+
+| ![European beech forest, Belgium](https://cn.bing.com/th?id=OHR.FrostedBeech_EN-US8264026523_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European beech forest, Belgium](https://cn.bing.com/th?id=OHR.FrostedBeech_EN-US8264026523_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrostedBeech_EN-US8264026523_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrostedBeech_EN-US8264026523_1080x1920.jpg) |
+
 ### 20250125
 
 > Porto, Portugal (© Starcevic/Getty Images)
@@ -112,25 +131,7 @@
 
 | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_1080x1920.jpg) |
-
-### 20250119
-
-> Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Down 654 steps, perched perilously over the sea in Sardinia, Italy, you'll find a surprise waiting for you. Neptune's Grotto is a stunning stalactite cave that sits just over 3 feet above sea level. First discovered by local fishermen in the 18th century, the grotto was named after the Roman god of the sea. The entire cave complex stretches on for around 2.5 miles, although visitors can only access about 1,000 feet of the total. Inside, there's a labyrinth of lit pathways winding past stalactite and stalagmite formations, leading to a 390-foot-long saltwater lake.
-> 
-> Neptune's Grotto is near the town of Alghero on the northwest coast of Sardinia, the second-largest island in the Mediterranean. It has been inhabited for at least 10,000 years, but its most important ancient civilization, the Nuragic peoples, lived there from around 1800 BCE until the 2nd century CE. At this time, villages were built around nuraghes, a kind of round tower fortress. Today, there are still around 7,000 of these nuraghes across the island, and they have become a symbol of Sardinia. Beyond its history, Sardinia is known for its beaches, mountains, and cuisine.
-> 
-> 
-
-</details>
-
-| ![Neptune's Grotto, Sardinia, Italy](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Neptune's Grotto, Sardinia, Italy](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_1080x1920.jpg) |---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
