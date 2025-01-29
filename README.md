@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250127
+
+> Zoroaster Temple, Grand Canyon National Park, Arizona (© Nick Lake/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Carved by the Colorado River, nearly 2 billion years of Earth's history are exposed in the layers of the Grand Canyon. While geologists continue to debate parts of the formation story of the canyon, recent studies suggest the river carved its path through the region about 5 to 6 million years ago. Since then, the river has been deepening and widening the canyon while sculpting its dramatic geographic features.
+> 
+> Today, the Grand Canyon is much more than just a massive chasm with exceptional vistas. It's home to some stunning geographic features, like Zoroaster Temple, featured in today's image. This towering 7,123-foot summit is in Coconino County, Arizona. The peak was named after the ancient Iranian prophet Zoroaster by George Wharton James, an American photographer and journalist, and Clarence Dutton, an American geologist. Rick Tidrick and Dave Ganci made the first summit ascent of Zoroaster Temple in September 1958. This triumph marked the Grand Canyon's first technical climb, turning it into a hotspot and igniting a wave of summit-chasing climbers.
+> 
+> 
+
+</details>
+
+| ![Zoroaster Temple, Grand Canyon National Park, Arizona](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Zoroaster Temple, Grand Canyon National Park, Arizona](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |
+
 ### 20250126
 
 > European beech forest in Belgium (© Philippe Moes/Minden Pictures)
@@ -112,27 +131,7 @@
 
 | ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg) |
-
-### 20250120
-
-> Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today we honor the life and legacy of Rev. Martin Luther King Jr. Prominent in the 1950s and 1960s, King was a Baptist minister who promoted nonviolent protest to effectuate social change. In 1963, he helped organize the March on Washington, DC, which 250,000 people attended to protest discrimination and support pending civil rights legislation. During this event, King delivered his famous "I Have a Dream" speech, imagining America free of racism and segregation. His speech is regarded as one of America's greatest, and his leadership was instrumental in ending racial segregation of African Americans throughout many parts of the United States. He received the Nobel Peace Prize in 1964, but his life was cut short by an assassin in 1968.
-> 
-> Seen in today's image near the Washington Monument, his 30-foot statue is the centerpiece of the Martin Luther King Jr. Memorial in Washington, DC. Emerging from between the Stone of Hope and Mountain of Despair, the figure of Dr. King resolutely looks to the horizon, and his memorial is a place for visitors to ponder a future where all are free at last.
-> 
-> 
-
-</details>
-
-| ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_1080x1920.jpg) |---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg) | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
