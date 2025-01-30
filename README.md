@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250128
+
+> Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The short-eared owl, featured in today's image, is a grassland-dwelling member of the owl family. Found on all continents except Antarctica and Australia, it's one of the most widely distributed bird species. This raptor belongs to the genus Asio, whose members are characterized by feather tufts ('ears') on their head. The short-eared owl only reveals its tufts when feeling defensive.
+> 
+> Irregular wingbeats cause its flight to be on the floppy side, like a moth or bat. It likes to glide a few feet above the ground in open fields and grasslands, swooping down feet first to grab its prey. Owls primarily hunt at night, but this silent hunter is also active during the day and at dusk. Its daylight hunts often line up with the peak activity of small rodents called voles—its favorite meal. Known to relocate to areas with higher rodent populations, the short-eared owl even wanders nomadically in search of better food supplies during years when vole populations are low.
+> 
+> 
+
+</details>
+
+| ![Short-eared owl](https://cn.bing.com/th?id=OHR.FlyingOwl_EN-US8779625388_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Short-eared owl](https://cn.bing.com/th?id=OHR.FlyingOwl_EN-US8779625388_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlyingOwl_EN-US8779625388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingOwl_EN-US8779625388_1080x1920.jpg) |
+
 ### 20250127
 
 > Zoroaster Temple, Grand Canyon National Park, Arizona (© Nick Lake/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Ad-Deir, Petra, Jordan](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ad-Deir, Petra, Jordan](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_1080x1920.jpg) |
-
-### 20250121
-
-> Eurasian red squirrel (© Edwin Giesbers/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> What's that long, bushy tail scurrying across the branches? Chances are, it's a squirrel. These little rodents are found across most of the globe, and today is their special day: Squirrel Appreciation Day. This unofficial holiday was started by a North Carolina wildlife rehabilitator to encourage people to leave out seeds and nuts for these critters. From the tiny least pygmy squirrel—just 5.5 inches long—to the Bhutan giant flying squirrel at more than 4 feet, these mammals come in all shapes and sizes.
-> 
-> Today's image features a Eurasian red squirrel, photographed in the Netherlands. The red squirrel can be found across Europe and Russia, from western Spain and Portugal all the way to eastern Siberia. Their diet mainly consists of nuts, fungi, seeds, and berries, but they will occasionally eat birds' eggs. In addition to being the national mammal of Denmark, they also play a part in old Norse mythology. Ratatoskr is a red squirrel who scurries up and down Yggdrasil, the sacred tree, carrying messages and spreading gossip. So, next time you spot a red squirrel, it could just be a furry little messenger!
-> 
-> 
-
-</details>
-
-| ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg) | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg) | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
