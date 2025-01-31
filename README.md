@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250129
+
+> Dragon dance, Wuhan, China (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The streets come alive today with a symphony of firecrackers, red lanterns, and cheerful chatter—it's Chinese New Year. Steeped in thousands of years of tradition, this holiday marks the start of the lunisolar Chinese calendar. One of the most captivating images associated with this festival is the dragon dance, pictured here. Skilled dancers manipulate a long, flexible dragon puppet, bringing it to life with sinuous, undulating movements. The dragon, a symbol of power, dignity, and good fortune, is believed to bring luck to the community, with longer dragons bringing even more prosperity.
+> 
+> The festivities of the Chinese New Year aren't confined to China alone; they resonate across the globe, from the streets of Singapore to the Chinatowns of New York, San Francisco, and London. Each place adds its unique twist, but the core traditions remain the same: family reunions, sumptuous feasts, and the exchange of hongbao—red envelopes filled with money. This blend of ancient customs and modern practices unites people in joy and hope for the year ahead.
+> 
+> 
+
+</details>
+
+| ![Chinese New Year](https://cn.bing.com/th?id=OHR.LunarDragon_EN-US9011723385_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chinese New Year](https://cn.bing.com/th?id=OHR.LunarDragon_EN-US9011723385_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LunarDragon_EN-US9011723385_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LunarDragon_EN-US9011723385_1080x1920.jpg) |
+
 ### 20250128
 
 > Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Sundance Film Festival](https://cn.bing.com/th?id=OHR.DeerValley_EN-US2128104711_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sundance Film Festival](https://cn.bing.com/th?id=OHR.DeerValley_EN-US2128104711_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeerValley_EN-US2128104711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeerValley_EN-US2128104711_1080x1920.jpg) |
-
-### 20250122
-
-> Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Carved into rose-red cliffs, Petra and its crown jewel, Ad-Deir, or 'The Monastery,' feel like stepping into a real-life Indiana Jones adventure. Tucked in the heart of Jordan's arid desert landscapes, this ancient city once thrived as the capital of the Nabataean Kingdom in the 2nd century BCE. It was also a hub of the spice trade, connecting distant regions like China, Egypt, Greece, and India. The city was abandoned for around 500 years before being rediscovered in 1812, earning it the 'Lost City' moniker.
-> 
-> Ad-Deir, seen in today's image, dates to the 1st century CE. Its design is characterized by a combination of Hellenistic and Mesopotamian influences. Although the exact purpose of the structure is debated, it's believed to have been used as a church during the Byzantine period. Standing nearly 150 feet tall and 160 feet wide, its massive facade is carved directly into the sandstone cliffs, showcasing the Nabataeans' ingenious craftsmanship and architecture. The journey to this landmark involves a steep hike up 800 stone steps, winding through rocky terrain. At the top, you're rewarded with panoramic views of the rugged Petra valley that make the climb more than worth it.
-> 
-> 
-
-</details>
-
-| ![Ad-Deir, Petra, Jordan](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ad-Deir, Petra, Jordan](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg) | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeerValley_EN-US2128104711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeerValley_EN-US2128104711_1080x1920.jpg) |34130511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg) | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
