@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250131
+
+> Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Celebrate the beauty of zebras on International Zebra Day! These striking animals, known for their unique black and white patterns, are mostly found in the African savanna, stretching from Kenya to South Africa. Of the three zebra species, Grévy's zebra, plains zebra, and mountain zebra, the Grévy's zebra is the most endangered, with more than half its population lost in only three decades. While plains zebras are thriving, mountain zebras face significant threats, such as poaching and habitat encroachment. Zebras play an essential role in the ecosystems they live in, coexisting with predators like lions and hyenas while shaping the grasslands they call home.
+> 
+> In today's picture, we see two plains zebras—which are anything but plain—at sunrise in Mokala National Park, South Africa. International Zebra Day raises awareness about the challenges these animals face and encourages conservation efforts to ensure their survival. Whether by learning more or supporting wildlife initiatives, we can all play a role in protecting these fascinating creatures.
+> 
+> 
+
+</details>
+
+| ![Happy International Zebra Day!](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy International Zebra Day!](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |
+
 ### 20250130
 
 > La Brecha de Rolando, Ordesa y Monte Perdido National Park, Spain (© Inaki Relanzon/Nature Picture Library/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Porto, Portugal](https://cn.bing.com/th?id=OHR.PortoSunset_EN-US7987153816_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Porto, Portugal](https://cn.bing.com/th?id=OHR.PortoSunset_EN-US7987153816_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PortoSunset_EN-US7987153816_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PortoSunset_EN-US7987153816_1080x1920.jpg) |
-
-### 20250124
-
-> Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> What could be better than warming up winter with a feast that's a little wild and a lot of fun? Thorrablot, Iceland's midwinter festival, invites you to dive headfirst into tradition. This celebration of survival, culture, and community, which dates to the Viking Age, was once a way for Icelanders to honor Thor, the Norse god of thunder. Today, people celebrate by gathering to feast on an array of local delicacies, including fermented shark, smoked lamb, rye bread, and shots of Brennivín—often called 'black death' schnapps.
-> 
-> Strokkur geyser—featured in the image—warms up winter in a completely different way. Located in the geothermal area beside the Hvítá River, this geyser erupts every 6 to 10 minutes, shooting hot water 49 to 66 feet into the air. It has been consistently active since 1963. There is science behind its eruption—magma beneath the Earth's crust heats groundwater until the pressure builds up, forcing the water explosively to the surface. Both Thorrablot and Strokkur celebrate Iceland's resilience—one through its people and the other through its land.
-> 
-> 
-
-</details>
-
-| ![Thorrablot: The Icelandic midwinter festival](https://cn.bing.com/th?id=OHR.IcelandGeyser_EN-US7648999118_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Thorrablot: The Icelandic midwinter festival](https://cn.bing.com/th?id=OHR.IcelandGeyser_EN-US7648999118_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcelandGeyser_EN-US7648999118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcelandGeyser_EN-US7648999118_1080x1920.jpg) |m/th?id=OHR.DeerValley_EN-US2128104711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeerValley_EN-US2128104711_1080x1920.jpg) |34130511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg) | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PortoSunset_EN-US7987153816_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PortoSunset_EN-US7987153816_1080x1920.jpg) |eyser_EN-US7648999118_1080x1920.jpg) |m/th?id=OHR.DeerValley_EN-US2128104711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeerValley_EN-US2128104711_1080x1920.jpg) |34130511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1080x1920.jpg) | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
