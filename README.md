@@ -1,129 +1,137 @@
 ## bing wallpaper
 
-### 20250202
+### 20250204
 
-> Young alpine marmot (© Jonas Fichtner-Pflaum/Getty Images)
+> 金桥，巴拿山，岘港，越南 (© Hien Phung Thu/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> It's Groundhog Day … again. Today, Americans and Canadians rely on the prognostication skills of Punxsutawney Phil to determine if winter will hang on. Phil is a famous groundhog, also known as a woodchuck, and legend has it that if he emerges from his burrow February 2 and sees his own shadow, he'll go back to sleep for another six weeks of winter. If he doesn't, it will be an early spring. German immigrants brought the custom to America, where it was first celebrated in Punxsutawney, Pennsylvania, in 1887. Historically, Europeans celebrated February 2 as the first day of spring, and Germans originally watched badgers and other small animals for signs of seasonal change important to farmers. The Germans who settled in Pennsylvania in the 18th and 19th centuries chose the area's native groundhog for this task.
+> 两只巨大的石手托起一条闪闪发光的金色步道，仿佛是周围的群山将其献给天空。这就是金桥，位于越南中部岘港附近群山中的步行桥。自2018年开放以来，这座桥凭借独特设计和壮丽景观迅速成为全球瞩目的景点，吸引无数游客前来打卡。
 > 
-> The alpine marmot in today's image is a close relative of the groundhog, which is another species of marmot. Marmots are the heaviest members of the squirrel family, and the alpine species is native to central and southern Europe. Its North American cousin, the groundhog, is a highly intelligent lowland rodent that forms intricate social networks, but it's a so-so weather forecaster.
+> 不同于传统桥梁，金桥并未横跨河流或湖泊，而是绵延490英尺，跨越郁郁葱葱的山林，连接天泰花园内的马赛站与波尔多站两座缆车站。桥梁由钢筋混凝土建造，桥身由钢丝网和玻璃纤维制成的巨手支撑，展现出现代工艺与永恒力量交融的视觉奇观。金桥悬于海拔约3200英尺的高空，为游客提供俯瞰越南葱郁乡村的壮丽全景。作为越南创意与自然美景的象征，金桥邀请游客前来体验一场与众不同的漫步之旅。
 > 
 > 
 
 </details>
 
-| ![Groundhog Day](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Groundhog Day](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![金桥，巴拿山，岘港, 越南](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![金桥，巴拿山，岘港, 越南](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_1080x1920.jpg) |
+
+### 20250203
+
+> 盛开的樱花树上的红头长尾山雀 (© Haitong Yu/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 立春到啦，新的四季轮回已经开启。虽然我们已经开始步入了春天，但中国幅员辽阔，南北跨度大，很多地区都是只是刚刚进入春天的前奏阶段。
+> 
+> 今年的立春正值春节假期中， 看着图中这两只樱花树上的可爱的红头长尾山雀，颇有一番春日里喜上枝头的意境。让我们一起期待吧，期待温暖的春天快快到来，期待新的一年花开富贵，事事如意！
+> 
+> 
+
+</details>
+
+| ![立春](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![立春](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_1080x1920.jpg) |
+
+### 20250202
+
+> 年幼的高山土拨鼠 (© Jonas Fichtner-Pflaum/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 又迎来了土拨鼠日。今天，美国和加拿大的人们依赖著名土拨鼠潘克苏托尼·菲尔预测冬季是否会持续。菲尔是世界上最著名的土拨鼠。传说2月2日它若从洞穴中出来看到影子，就会返回洞中继续冬眠，意味着冬天将持续六周；若看不到影子，则预示春天将提前到来。德国移民将这一习俗带到美国。1887年，宾夕法尼亚州潘克苏托尼首次举办土拨鼠日庆祝活动。历史上，欧洲人将这一天视为春天的开始。德国人最初通过观察獾和其他小动物的行为，判断农事重要的季节变化迹象。18至19世纪移居宾夕法尼亚的德国人，选择当地土拨鼠担任“天气预报员”的角色。
+> 
+> 今日图片中的阿尔卑斯旱獭是土拨鼠的近亲，它们都属于旱獭属动物。旱獭是松鼠科体型最大的成员，而阿尔卑斯旱獭主要分布在中欧和南欧的山区。与之类似，北美的土拨鼠是聪明的低地啮齿动物，能形成复杂的社会网络，但作为“天气预报员”表现却差强人意。
+> 
+> 
+
+</details>
+
+| ![土拨鼠日](https://cn.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![土拨鼠日](https://cn.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_1080x1920.jpg) |
 
 ### 20250201
 
-> National Museum of African American History & Culture, Washington, DC (© BrianPIrwin/Shutterstock)
+> 国王岩堡垒 , 瑞士撒克逊, 德国 (© Bildagentur-online/Exss/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> Today, the United States begins an annual, monthlong celebration of African Americans and their contributions to the country's history and culture. The forerunner of Black History Month was created in 1926 by historian Carter Woodson and minister Jesse Moorland to study and promote the legacy of Black Americans. The weeklong celebration was observed in the second week of February to coincide with the birthdays of President Abraham Lincoln and African American abolitionist Frederick Douglass. Its popularity grew over the next 50 years in large part because of the civil rights movement, and President Gerald Ford expanded it to a full month in 1976. Other countries honor their own Black histories, including Canada, which also celebrates Black History Month throughout February.
+> 作为欧洲最壮观的山地要塞之一，它耸立于易北砂岩山脉之巅。历史记录显示，1233年波希米亚国王温塞斯拉斯一世的文件首次提及这座堡垒，当时称其为施泰因的总督堡，推测即为国王岩堡垒。当时，这片区域属于波希米亚王国。16世纪，这座城堡经过大规模扩建，逐步发展为萨克森州立要塞。1566年至1569年，堡内建造了一口深达152.5米的井，这也是德国最深的历史古井之一，标志着要塞发展的重要里程碑。此外，首位国家囚犯马丁·米鲁斯博士的囚禁，揭开了堡垒作为监狱的历史篇章。
 > 
-> Seen in today's image, the National Museum of African American History & Culture is an excellent resource to learn about African American pioneers. Part of the Smithsonian Institution and found on the National Mall in Washington, DC, the museum was opened in a 2016 ceremony led by President Barack Obama. It's the world's largest African American museum with more than 40,000 artifacts and offers free daily admission with online reservations.
+> 德累斯顿五月起义期间，国王岩堡垒再次成为萨克森王室的避难所。起义被镇压后，革命者被囚禁于要塞的国家监狱。一战和二战期间，这里曾被用作大型战俘营。1955年后，要塞被用作青少年犯罪改造中心，随后开放为博物馆，吸引无数游客参观。冬季，国王岩堡垒化身童话般的冰雪仙境，冰霜将古老城墙装点得晶莹剔透，宛如艺术品。这座自然与人文交融的瑰宝，曾启发德国画家卡斯帕·大卫·弗里德里希创作名画《雾海上的旅人》。
 > 
 > 
 
 </details>
 
-| ![Black History Month](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![国王岩堡垒，瑞士撒克逊，德国](https://cn.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国王岩堡垒，瑞士撒克逊，德国](https://cn.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_1080x1920.jpg) |
 
 ### 20250131
 
-> Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)
+> 日出时的平原斑马，莫卡拉国家公园，南非 (© EcoPrint/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> Celebrate the beauty of zebras on International Zebra Day! These striking animals, known for their unique black and white patterns, are mostly found in the African savanna, stretching from Kenya to South Africa. Of the three zebra species, Grévy's zebra, plains zebra, and mountain zebra, the Grévy's zebra is the most endangered, with more than half its population lost in only three decades. While plains zebras are thriving, mountain zebras face significant threats, such as poaching and habitat encroachment. Zebras play an essential role in the ecosystems they live in, coexisting with predators like lions and hyenas while shaping the grasslands they call home.
+> 在国际斑马日，让我们一起庆祝斑马的独特之美！这些黑白条纹的动物主要生活在非洲草原上，从肯尼亚延伸至南非。斑马分为细纹斑马、平原斑马和山斑马三种，其中细纹斑马最为濒危，其数量在三十年内减少了一半以上。尽管平原斑马种群繁盛，山斑马仍面临偷猎和栖息地侵占等威胁。斑马在生态系统中发挥着重要作用，它们与狮子和鬣狗等捕食者共存，并影响草原生态的平衡。
 > 
-> In today's picture, we see two plains zebras—which are anything but plain—at sunrise in Mokala National Park, South Africa. International Zebra Day raises awareness about the challenges these animals face and encourages conservation efforts to ensure their survival. Whether by learning more or supporting wildlife initiatives, we can all play a role in protecting these fascinating creatures.
+> 今日图片展示了两只平原斑马在南非莫卡拉国家公园的日出中优雅地站立。国际斑马日旨在提升人们对斑马生存挑战的关注，并鼓励采取保护措施以保障其存续。无论是学习了解斑马的相关知识，还是支持野生动物保护项目，我们每个人都能为保护这些迷人的动物贡献力量。
 > 
 > 
 
 </details>
 
-| ![Happy International Zebra Day!](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy International Zebra Day!](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![国际斑马日快乐！](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际斑马日快乐！](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_1080x1920.jpg) |
 
 ### 20250130
 
-> La Brecha de Rolando, Ordesa y Monte Perdido National Park, Spain (© Inaki Relanzon/Nature Picture Library/Alamy)
+> 罗兰多山口，奥德萨和佩迪多山国家公园，西班牙 (© Inaki Relanzon/Nature Picture Library/Alamy Stock Photo)
 
 <details>
 <summary>Description</summary>
 
-> High up in the Pyrenees, there is a gap in the mountains. More than 300 feet tall and 131 feet across, La Brecha de Rolando (Roland's Breach), featured here today, is a sight to behold. But who was Roland? Count Roland was a Frankish military leader during Charlemagne's reign in the 8th century. Legend has it that, after being defeated in battle, Roland cut a gap in the mountains—either to destroy his sword or to catch one last glimpse of France.
+> 在比利牛斯山脉高处，有一个山间缺口，罗兰缺口。这道缺口高约300 多英尺，宽 131 英尺，是令人惊叹的自然奇观。那么罗兰是谁？他是公元八世纪查理曼大帝统治时期的法兰克军事领袖。传说他在战败后用剑在山脉砍出一个缺口，有人说是为了毁掉自己的宝剑，也有人说是为了最后再看一眼祖国法兰西。
 > 
-> Roland's Breach lies within the Ordesa y Monte Perdido National Park in Spain, right on the border with France. Covering more than 38,000 acres, the park is home to some spectacular limestone formations. It's made up of four different valleys and one peak—Monte Perdido—which towers more than 11,000 feet above sea level. It even has its own glacier, Monte Perdido, which is the fourth largest in the Pyrenees. A wide range of animals live in this mountainous landscape, including wild boars, Pyrenean chamois, and brown bears.
+> 罗兰缺口位于西班牙的奥德萨和佩迪杜山国家公园，紧邻法国边界。公园面积超过38,000英亩，以壮观的石灰岩地貌闻名。公园包括四个各具特色的山谷和一座海拔超过11,000英尺的蒙特佩尔杜山峰。这座山峰还拥有自己的冰川蒙特佩尔杜冰川，为比利牛斯山脉第四大冰川。这片崎岖的山区栖息着丰富的野生动物，包括野猪、比利牛斯羚羊和棕熊。这里既是地质奇观，也是一片野生动植物的天堂。
 > 
 > 
 
 </details>
 
-| ![La Brecha de Rolando (Roland's Breach), Spain](https://cn.bing.com/th?id=OHR.OrdesaSpain_EN-US9252424531_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![La Brecha de Rolando (Roland's Breach), Spain](https://cn.bing.com/th?id=OHR.OrdesaSpain_EN-US9252424531_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![罗兰缺口，西班牙](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![罗兰缺口，西班牙](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrdesaSpain_EN-US9252424531_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrdesaSpain_EN-US9252424531_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_1080x1920.jpg) |
 
 ### 20250129
 
-> Dragon dance, Wuhan, China (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)
+> 南京夫子庙的春节许愿牌，江苏省，中国 (© lazy dragon/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> The streets come alive today with a symphony of firecrackers, red lanterns, and cheerful chatter—it's Chinese New Year. Steeped in thousands of years of tradition, this holiday marks the start of the lunisolar Chinese calendar. One of the most captivating images associated with this festival is the dragon dance, pictured here. Skilled dancers manipulate a long, flexible dragon puppet, bringing it to life with sinuous, undulating movements. The dragon, a symbol of power, dignity, and good fortune, is believed to bring luck to the community, with longer dragons bringing even more prosperity.
+> 春节，是中国民间最隆重也最富有特色的传统节日之一。春节期间的民俗众多，活动内容也是丰富多彩，且具有重要的历史、艺术和文化价值。其中逛庙会、赏灯会，更是春节最具特色的民俗活动之一。
 > 
-> The festivities of the Chinese New Year aren't confined to China alone; they resonate across the globe, from the streets of Singapore to the Chinatowns of New York, San Francisco, and London. Each place adds its unique twist, but the core traditions remain the same: family reunions, sumptuous feasts, and the exchange of hongbao—red envelopes filled with money. This blend of ancient customs and modern practices unites people in joy and hope for the year ahead.
+> 今天的照片是南京夫子庙的一块红色木匾，上面写着“福”字。南京夫子庙是中国四大文庙之一，是中国最大的传统古集市之一，也是中国著名的对外开放的国家5A级旅游景区和国际旅游度假区。每年春节至元宵节期间，人们不仅到夫子庙祈福，还会来这里赏灯、看画舫。
 > 
-> 
+> 南京夫子庙灯会又称“金陵灯会”，是南京地区流行的一种独特的民间文化活动，早在南朝时期就有，其盛况为全国之最。如今这里也是民间重要的文化活动场所，长期以来，这里已经成为秦淮文化的重要组成部分。春节期间，如果想感受秦淮地区的文化，一定要来这里。
 
 </details>
 
-| ![Chinese New Year](https://cn.bing.com/th?id=OHR.LunarDragon_EN-US9011723385_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chinese New Year](https://cn.bing.com/th?id=OHR.LunarDragon_EN-US9011723385_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![大年初一，中国春节](https://cn.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大年初一，中国春节](https://cn.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LunarDragon_EN-US9011723385_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LunarDragon_EN-US9011723385_1080x1920.jpg) |
-
-### 20250128
-
-> Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The short-eared owl, featured in today's image, is a grassland-dwelling member of the owl family. Found on all continents except Antarctica and Australia, it's one of the most widely distributed bird species. This raptor belongs to the genus Asio, whose members are characterized by feather tufts ('ears') on their head. The short-eared owl only reveals its tufts when feeling defensive.
-> 
-> Irregular wingbeats cause its flight to be on the floppy side, like a moth or bat. It likes to glide a few feet above the ground in open fields and grasslands, swooping down feet first to grab its prey. Owls primarily hunt at night, but this silent hunter is also active during the day and at dusk. Its daylight hunts often line up with the peak activity of small rodents called voles—its favorite meal. Known to relocate to areas with higher rodent populations, the short-eared owl even wanders nomadically in search of better food supplies during years when vole populations are low.
-> 
-> 
-
-</details>
-
-| ![Short-eared owl](https://cn.bing.com/th?id=OHR.FlyingOwl_EN-US8779625388_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Short-eared owl](https://cn.bing.com/th?id=OHR.FlyingOwl_EN-US8779625388_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlyingOwl_EN-US8779625388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingOwl_EN-US8779625388_1080x1920.jpg) |
-
-### 20250127
-
-> Zoroaster Temple, Grand Canyon National Park, Arizona (© Nick Lake/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Carved by the Colorado River, nearly 2 billion years of Earth's history are exposed in the layers of the Grand Canyon. While geologists continue to debate parts of the formation story of the canyon, recent studies suggest the river carved its path through the region about 5 to 6 million years ago. Since then, the river has been deepening and widening the canyon while sculpting its dramatic geographic features.
-> 
-> Today, the Grand Canyon is much more than just a massive chasm with exceptional vistas. It's home to some stunning geographic features, like Zoroaster Temple, featured in today's image. This towering 7,123-foot summit is in Coconino County, Arizona. The peak was named after the ancient Iranian prophet Zoroaster by George Wharton James, an American photographer and journalist, and Clarence Dutton, an American geologist. Rick Tidrick and Dave Ganci made the first summit ascent of Zoroaster Temple in September 1958. This triumph marked the Grand Canyon's first technical climb, turning it into a hotspot and igniting a wave of summit-chasing climbers.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_1080x1920.jpg) |ning geographic features, like Zoroaster Temple, featured in today's image. This towering 7,123-foot summit is in Coconino County, Arizona. The peak was named after the ancient Iranian prophet Zoroaster by George Wharton James, an American photographer and journalist, and Clarence Dutton, an American geologist. Rick Tidrick and Dave Ganci made the first summit ascent of Zoroaster Temple in September 1958. This triumph marked the Grand Canyon's first technical climb, turning it into a hotspot and igniting a wave of summit-chasing climbers.
 > 
 > 
 
