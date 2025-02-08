@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250206
+
+> Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)
+
+<details>
+<summary>Description</summary>
+
+> What do you get when you bring together more than 500 Māori chiefs, representatives of the British Crown, and a treaty signed in 1840? A day that New Zealanders still commemorate: Waitangi Day. On this date, the Treaty of Waitangi was signed, establishing the principles for how the two cultures would coexist. Ceremonies are held at Waitangi Treaty Grounds—where the document was signed—featuring traditional Māori performances, speeches, and the ever-dramatic waka (canoe) races. From festivals and concerts in cities like Auckland and Wellington to low-key community gatherings, the spirit of the day is about connection and culture.
+> 
+> What's better than celebrating New Zealand's history on Waitangi Day? Doing it in a place that looks straight out of a postcard. Enter the Archway Islands, a group of four rock stacks at Wharariki Beach, as seen in today's image. Rising from the waters of the Tasman Sea, these rugged islets became well known around the world after they were featured in a Windows 10 desktop screensaver in 2015. At low tide, curious wanderers can explore caves and rock pools and often spot lounging seals.
+> 
+> 
+
+</details>
+
+| ![Waitangi Day in New Zealand](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Waitangi Day in New Zealand](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |
+
 ### 20250205
 
 > Scottish Blackface sheep, Aberdeenshire, Scotland (© Mike Powles/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Happy International Zebra Day!](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy International Zebra Day!](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |
-
-### 20250130
-
-> La Brecha de Rolando, Ordesa y Monte Perdido National Park, Spain (© Inaki Relanzon/Nature Picture Library/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> High up in the Pyrenees, there is a gap in the mountains. More than 300 feet tall and 131 feet across, La Brecha de Rolando (Roland's Breach), featured here today, is a sight to behold. But who was Roland? Count Roland was a Frankish military leader during Charlemagne's reign in the 8th century. Legend has it that, after being defeated in battle, Roland cut a gap in the mountains—either to destroy his sword or to catch one last glimpse of France.
-> 
-> Roland's Breach lies within the Ordesa y Monte Perdido National Park in Spain, right on the border with France. Covering more than 38,000 acres, the park is home to some spectacular limestone formations. It's made up of four different valleys and one peak—Monte Perdido—which towers more than 11,000 feet above sea level. It even has its own glacier, Monte Perdido, which is the fourth largest in the Pyrenees. A wide range of animals live in this mountainous landscape, including wild boars, Pyrenean chamois, and brown bears.
-> 
-> 
-
-</details>
-
-| ![La Brecha de Rolando (Roland's Breach), Spain](https://cn.bing.com/th?id=OHR.OrdesaSpain_EN-US9252424531_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![La Brecha de Rolando (Roland's Breach), Spain](https://cn.bing.com/th?id=OHR.OrdesaSpain_EN-US9252424531_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrdesaSpain_EN-US9252424531_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrdesaSpain_EN-US9252424531_1080x1920.jpg) |011723385_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LunarDragon_EN-US9011723385_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
