@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250207
+
+> Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In Norway, winter isn't just a season—it's an experience. In the north of the country, nights stretch for 20 hours, and there are entire weeks when the sun remains hidden below the horizon. It might sound bleak, but it's a unique time of the year. Why? Because around early afternoon, usually between 1 and 2 PM, a soft, lingering light reflects off the snow-covered ground and the deep blue sea. This forms a breathtaking, glassy blue glow that settles over the landscape. Each day, the blue hour arrives just a little later, a gentle reminder that the sun is slowly preparing to reclaim the sky.
+> 
+> Featured here is Trondheim's blue hour. The city lies on the southern shore of the Trondheimsfjord and is framed by the gentle curves of the Nidelva River. Founded in 997 CE as a trading post, Trondheim was Norway's capital during the Viking Age and remained so until 1217. While its coastal climate keeps winters relatively mild, Trondheim's nearby hills offer a colder, snowier microclimate perfect for winter sports enthusiasts.
+> 
+> 
+
+</details>
+
+| ![Blue hour in Trondheim, Norway](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blue hour in Trondheim, Norway](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |
+
 ### 20250206
 
 > Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)
@@ -112,26 +131,7 @@
 
 | ![Black History Month](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |
-
-### 20250131
-
-> Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Celebrate the beauty of zebras on International Zebra Day! These striking animals, known for their unique black and white patterns, are mostly found in the African savanna, stretching from Kenya to South Africa. Of the three zebra species, Grévy's zebra, plains zebra, and mountain zebra, the Grévy's zebra is the most endangered, with more than half its population lost in only three decades. While plains zebras are thriving, mountain zebras face significant threats, such as poaching and habitat encroachment. Zebras play an essential role in the ecosystems they live in, coexisting with predators like lions and hyenas while shaping the grasslands they call home.
-> 
-> In today's picture, we see two plains zebras—which are anything but plain—at sunrise in Mokala National Park, South Africa. International Zebra Day raises awareness about the challenges these animals face and encourages conservation efforts to ensure their survival. Whether by learning more or supporting wildlife initiatives, we can all play a role in protecting these fascinating creatures.
-> 
-> 
-
-</details>
-
-| ![Happy International Zebra Day!](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy International Zebra Day!](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
