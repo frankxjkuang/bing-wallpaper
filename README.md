@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250208
+
+> Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Winter turns Mestia's medieval towers into icy fortresses. Perched 4,921 feet up in the Caucasus Mountains, Mestia is a charming highland town in northwest Georgia. The town is home to the Svans, a cultural and linguistic subgroup of Georgians. Despite its modest size, Mestia has been an essential hub of Georgian culture for centuries, dotted with the Svan defensive towers, seen in today's image. Most of these towers were constructed between the 9th and 12th centuries, a period often referred to as Georgia's Golden Age. However, their roots are believed to stretch even further back, possibly into prehistoric times. Built for both protection and shelter, these towers were not just fortresses but also integral parts of family homes, reflecting the region's history of resilience and self-sufficiency. Therefore, it isn't just a town; it's a living museum where history rises from these towers and echoes through the mountains.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Medieval towers in Mestia, Upper Svaneti, Georgia](https://cn.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Medieval towers in Mestia, Upper Svaneti, Georgia](https://cn.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_1080x1920.jpg) |
+
 ### 20250207
 
 > Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Groundhog Day](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Groundhog Day](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |
-
-### 20250201
-
-> National Museum of African American History & Culture, Washington, DC (© BrianPIrwin/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Today, the United States begins an annual, monthlong celebration of African Americans and their contributions to the country's history and culture. The forerunner of Black History Month was created in 1926 by historian Carter Woodson and minister Jesse Moorland to study and promote the legacy of Black Americans. The weeklong celebration was observed in the second week of February to coincide with the birthdays of President Abraham Lincoln and African American abolitionist Frederick Douglass. Its popularity grew over the next 50 years in large part because of the civil rights movement, and President Gerald Ford expanded it to a full month in 1976. Other countries honor their own Black histories, including Canada, which also celebrates Black History Month throughout February.
-> 
-> Seen in today's image, the National Museum of African American History & Culture is an excellent resource to learn about African American pioneers. Part of the Smithsonian Institution and found on the National Mall in Washington, DC, the museum was opened in a 2016 ceremony led by President Barack Obama. It's the world's largest African American museum with more than 40,000 artifacts and offers free daily admission with online reservations.
-> 
-> 
-
-</details>
-
-| ![Black History Month](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
