@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250209
+
+> Alstrom Point, Lake Powell, Utah (© T.M. Schultze/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> If you're chasing sunsets and jaw-dropping views, come to Alstrom Point. Located in southern Utah's Kane County, this spot in the Glen Canyon National Recreation Area stands at an impressive height of 4,685 feet. Made mostly of Entrada Sandstone, it has the same geological roots as nearby sites like Romana Mesa, its parent peak, and Gunsight Butte, another sandstone summit to the east.
+> 
+> Part of the Lake Powell region, Alstrom Point extends southward into the vast waters of the lake, in between Padre Bay and Warm Creek Bay. When the lake is full, Alstrom Point towers nearly 1,000 feet above the water, offering views of the surrounding canyons. Lake Powell, spanning across Utah and Arizona, attracts around 3 million visitors every year. The lake is a maze of deep blue water winding through over 90 rock canyons. While its main stretch runs through Glen Canyon, it also snakes into over many smaller side canyons, along with the Escalante and San Juan Rivers.
+> 
+> 
+
+</details>
+
+| ![Alstrom Point, Lake Powell, Utah](https://cn.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alstrom Point, Lake Powell, Utah](https://cn.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1080x1920.jpg) |
+
 ### 20250208
 
 > Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Ribblehead Viaduct, North Yorkshire, England](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ribblehead Viaduct, North Yorkshire, England](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_1080x1920.jpg) |
-
-### 20250202
-
-> Young alpine marmot (© Jonas Fichtner-Pflaum/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It's Groundhog Day … again. Today, Americans and Canadians rely on the prognostication skills of Punxsutawney Phil to determine if winter will hang on. Phil is a famous groundhog, also known as a woodchuck, and legend has it that if he emerges from his burrow February 2 and sees his own shadow, he'll go back to sleep for another six weeks of winter. If he doesn't, it will be an early spring. German immigrants brought the custom to America, where it was first celebrated in Punxsutawney, Pennsylvania, in 1887. Historically, Europeans celebrated February 2 as the first day of spring, and Germans originally watched badgers and other small animals for signs of seasonal change important to farmers. The Germans who settled in Pennsylvania in the 18th and 19th centuries chose the area's native groundhog for this task.
-> 
-> The alpine marmot in today's image is a close relative of the groundhog, which is another species of marmot. Marmots are the heaviest members of the squirrel family, and the alpine species is native to central and southern Europe. Its North American cousin, the groundhog, is a highly intelligent lowland rodent that forms intricate social networks, but it's a so-so weather forecaster.
-> 
-> 
-
-</details>
-
-| ![Groundhog Day](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Groundhog Day](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_1080x1920.jpg) | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
