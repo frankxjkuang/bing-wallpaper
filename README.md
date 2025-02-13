@@ -2,69 +2,69 @@
 
 ### 20250211
 
-> 云冈石窟，大同，山西省，中国 (© Eric Yang/Getty Images)
+> Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 云冈石窟中汇聚了51,000尊古代雕像，这座早期佛教艺术杰作位于中国山西省大同市附近。石窟开凿于1500多年前的北魏时期（公元386-534/535年），现存主要洞窟45个，附属洞窟209个。最引人注目的是第5窟中的巨大佛像，高达56英尺，令人叹为观止。这只是冰山一角，每个洞窟都展现其独特魅力。有些洞窟宛如古代画卷，描绘佛教经典故事；另一些则展示僧侣、神祇、乐师，甚至北魏时期的日常生活场景。
+> What do 51,000 ancient statues have in common? They all call the Yungang Grottoes in China home! This collection of early Buddhist art is near Datong in Shanxi province, northeastern China. Carved into sandstone cliffs over 1,500 years ago during the Northern Wei dynasty, the grottoes comprise 254 caves. The highlight is the massive Buddha in Cave 5, which is a jaw-dropping 56 feet tall. But don't stop there—each cave offers something unique. Some are like ancient storyboards, depicting tales from Buddhist scriptures, while others showcase detailed carvings of monks, deities, musicians, and even scenes of daily life under Wei rule. These caves blend influences from Indian, Central Asian, and local Chinese Buddhist art. Whether you're a history lover or simply appreciate unique art, the Yungang Grottoes offer an unforgettable experience.
 > 
-> 第16至20窟被称为‘昙曜五窟’，是云冈石窟最早开凿的洞窟，由高僧昙曜主持修建。游览时，千万不要错过第20窟中呈冥想姿态的露天大佛，其旁还有一尊站立的侍佛像。这些洞窟融合了印度、中亚及中国本土佛教艺术风格，呈现出文化交融的壮丽奇观。无论是历史爱好者还是艺术鉴赏家，云冈石窟都将带来一次难忘的体验。
+> 
 > 
 > 
 
 </details>
 
-| ![云冈石窟，大同，中国](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![云冈石窟，大同，中国](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Yungang Grottoes, Shanxi, China](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yungang Grottoes, Shanxi, China](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_1080x1920.jpg) |
 
 ### 20250210
 
-> 雨伞艺术装置，博罗市场，伦敦，英国 (© Malcolm P Chapman/Getty Images)
+> Art installation of umbrellas at Borough Market in London, England (© Malcolm P Chapman/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 今天是国际伞日，这一充满趣味的节日旨在纪念人类历史上最简单却重要的发明之一：雨伞或阳伞。早在4000多年前，伞已出现在古埃及、亚述和中国，最初用于遮挡阳光。直到17世纪，我们今天所熟知的雨伞才在欧洲流行，最初作为专为女性设计的奢侈品。几个世纪以来，雨伞不仅成为日常生活的必需品，也成为流行文化的象征。例如，玛丽·波平斯的标志性飞行雨伞，以及蕾哈娜的热门歌曲《雨伞》。
+> It's National Umbrella Day today, a quirky celebration that honors one of the simplest yet most essential inventions in human history: the umbrella, or parasol. Over 4,000 years ago, in ancient Egypt, Assyria, and China, these foldable canopies were first used to shield people from the sun. It wasn't until the 17th century that the umbrella, as we know it today, gained popularity in Europe, initially as a luxury item primarily for women. Fast-forward a few centuries, and these weather shields have become a staple in pop culture, too. Remember Mary Poppins with her iconic umbrella that helped her fly, or Rihanna's hit song 'Umbrella'?
 > 
-> 除了实用性，伞还在艺术与时尚领域留下深刻印记。伞经常作为艺术装置的一部分，比如今日图片中伦敦博罗市场色彩斑斓的伞饰。不过，你是否好奇，为什么那么多伞会被遗忘在火车上？因为伞是全球最常被遗忘的物品之一。无论晴天还是雨天，拿好你的伞，一起参与这场庆祝活动吧！
+> Beyond their functionality, umbrellas have also made their mark in art and fashion. They often feature in artistic installations, such as the vibrant display at Borough Market in London, seen in today's image. But have you ever wondered why so many of them are left behind on trains? They're among the most commonly lost items worldwide! Grab yours—rain or shine—and join the celebration.
 > 
 > 
 
 </details>
 
-| ![博罗市场，伦敦，英国](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![博罗市场，伦敦，英国](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![National Umbrella Day](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Umbrella Day](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_1080x1920.jpg) |
 
 ### 20250209
 
-> 阿尔斯特罗姆角，鲍威尔湖，犹他州，美国 (© T.M. Schultze/TANDEM Stills + Motion)
+> Alstrom Point, Lake Powell, Utah (© T.M. Schultze/TANDEM Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 如果你向往壮丽的日落和令人惊叹的美景，不妨来到阿尔斯特罗姆角。阿尔斯特罗姆角位于犹他州南部凯恩县的格伦峡谷国家休闲区，海拔达4685英尺。阿尔斯特罗姆角主要由恩特拉达砂岩构成，与附近的罗马纳梅萨主峰及东侧的冈赛特山共享相同的地质起源。
+> If you're chasing sunsets and jaw-dropping views, come to Alstrom Point. Located in southern Utah's Kane County, this spot in the Glen Canyon National Recreation Area stands at an impressive height of 4,685 feet. Made mostly of Entrada Sandstone, it has the same geological roots as nearby sites like Romana Mesa, its parent peak, and Gunsight Butte, another sandstone summit to the east.
 > 
-> 作为鲍威尔湖地区的一部分，阿尔斯特罗姆角向南延伸至湖泊辽阔水域，位于帕德雷湾与沃姆溪湾之间。湖水蓄满时，阿尔斯特罗姆角高出水面近1000英尺，可俯瞰周围峡谷。鲍威尔湖横跨犹他州与亚利桑那州，每年吸引约300万游客前来。这片湖泊由深蓝色水流组成迷宫般的网络，蜿蜒穿过90多个岩石峡谷。湖泊的主要部分流经格伦峡谷，同时延伸至多个较小支流峡谷，以及埃斯卡兰特河与圣胡安河区域。
+> Part of the Lake Powell region, Alstrom Point extends southward into the vast waters of the lake, in between Padre Bay and Warm Creek Bay. When the lake is full, Alstrom Point towers nearly 1,000 feet above the water, offering views of the surrounding canyons. Lake Powell, spanning across Utah and Arizona, attracts around 3 million visitors every year. The lake is a maze of deep blue water winding through over 90 rock canyons. While its main stretch runs through Glen Canyon, it also snakes into over many smaller side canyons, along with the Escalante and San Juan Rivers.
 > 
 > 
 
 </details>
 
-| ![阿尔斯特罗姆角，鲍威尔湖](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![阿尔斯特罗姆角，鲍威尔湖](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Alstrom Point, Lake Powell, Utah](https://cn.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alstrom Point, Lake Powell, Utah](https://cn.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1080x1920.jpg) |
 
 ### 20250208
 
-> 梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚 (© photoaliona/Getty Images)
+> Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 冬季为梅斯蒂亚的中世纪塔楼披上冰雪，宛如一座座坚固的堡垒。梅斯蒂亚坐落于高加索山脉，海拔4921英尺，是格鲁吉亚西北部一座迷人的高原小镇。小镇是斯万人的故乡，他们是格鲁吉亚文化和语言的一个独特分支。尽管规模不大，梅斯蒂亚数百年来一直是格鲁吉亚文化的枢纽，小镇遍布斯万族的防御塔，如今日图片所示。这些防御塔大多建于9至12世纪，这一时期被誉为格鲁吉亚的黄金时代。据推测，这些塔楼的历史可能追溯至更久远的史前时期。塔楼不仅是防御工事，也是家庭住宅的重要组成部分，反映了该地区坚韧不拔、自给自足的历史。因此，梅斯蒂亚不仅是一座小镇，更是一个活的博物馆，其历史从塔楼中升起，回荡在高山之间。
+> Winter turns Mestia's medieval towers into icy fortresses. Perched 4,921 feet up in the Caucasus Mountains, Mestia is a charming highland town in northwest Georgia. The town is home to the Svans, a cultural and linguistic subgroup of Georgians. Despite its modest size, Mestia has been an essential hub of Georgian culture for centuries, dotted with the Svan defensive towers, seen in today's image. Most of these towers were constructed between the 9th and 12th centuries, a period often referred to as Georgia's Golden Age. However, their roots are believed to stretch even further back, possibly into prehistoric times. Built for both protection and shelter, these towers were not just fortresses but also integral parts of family homes, reflecting the region's history of resilience and self-sufficiency. Therefore, it isn't just a town; it's a living museum where history rises from these towers and echoes through the mountains.
 > 
 > 
 > 
@@ -72,71 +72,66 @@
 
 </details>
 
-| ![梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Medieval towers in Mestia, Upper Svaneti, Georgia](https://cn.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Medieval towers in Mestia, Upper Svaneti, Georgia](https://cn.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_1080x1920.jpg) |
 
 ### 20250207
 
-> 特隆赫姆的蓝色时刻，挪威 (© Jeanny Mueller/Getty Images)
+> Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在挪威，冬季不仅是一个季节，更是一种独特的体验。在挪威北部，黑夜长达20小时，有时甚至整周太阳都隐匿在地平线之下。这听起来或许有些阴郁，但这种特殊的时节也展现出独特的魅力。通常在下午1点至2点之间，柔和的光线从白雪覆盖的地面和深蓝色海面反射而来。这形成了一种令人惊叹的如玻璃般湛蓝的光辉，笼罩着整片大地。这种蓝调时分每天都会来得稍晚一些，温柔地提醒人们太阳正缓缓准备重新升起。
+> In Norway, winter isn't just a season—it's an experience. In the north of the country, nights stretch for 20 hours, and there are entire weeks when the sun remains hidden below the horizon. It might sound bleak, but it's a unique time of the year. Why? Because around early afternoon, usually between 1 and 2 PM, a soft, lingering light reflects off the snow-covered ground and the deep blue sea. This forms a breathtaking, glassy blue glow that settles over the landscape. Each day, the blue hour arrives just a little later, a gentle reminder that the sun is slowly preparing to reclaim the sky.
 > 
-> 今日图片展示了特隆赫姆的蓝调时分。这座城市位于特隆赫姆峡湾南岸，环绕着尼达河的柔和曲线。特隆赫姆建于公元997年，最初是一个贸易站，在维京时代曾为挪威首都，直至1217年。特隆赫姆的沿海气候使冬季相对温和，但其周边山丘地带的微气候更为寒冷多雪，是冬季运动爱好者的理想之地。
+> Featured here is Trondheim's blue hour. The city lies on the southern shore of the Trondheimsfjord and is framed by the gentle curves of the Nidelva River. Founded in 997 CE as a trading post, Trondheim was Norway's capital during the Viking Age and remained so until 1217. While its coastal climate keeps winters relatively mild, Trondheim's nearby hills offer a colder, snowier microclimate perfect for winter sports enthusiasts.
 > 
 > 
 
 </details>
 
-| ![特隆赫姆的蓝色时刻，挪威](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![特隆赫姆的蓝色时刻，挪威](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Blue hour in Trondheim, Norway](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blue hour in Trondheim, Norway](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |
 
 ### 20250206
 
-> 拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture)
+> Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)
 
 <details>
 <summary>Description</summary>
 
-> 1840年，500多位毛利酋长与英国王室代表共同签署了一份条约，新西兰人至今仍在怀唐伊日纪念这一历史时刻。这一天，签署的《怀唐伊条约》确立了两种文化共存的原则。在怀唐伊条约签署地，庆典活动包括毛利传统表演、演讲和精彩的独木舟比赛。从奥克兰和惠灵顿的节日与音乐会，到低调的社区聚会，这一天的核心精神是联系与文化。
+> What do you get when you bring together more than 500 Māori chiefs, representatives of the British Crown, and a treaty signed in 1840? A day that New Zealanders still commemorate: Waitangi Day. On this date, the Treaty of Waitangi was signed, establishing the principles for how the two cultures would coexist. Ceremonies are held at Waitangi Treaty Grounds—where the document was signed—featuring traditional Māori performances, speeches, and the ever-dramatic waka (canoe) races. From festivals and concerts in cities like Auckland and Wellington to low-key community gatherings, the spirit of the day is about connection and culture.
 > 
-> 庆祝新西兰历史的最佳方式是什么？就是在如同明信片般美丽的地方度过这一天。今日图片展示的拱门岛位于瓦拉瑞基海滩，这些岩石群从塔斯曼海中拔地而起，外形崎岖壮丽。2015年，这些岩石因出现在Windows 10桌面屏保中而闻名全球。退潮时，游客可以探索洞穴和潮汐岩池，还常常能看到悠闲晒太阳的海豹。怀唐伊日不仅纪念历史，更是对文化与自然的庆典！
+> What's better than celebrating New Zealand's history on Waitangi Day? Doing it in a place that looks straight out of a postcard. Enter the Archway Islands, a group of four rock stacks at Wharariki Beach, as seen in today's image. Rising from the waters of the Tasman Sea, these rugged islets became well known around the world after they were featured in a Windows 10 desktop screensaver in 2015. At low tide, curious wanderers can explore caves and rock pools and often spot lounging seals.
 > 
 > 
 
 </details>
 
-| ![新西兰的怀唐伊日](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![新西兰的怀唐伊日](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Waitangi Day in New Zealand](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Waitangi Day in New Zealand](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |
 
 ### 20250205
 
-> 苏格兰黑脸羊，阿伯丁郡，苏格兰 (© Mike Powles/Getty Images)
+> Scottish Blackface sheep, Aberdeenshire, Scotland (© Mike Powles/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 成为“黑羊”并不一定是坏事，比如这只生活在苏格兰阿伯丁郡的苏格兰黑脸羊。凭借引人注目的黑色特征和在严寒恶劣环境中的适应能力，这种羊颠覆了‘黑羊’一词的负面印象。它不仅没有被排斥，反而是苏格兰农村生活的支柱，也是丘陵和沼泽地的生存高手。有趣的是，黑脸羊并非起源于苏格兰，而是来自苏格兰南部边境地区。这种羊的历史令人着迷，大体型的珀斯羊和中等体型的拉纳克羊等变种分布在英国各地。尽管黑脸羊是当地最常见的品种，但如今已传播到包括美国在内的世界各地。它的粗毛非常适合制作地毯和花呢等耐用面料，显然不适合制作普通毛衣！
+> Being the 'black sheep' isn't always a bad thing—just ask the Scottish Blackface, seen here in Aberdeenshire, Scotland. With its striking dark features and a knack for thriving in places where others wouldn't, this British breed has turned the idiom on its head. Far from an outcast, it's the backbone of Scotland's rural life and a true champion of the hills and moors. Interestingly, the Blackface sheep didn't originate in Scotland but south of the Anglo-Scottish border.
 > 
-> 
+> The breed's history is fascinating, and varieties such as the large-framed Perth and the medium-framed Lanark types are found throughout the United Kingdom. Not only is it the most common breed in the UK, but the Blackface sheep has spread across the world, including to the US. Its coarse fleece is perfect for making durable products like carpets and tweeds—it's definitely not your average sweater material.
 > 
 > 
 
 </details>
 
-| ![苏格兰黑脸羊，阿伯丁郡，苏格兰](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![苏格兰黑脸羊，阿伯丁郡，苏格兰](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Scottish Blackface sheep, Aberdeenshire, Scotland](https://cn.bing.com/th?id=OHR.ScottishSheep_EN-US3449526052_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Scottish Blackface sheep, Aberdeenshire, Scotland](https://cn.bing.com/th?id=OHR.ScottishSheep_EN-US3449526052_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_1080x1920.jpg) |
-</details>
-
-| ![Ribblehead Viaduct, North Yorkshire, England](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ribblehead Viaduct, North Yorkshire, England](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_1080x1920.jpg) | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ScottishSheep_EN-US3449526052_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ScottishSheep_EN-US3449526052_1080x1920.jpg) |bbleheadViaduct_EN-US0244245382_1080x1920.jpg) | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
