@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250212
+
+> Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, we celebrate Darwin Day—a shout-out to Charles Darwin and his game-changing ideas about life on Earth. As an English naturalist, geologist, and biologist, his theory of natural selection revolutionized our understanding of species, evolution, and our role in the natural world. His work, 'On the Origin of Species,' published in 1859, laid the foundation for modern evolutionary biology. This day marks the birthday of Darwin and honors his genius while promoting curiosity, science, and critical thinking.
+> 
+> Speaking of cool science, marine iguanas, found only on the Galápagos Islands, serve as an example of Darwin's evolutionary principles. These reptiles, seen in today's image, are the only lizards in the world that forage in the sea, diving to graze on algae growing on submerged rocks. They've developed in remarkable ways, acquiring flattened tails for swimming and salt glands that allow them to expel seawater by sneezing. During his visit to the islands in 1835, Darwin noted their appearance as being like 'imps of darkness' but also recognized how perfectly they were adapted to their harsh environment.
+> 
+> 
+
+</details>
+
+| ![Celebrating Charles Darwin](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Charles Darwin](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_1080x1920.jpg) |
+
 ### 20250211
 
 > Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Waitangi Day in New Zealand](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Waitangi Day in New Zealand](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |
-
-### 20250205
-
-> Scottish Blackface sheep, Aberdeenshire, Scotland (© Mike Powles/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Being the 'black sheep' isn't always a bad thing—just ask the Scottish Blackface, seen here in Aberdeenshire, Scotland. With its striking dark features and a knack for thriving in places where others wouldn't, this British breed has turned the idiom on its head. Far from an outcast, it's the backbone of Scotland's rural life and a true champion of the hills and moors. Interestingly, the Blackface sheep didn't originate in Scotland but south of the Anglo-Scottish border.
-> 
-> The breed's history is fascinating, and varieties such as the large-framed Perth and the medium-framed Lanark types are found throughout the United Kingdom. Not only is it the most common breed in the UK, but the Blackface sheep has spread across the world, including to the US. Its coarse fleece is perfect for making durable products like carpets and tweeds—it's definitely not your average sweater material.
-> 
-> 
-
-</details>
-
-| ![Scottish Blackface sheep, Aberdeenshire, Scotland](https://cn.bing.com/th?id=OHR.ScottishSheep_EN-US3449526052_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Scottish Blackface sheep, Aberdeenshire, Scotland](https://cn.bing.com/th?id=OHR.ScottishSheep_EN-US3449526052_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ScottishSheep_EN-US3449526052_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ScottishSheep_EN-US3449526052_1080x1920.jpg) |bbleheadViaduct_EN-US0244245382_1080x1920.jpg) | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
