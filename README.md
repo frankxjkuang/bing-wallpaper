@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250213
+
+> Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> At Lake Tyrrell, in southern Australia, the sky meets the Earth in a dazzling display. The state of Victoria's largest salt lake was formed around 120,000 years ago. Over time, climate changes caused water levels to drop; these days, the lake is normally dry, except in winter when it's covered in about 2 inches of water. The name 'Tyrrell' comes from the local Wergaia word for 'sky,' a nod to the Boorong Aboriginal People's interest in astronomy. Spanning more than 70 square miles, Lake Tyrrell is a haven for wildlife, including kangaroos, emus, and various reptiles.
+> 
+> In recent years, the lake has become a tourist hotspot. People come from all over the world during the winter months, drawn by its mirror-like surface that reflects the endless Australian sky, making it the perfect photo op. Salt formations on the lakebed also provide a stunning backdrop for photographs. At night, it becomes the perfect place for stargazing, offering the chance to marvel at the constellations of the Southern Hemisphere.
+> 
+> 
+
+</details>
+
+| ![Lake Tyrrell, Victoria, Australia](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Tyrrell, Victoria, Australia](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_1080x1920.jpg) |
+
 ### 20250212
 
 > Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Blue hour in Trondheim, Norway](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blue hour in Trondheim, Norway](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |
-
-### 20250206
-
-> Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)
-
-<details>
-<summary>Description</summary>
-
-> What do you get when you bring together more than 500 Māori chiefs, representatives of the British Crown, and a treaty signed in 1840? A day that New Zealanders still commemorate: Waitangi Day. On this date, the Treaty of Waitangi was signed, establishing the principles for how the two cultures would coexist. Ceremonies are held at Waitangi Treaty Grounds—where the document was signed—featuring traditional Māori performances, speeches, and the ever-dramatic waka (canoe) races. From festivals and concerts in cities like Auckland and Wellington to low-key community gatherings, the spirit of the day is about connection and culture.
-> 
-> What's better than celebrating New Zealand's history on Waitangi Day? Doing it in a place that looks straight out of a postcard. Enter the Archway Islands, a group of four rock stacks at Wharariki Beach, as seen in today's image. Rising from the waters of the Tasman Sea, these rugged islets became well known around the world after they were featured in a Windows 10 desktop screensaver in 2015. At low tide, curious wanderers can explore caves and rock pools and often spot lounging seals.
-> 
-> 
-
-</details>
-
-| ![Waitangi Day in New Zealand](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Waitangi Day in New Zealand](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
