@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250216
+
+> Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> On the third Sunday of February, World Whale Day highlights the beauty of whales and the challenges they face. This year, on February 16, we honor these majestic creatures, like the humpback whale pictured in today's image, known for its enchanting songs and dramatic breaches. World Whale Day began in 1980 in Maui, Hawaii, led by Greg Kauffman of the Pacific Whale Foundation, to protect humpbacks from extinction. Today, it urges global action on threats like ocean pollution, climate change, and habitat loss.
+> 
+> Humpbacks can grow up to 55 feet long and weigh as much as 40 tons. They travel nearly 10,000 miles annually, feeding in polar waters and breeding in warmer seas. Though their numbers have partially recovered, they still face challenges like fishing gear entanglement and ship collisions. This World Whale Day let's work to protect these ocean giants and preserve their habitats for future generations.
+> 
+> 
+
+</details>
+
+| ![Happy World Whale Day!](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy World Whale Day!](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_1080x1920.jpg) |
+
 ### 20250215
 
 > Icicles of Misotsuchi, Chichibu, Japan (© watayu0821/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![National Umbrella Day](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Umbrella Day](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_1080x1920.jpg) |
-
-### 20250209
-
-> Alstrom Point, Lake Powell, Utah (© T.M. Schultze/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> If you're chasing sunsets and jaw-dropping views, come to Alstrom Point. Located in southern Utah's Kane County, this spot in the Glen Canyon National Recreation Area stands at an impressive height of 4,685 feet. Made mostly of Entrada Sandstone, it has the same geological roots as nearby sites like Romana Mesa, its parent peak, and Gunsight Butte, another sandstone summit to the east.
-> 
-> Part of the Lake Powell region, Alstrom Point extends southward into the vast waters of the lake, in between Padre Bay and Warm Creek Bay. When the lake is full, Alstrom Point towers nearly 1,000 feet above the water, offering views of the surrounding canyons. Lake Powell, spanning across Utah and Arizona, attracts around 3 million visitors every year. The lake is a maze of deep blue water winding through over 90 rock canyons. While its main stretch runs through Glen Canyon, it also snakes into over many smaller side canyons, along with the Escalante and San Juan Rivers.
-> 
-> 
-
-</details>
-
-| ![Alstrom Point, Lake Powell, Utah](https://cn.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alstrom Point, Lake Powell, Utah](https://cn.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_1080x1920.jpg) |.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
