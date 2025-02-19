@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250217
+
+> The Washington Monument seen from the Lincoln Memorial, Washington, DC (© lucky-photographer/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Presidents' Day, celebrated on the third Monday in February, is a time for Americans to reflect on the legacies of those who have served in the country's highest office. The day is officially Washington's Birthday at the federal level, but it has evolved into a celebration that recognizes the achievements of all US presidents. Parades and patriotic displays are held across the country, and many people take the opportunity to learn about presidential history.
+> 
+> Today's image takes us to the Lincoln Memorial in Washington, DC. The figure of Abraham Lincoln, seated and contemplative, surrounded by inscriptions of his famous speeches, is a powerful reminder of his leadership and enduring legacy. Through the columns is a view of the Washington Monument, a 555-foot obelisk that stands tall as a reminder of the first president of the US.
+> 
+> 
+
+</details>
+
+| ![Presidents' Day](https://cn.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Presidents' Day](https://cn.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_1080x1920.jpg) |
+
 ### 20250216
 
 > Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)
@@ -112,25 +131,7 @@
 
 | ![Yungang Grottoes, Shanxi, China](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yungang Grottoes, Shanxi, China](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_1080x1920.jpg) |
-
-### 20250210
-
-> Art installation of umbrellas at Borough Market in London, England (© Malcolm P Chapman/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It's National Umbrella Day today, a quirky celebration that honors one of the simplest yet most essential inventions in human history: the umbrella, or parasol. Over 4,000 years ago, in ancient Egypt, Assyria, and China, these foldable canopies were first used to shield people from the sun. It wasn't until the 17th century that the umbrella, as we know it today, gained popularity in Europe, initially as a luxury item primarily for women. Fast-forward a few centuries, and these weather shields have become a staple in pop culture, too. Remember Mary Poppins with her iconic umbrella that helped her fly, or Rihanna's hit song 'Umbrella'?
-> 
-> Beyond their functionality, umbrellas have also made their mark in art and fashion. They often feature in artistic installations, such as the vibrant display at Borough Market in London, seen in today's image. But have you ever wondered why so many of them are left behind on trains? They're among the most commonly lost items worldwide! Grab yours—rain or shine—and join the celebration.
-> 
-> 
-
-</details>
-
-| ![National Umbrella Day](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Umbrella Day](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_1080x1920.jpg) |-:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_1080x1920.jpg) |.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
