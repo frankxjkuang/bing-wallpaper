@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250218
+
+> Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> The Great Blue Hole, found near the center of Lighthouse Reef off the coast of Belize, is one of nature's most incredible creations. The massive marine sinkhole, 1,043 feet across and 407 feet deep, was formed during the last ice age when a limestone cave system collapsed and rising sea levels flooded the area, leaving behind a striking natural wonder.
+> 
+> Made famous by explorer Jacques Cousteau in 1971, the Great Blue Hole is now one of the world's top scuba diving destinations. Divers flock here to see its aquamarine waters, stalactites, and diverse marine life, including nurse sharks, reef sharks, and giant groupers. Beyond a depth of 300 feet, a mysterious layer of hydrogen sulfide creates a lifeless, dark zone—an eerie yet fascinating feature. Whether you're an adventurer or a nature lover, the Great Blue Hole is a must-see marvel that displays the beauty and mystery of our planet.
+> 
+> 
+
+</details>
+
+| ![The Great Blue Hole, Belize](https://cn.bing.com/th?id=OHR.BlueBelize_EN-US7787222240_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Great Blue Hole, Belize](https://cn.bing.com/th?id=OHR.BlueBelize_EN-US7787222240_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueBelize_EN-US7787222240_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueBelize_EN-US7787222240_1080x1920.jpg) |
+
 ### 20250217
 
 > The Washington Monument seen from the Lincoln Memorial, Washington, DC (© lucky-photographer/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Celebrating Charles Darwin](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Charles Darwin](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_1080x1920.jpg) |
-
-### 20250211
-
-> Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> What do 51,000 ancient statues have in common? They all call the Yungang Grottoes in China home! This collection of early Buddhist art is near Datong in Shanxi province, northeastern China. Carved into sandstone cliffs over 1,500 years ago during the Northern Wei dynasty, the grottoes comprise 254 caves. The highlight is the massive Buddha in Cave 5, which is a jaw-dropping 56 feet tall. But don't stop there—each cave offers something unique. Some are like ancient storyboards, depicting tales from Buddhist scriptures, while others showcase detailed carvings of monks, deities, musicians, and even scenes of daily life under Wei rule. These caves blend influences from Indian, Central Asian, and local Chinese Buddhist art. Whether you're a history lover or simply appreciate unique art, the Yungang Grottoes offer an unforgettable experience.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Yungang Grottoes, Shanxi, China](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yungang Grottoes, Shanxi, China](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_1080x1920.jpg) |-:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_1080x1920.jpg) |:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_1080x1920.jpg) |.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
