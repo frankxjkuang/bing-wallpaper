@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250219
+
+> European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> The European river otter is more than just an adorable face in the wild. Found across Europe, Asia, and parts of northern Africa, these otters thrive in clean rivers, lakes, and wetlands, serving as an important indicator of environmental health. They are built for agility, with streamlined bodies, webbed feet, and dense fur that keeps them warm even in icy waters. A single square inch of their fur can hold more than 400,000 hairs, making it one of nature's most effective insulators. River otters were once endangered due to pollution and habitat loss. Thanks to conservation efforts, their populations are rebounding in many regions across Europe.
+> 
+> Otters are naturally playful, often sliding down snowy or muddy banks and diving underwater to find pebbles to play with. They communicate using a repertoire of whistles, squeaks, and even scent, which also helps them mark their territorial boundaries. If you find yourself near a serene river in their range, keep an eye out—you might just spot one of these elusive river-dwellers.
+> 
+> 
+
+</details>
+
+| ![European river otter, Netherlands](https://cn.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European river otter, Netherlands](https://cn.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_1080x1920.jpg) |
+
 ### 20250218
 
 > Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Lake Tyrrell, Victoria, Australia](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Tyrrell, Victoria, Australia](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_1080x1920.jpg) |
-
-### 20250212
-
-> Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, we celebrate Darwin Day—a shout-out to Charles Darwin and his game-changing ideas about life on Earth. As an English naturalist, geologist, and biologist, his theory of natural selection revolutionized our understanding of species, evolution, and our role in the natural world. His work, 'On the Origin of Species,' published in 1859, laid the foundation for modern evolutionary biology. This day marks the birthday of Darwin and honors his genius while promoting curiosity, science, and critical thinking.
-> 
-> Speaking of cool science, marine iguanas, found only on the Galápagos Islands, serve as an example of Darwin's evolutionary principles. These reptiles, seen in today's image, are the only lizards in the world that forage in the sea, diving to graze on algae growing on submerged rocks. They've developed in remarkable ways, acquiring flattened tails for swimming and salt glands that allow them to expel seawater by sneezing. During his visit to the islands in 1835, Darwin noted their appearance as being like 'imps of darkness' but also recognized how perfectly they were adapted to their harsh environment.
-> 
-> 
-
-</details>
-
-| ![Celebrating Charles Darwin](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Charles Darwin](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_1080x1920.jpg) |:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_1080x1920.jpg) |:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_1080x1920.jpg) |.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
