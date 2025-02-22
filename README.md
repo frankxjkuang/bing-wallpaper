@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250220
+
+> Alpenglow on Half Dome, Yosemite National Park, California (© Matthew Kuhns/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Born on this day in 1902, Ansel Adams remains one of the most celebrated photographers in history, renowned for his striking black-and-white images of the American wilderness. His work immortalized the grandeur of national parks like California's Yosemite, pictured here, showcasing the raw beauty of nature with depth and clarity. A pioneer of 'pure photography,' Adams believed in capturing a scene's natural essence without manipulation, a principle he championed through his development of the Zone System—a technique to control exposure and contrast.
+> 
+> Adams initially aspired to be a concert pianist, but his love for the outdoors—sparked by a family trip to Yosemite in 1916—set him on a path that would redefine landscape photography. Beyond his art, Adams was a passionate environmentalist. His work often served as visual arguments for the preservation of America's wild places. He also played a crucial role in expanding the National Park system, advocating for the establishment of Kings Canyon National Park in California. Adams' legacy continues to inspire photographers and environmentalists alike, reminding us of the power of art to drive change.
+> 
+> 
+
+</details>
+
+| ![Ansel Adams' birthday](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ansel Adams' birthday](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_1080x1920.jpg) |
+
 ### 20250219
 
 > European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)
@@ -112,27 +131,7 @@
 
 | ![Happy Valentine's Day!](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Valentine's Day!](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_1080x1920.jpg) |
-
-### 20250213
-
-> Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> At Lake Tyrrell, in southern Australia, the sky meets the Earth in a dazzling display. The state of Victoria's largest salt lake was formed around 120,000 years ago. Over time, climate changes caused water levels to drop; these days, the lake is normally dry, except in winter when it's covered in about 2 inches of water. The name 'Tyrrell' comes from the local Wergaia word for 'sky,' a nod to the Boorong Aboriginal People's interest in astronomy. Spanning more than 70 square miles, Lake Tyrrell is a haven for wildlife, including kangaroos, emus, and various reptiles.
-> 
-> In recent years, the lake has become a tourist hotspot. People come from all over the world during the winter months, drawn by its mirror-like surface that reflects the endless Australian sky, making it the perfect photo op. Salt formations on the lakebed also provide a stunning backdrop for photographs. At night, it becomes the perfect place for stargazing, offering the chance to marvel at the constellations of the Southern Hemisphere.
-> 
-> 
-
-</details>
-
-| ![Lake Tyrrell, Victoria, Australia](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Tyrrell, Victoria, Australia](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_1080x1920.jpg) |:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_1080x1920.jpg) |.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_1080x1920.jpg) |pg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_1080x1920.jpg) |.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
