@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250221
+
+> Champaka Sarasi pond near Shivamogga, Karnataka, India (© Amith Nag Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> From waterfalls to temples, Shivamogga, in the South Indian state of Karnataka, offers experiences waiting to be discovered. Steeped in timeless lore, the city is mentioned in the Ramayana and the Mahabharata, epics composed as poems and set in the ancient Hindu kingdoms of India. The region's name itself holds a spiritual significance, derived from the Sanskrit words 'Shiva-Mukha,' meaning the 'face of Shiva,' the Hindu god. It is home to several temples, including the Sharavati Temple, dedicated to Shiva, and a temple in the Kodachadri hills that offers vistas of the Western Ghats mountain range.
+> 
+> Adding to this landscape is Champaka Sarasi, the monumental pond featured in today's image. It tells a story far beyond its waters. It was built by Venkatappa Nayaka, a member of the Nayakas of Keladi, an important ruling dynasty of early modern Karnataka. The pond was constructed in memory of the king's beloved wife, Champaka. It also has a small stone temple at its center, housing a Shiva linga, an abstract or non-figurative depiction of Shiva. Shivamogga is also renowned for its waterfalls, including Jog Falls, the second-highest plunge waterfall in India.
+> 
+> 
+
+</details>
+
+| ![Champaka Sarasi, Shivamogga, Karnataka, India](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Champaka Sarasi, Shivamogga, Karnataka, India](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_1080x1920.jpg) |
+
 ### 20250220
 
 > Alpenglow on Half Dome, Yosemite National Park, California (© Matthew Kuhns/TANDEM Stills + Motion)
@@ -112,28 +131,7 @@
 
 | ![The natural ice wall of Misotsuchi, Chichibu, Japan](https://cn.bing.com/th?id=OHR.Misotsuchi2025_EN-US8130053956_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The natural ice wall of Misotsuchi, Chichibu, Japan](https://cn.bing.com/th?id=OHR.Misotsuchi2025_EN-US8130053956_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Misotsuchi2025_EN-US8130053956_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Misotsuchi2025_EN-US8130053956_1080x1920.jpg) |
-
-### 20250214
-
-> Magellanic penguins in the Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Love is in the air today: it's Valentine's Day! Across the globe, millions of flowers will be sent, and romantic restaurants will be fully booked. This holiday has its origins in the story of Saint Valentine, a 3rd-century Roman priest who, according to legend, secretly married couples to spare the husbands from conscription into the Roman army.
-> 
-> Just like the human lovebirds who will be celebrating today, the natural world has its own romantics. Today's image features a couple of Magellanic penguins in the Falkland Islands. Magellanic penguins, which are found in coastal Patagonia, mate with the same partner every year. The male returns to the burrow he used the year before and waits for his partner, who can recognize him by his voice alone. Although love should be celebrated every day, today is the perfect day to make an extra effort and show your loved one how much you care.
-> 
-> 
-
-</details>
-
-| ![Happy Valentine's Day!](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Valentine's Day!](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_1080x1920.jpg) |pg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_1080x1920.jpg) |.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Misotsuchi2025_EN-US8130053956_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Misotsuchi2025_EN-US8130053956_1080x1920.jpg) |://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
