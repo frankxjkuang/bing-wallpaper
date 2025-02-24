@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250222
+
+> The Gateway Arch in St. Louis, Missouri (© f11photo/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today we are celebrating the anniversary of Gateway National Park, which was established on February 22, 2018, in St. Louis, Missouri. The park, which lies along a picturesque stretch of the Mississippi River, commemorates Thomas Jefferson’s idea of a continental nation. At its heart stands the Gateway Arch, a breathtaking 630-foot-tall structure that has become the ultimate symbol of St. Louis. Constructed of stainless steel, it holds the distinction of being the world's tallest arch and Missouri's tallest accessible structure. Finnish American architect Eero Saarinen dreamed up the design back in 1947, and by October 28, 1965, his vision had been brought to life. The arch's futuristic design has long been viewed as a symbol of the automobile era, representing the modern, urban landscape, and the promise of a technologically advanced future.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Gateway Arch in St. Louis, Missouri](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gateway Arch in St. Louis, Missouri](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_1080x1920.jpg) |
+
 ### 20250221
 
 > Champaka Sarasi pond near Shivamogga, Karnataka, India (© Amith Nag Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Happy World Whale Day!](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy World Whale Day!](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_1080x1920.jpg) |
-
-### 20250215
-
-> Icicles of Misotsuchi, Chichibu, Japan (© watayu0821/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Behold the magic of the Misotsuchi no Tsurara (Misotsuchi Icicles) in Chichibu, Japan. This breathtaking natural ice wall, nearly 100 feet wide and 35 feet tall, is formed by spring water freezing as it trickles down a rock face. The attraction is only open from mid-January through mid-February. Colored lights after dark create a scene that feels straight out of a winter fairy tale.
-> 
-> Just 2 hours from Tokyo, Chichibu is the perfect escape to enjoy nature's artistry and some fresh mountain air. Warm up after viewing the icicles with a soothing soak at the nearby Otaki Onsen, a popular hot spring, for relaxation. Since much of Chichibu sits in or near the Chichibu Tama Kai National Park, there’s abundant nature to see.
-> 
-> 
-
-</details>
-
-| ![The natural ice wall of Misotsuchi, Chichibu, Japan](https://cn.bing.com/th?id=OHR.Misotsuchi2025_EN-US8130053956_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The natural ice wall of Misotsuchi, Chichibu, Japan](https://cn.bing.com/th?id=OHR.Misotsuchi2025_EN-US8130053956_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Misotsuchi2025_EN-US8130053956_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Misotsuchi2025_EN-US8130053956_1080x1920.jpg) |://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
