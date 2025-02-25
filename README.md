@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250223
+
+> Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Around 60 miles southwest of Tokyo stands one of Japan's cultural icons: Mount Fuji. The country's tallest mountain rises 12,000 feet above the surrounding landscape, with its near-symmetrical cone covered in snow for nearly five months each year. For centuries, Fujisan—as it is known in Japanese—has been worshiped as a sacred mountain. In the Shinto faith, Fuji is deified as Asama no Okami, and shrines dedicated to it are built within sight of the mountain.
+> 
+> February 23 is celebrated as Mount Fuji Day (富士山の日) because the word 'Fujisan' can be interpreted as '2, 2, 3.' Although it's not a national holiday, people often take the opportunity to learn more about this majestic peak. It's also a day to reflect on the future of the mountain, and how it can be preserved for future generations. Every year, more than 300,000 people climb Mount Fuji, and overtourism has become a real concern.
+> 
+> 
+
+</details>
+
+| ![Mount Fuji Day](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Fuji Day](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_1080x1920.jpg) |
+
 ### 20250222
 
 > The Gateway Arch in St. Louis, Missouri (© f11photo/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Presidents' Day](https://cn.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Presidents' Day](https://cn.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_1080x1920.jpg) |
-
-### 20250216
-
-> Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> On the third Sunday of February, World Whale Day highlights the beauty of whales and the challenges they face. This year, on February 16, we honor these majestic creatures, like the humpback whale pictured in today's image, known for its enchanting songs and dramatic breaches. World Whale Day began in 1980 in Maui, Hawaii, led by Greg Kauffman of the Pacific Whale Foundation, to protect humpbacks from extinction. Today, it urges global action on threats like ocean pollution, climate change, and habitat loss.
-> 
-> Humpbacks can grow up to 55 feet long and weigh as much as 40 tons. They travel nearly 10,000 miles annually, feeding in polar waters and breeding in warmer seas. Though their numbers have partially recovered, they still face challenges like fishing gear entanglement and ship collisions. This World Whale Day let's work to protect these ocean giants and preserve their habitats for future generations.
-> 
-> 
-
-</details>
-
-| ![Happy World Whale Day!](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy World Whale Day!](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_1080x1920.jpg) |80725_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1080x1920.jpg) |th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1080x1920.jpg) |h?id=OHR.AustriaMarmot_EN-US0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
