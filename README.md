@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250226
+
+> Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Perched dramatically on a tidal islet in Loch Laich, Argyll, Castle Stalker is one of Scotland's most picturesque and well-preserved medieval tower houses. Built around the 1440s by the Stewarts of Appin, its history includes royal visits and even a drunken wager that briefly transferred ownership to Clan Campbell. After falling into disrepair by the 19th century, it was lovingly restored in the mid-20th century and is still privately owned today. Visitors can explore this historic site on selected guided tours during the summer.
+> 
+> Its name, 'Stalker,' comes from the Scottish Gaelic 'Stalcaire,' meaning 'hunter' or 'falconer.' And while its striking appearance is certainly memorable, its fame may actually stem from another reason: Castle Stalker has captured imaginations in popular culture, appearing in 'Monty Python and the Holy Grail' and the 'Black Mirror' episode 'Loch Henry.' Does it ring a bell now? Nestled in the scenic Lynn of Lorn National Scenic Area, it's an enduring symbol of Scotland's storied past.
+> 
+> 
+
+</details>
+
+| ![Castle Stalker, Argyll, Scotland](https://cn.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castle Stalker, Argyll, Scotland](https://cn.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_1080x1920.jpg) |
+
 ### 20250225
 
 > Sandstone hoodoos, Bryce Canyon National Park, Utah (© Stephen Matera/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Ansel Adams' birthday](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ansel Adams' birthday](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_1080x1920.jpg) |
-
-### 20250219
-
-> European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> The European river otter is more than just an adorable face in the wild. Found across Europe, Asia, and parts of northern Africa, these otters thrive in clean rivers, lakes, and wetlands, serving as an important indicator of environmental health. They are built for agility, with streamlined bodies, webbed feet, and dense fur that keeps them warm even in icy waters. A single square inch of their fur can hold more than 400,000 hairs, making it one of nature's most effective insulators. River otters were once endangered due to pollution and habitat loss. Thanks to conservation efforts, their populations are rebounding in many regions across Europe.
-> 
-> Otters are naturally playful, often sliding down snowy or muddy banks and diving underwater to find pebbles to play with. They communicate using a repertoire of whistles, squeaks, and even scent, which also helps them mark their territorial boundaries. If you find yourself near a serene river in their range, keep an eye out—you might just spot one of these elusive river-dwellers.
-> 
-> 
-
-</details>
-
-| ![European river otter, Netherlands](https://cn.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European river otter, Netherlands](https://cn.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_1080x1920.jpg) |0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_1080x1920.jpg) |1080x1920.jpg) |0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
