@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250227
+
+> Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Today we're heading north for International Polar Bear Day. This event is the perfect time to learn more about the world's largest bear species and the threats they face. Polar bears are native to the Arctic and can be found in Alaska, Russia, Greenland, and Svalbard. They're also found in Canada—like the cub in today's image, photographed in Churchill, Manitoba.
+> 
+> Polar bears spend over half of their time hunting for seals on the sea ice, although they usually catch just one or two for every 10 that they try to catch. Their reliance on sea ice for hunting means that they are highly vulnerable to climate change. Sea ice is rapidly disappearing as the planet heats up, and polar bears are at risk of malnutrition and starvation as their hunting grounds vanish. Shrinking ice sheets also mean that these bears have to swim farther to find food, which depletes their energy reserves. International Polar Bear Day is the perfect opportunity to reflect on how we can reduce our carbon footprints and contribute to the conservation of these amazing predators.
+> 
+> 
+
+</details>
+
+| ![International Polar Bear Day](https://cn.bing.com/th?id=OHR.PolarCub_EN-US2740470421_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Polar Bear Day](https://cn.bing.com/th?id=OHR.PolarCub_EN-US2740470421_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PolarCub_EN-US2740470421_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PolarCub_EN-US2740470421_1080x1920.jpg) |
+
 ### 20250226
 
 > Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Champaka Sarasi, Shivamogga, Karnataka, India](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Champaka Sarasi, Shivamogga, Karnataka, India](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_1080x1920.jpg) |
-
-### 20250220
-
-> Alpenglow on Half Dome, Yosemite National Park, California (© Matthew Kuhns/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Born on this day in 1902, Ansel Adams remains one of the most celebrated photographers in history, renowned for his striking black-and-white images of the American wilderness. His work immortalized the grandeur of national parks like California's Yosemite, pictured here, showcasing the raw beauty of nature with depth and clarity. A pioneer of 'pure photography,' Adams believed in capturing a scene's natural essence without manipulation, a principle he championed through his development of the Zone System—a technique to control exposure and contrast.
-> 
-> Adams initially aspired to be a concert pianist, but his love for the outdoors—sparked by a family trip to Yosemite in 1916—set him on a path that would redefine landscape photography. Beyond his art, Adams was a passionate environmentalist. His work often served as visual arguments for the preservation of America's wild places. He also played a crucial role in expanding the National Park system, advocating for the establishment of Kings Canyon National Park in California. Adams' legacy continues to inspire photographers and environmentalists alike, reminding us of the power of art to drive change.
-> 
-> 
-
-</details>
-
-| ![Ansel Adams' birthday](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ansel Adams' birthday](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_1080x1920.jpg) |1080x1920.jpg) |0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_1080x1920.jpg) |mite_EN-US7924059397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_1080x1920.jpg) |1080x1920.jpg) |0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
