@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250228
+
+> Paro Taktsang, a Buddhist monastery in Bhutan (© Baron Reznik/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to the year 2152. That is, in the Tibetan calendar at least. Today marks the start of Losar, the new year festival celebrated in Tibetan Buddhism, which is observed in Tibet, Bhutan, Nepal, and parts of India. Losar celebrations run for 15 days, beginning the night before with a meal of guthuk—a traditional dumpling soup. The new year is rung in with an incense burning ceremony and visits to holy places to pray for good fortune in the year ahead.
+> 
+> Today's image takes us to Paro Taktsang, also known as the Tiger's Nest, a Buddhist monastery and holy site perched 10,000 feet above sea level in Bhutan. Built around the Taktsang Senge Samdup cave in 1692, it is where Guru Padmasambhava, who introduced Vajrayana Buddhism to Bhutan, meditated and taught his students. Paro Taktsang is made up of four main temples, all connected by stairways cut into the cliff face, as well as a handful of rickety bridges. In Bhutan, Losar is celebrated with picnics, dancing, darts, and the country's national sport: archery.
+> 
+> 
+
+</details>
+
+| ![Tibetan New Year](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tibetan New Year](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_1080x1920.jpg) |
+
 ### 20250227
 
 > Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)
@@ -112,25 +131,7 @@
 
 | ![Gateway Arch in St. Louis, Missouri](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gateway Arch in St. Louis, Missouri](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_1080x1920.jpg) |
-
-### 20250221
-
-> Champaka Sarasi pond near Shivamogga, Karnataka, India (© Amith Nag Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> From waterfalls to temples, Shivamogga, in the South Indian state of Karnataka, offers experiences waiting to be discovered. Steeped in timeless lore, the city is mentioned in the Ramayana and the Mahabharata, epics composed as poems and set in the ancient Hindu kingdoms of India. The region's name itself holds a spiritual significance, derived from the Sanskrit words 'Shiva-Mukha,' meaning the 'face of Shiva,' the Hindu god. It is home to several temples, including the Sharavati Temple, dedicated to Shiva, and a temple in the Kodachadri hills that offers vistas of the Western Ghats mountain range.
-> 
-> Adding to this landscape is Champaka Sarasi, the monumental pond featured in today's image. It tells a story far beyond its waters. It was built by Venkatappa Nayaka, a member of the Nayakas of Keladi, an important ruling dynasty of early modern Karnataka. The pond was constructed in memory of the king's beloved wife, Champaka. It also has a small stone temple at its center, housing a Shiva linga, an abstract or non-figurative depiction of Shiva. Shivamogga is also renowned for its waterfalls, including Jog Falls, the second-highest plunge waterfall in India.
-> 
-> 
-
-</details>
-
-| ![Champaka Sarasi, Shivamogga, Karnataka, India](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Champaka Sarasi, Shivamogga, Karnataka, India](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_1080x1920.jpg) |------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_1080x1920.jpg) |mite_EN-US7924059397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_1080x1920.jpg) |1080x1920.jpg) |0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
