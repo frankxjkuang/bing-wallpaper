@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250301
+
+> Dr. Anna Howard Shaw leading a suffrage parade in 1910s New York City (© Bettmann/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Every March, as we celebrate Women's History Month, we honor the trailblazing women who've shaped our world. Central to this legacy is the suffrage movement—a courageous fight for women's right to vote.
+> 
+> Since the founding of the United States, voting rights had largely been restricted to men. It was only in the early 19th century that the fight for women's suffrage took root, alongside the movement to abolish slavery. Women like Elizabeth Cady Stanton, Lucretia Mott, and Dr. Anna Howard Shaw, pictured here, spearheaded efforts to challenge societal norms that denied political participation based on gender. The Seneca Falls Convention of 1848 marked a pivotal moment, where the Declaration of Sentiments boldly stated that 'all men and women are created equal.' Following decades of activism, including rallies, marches, and relentless petitioning, the 19th Amendment was ratified in 1920, finally granting women the right to vote. Beyond securing voting rights, the suffrage movement became a powerful catalyst for broader discussions on gender equality, inspiring future generations to continue the fight for justice.
+> 
+> 
+
+</details>
+
+| ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1080x1920.jpg) |
+
 ### 20250228
 
 > Paro Taktsang, a Buddhist monastery in Bhutan (© Baron Reznik/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Mount Fuji Day](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Fuji Day](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_1080x1920.jpg) |
-
-### 20250222
-
-> The Gateway Arch in St. Louis, Missouri (© f11photo/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today we are celebrating the anniversary of Gateway National Park, which was established on February 22, 2018, in St. Louis, Missouri. The park, which lies along a picturesque stretch of the Mississippi River, commemorates Thomas Jefferson’s idea of a continental nation. At its heart stands the Gateway Arch, a breathtaking 630-foot-tall structure that has become the ultimate symbol of St. Louis. Constructed of stainless steel, it holds the distinction of being the world's tallest arch and Missouri's tallest accessible structure. Finnish American architect Eero Saarinen dreamed up the design back in 1947, and by October 28, 1965, his vision had been brought to life. The arch's futuristic design has long been viewed as a symbol of the automobile era, representing the modern, urban landscape, and the promise of a technologically advanced future.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Gateway Arch in St. Louis, Missouri](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gateway Arch in St. Louis, Missouri](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_1080x1920.jpg) |------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChampakaSarasi_EN-US0671131929_1080x1920.jpg) |mite_EN-US7924059397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_1080x1920.jpg) |1080x1920.jpg) |0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_1080x1920.jpg) |.com/th?id=OHR.AdamsYosemite_EN-US7924059397_1080x1920.jpg) |1080x1920.jpg) |0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
