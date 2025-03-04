@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250302
+
+> Eucalyptus trees, Megalong Valley, Blue Mountains National Park, NSW, Australia (© Andrew Peacock/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Today, we are in New South Wales, Australia, amid the Blue Mountains National Park. Known for its dramatic cliffs, dense rainforests, and cascading waterfalls, this UNESCO World Heritage Site is a treasure trove of natural beauty and biodiversity. Among the most iconic features of the Blue Mountains region are the eucalyptus trees, pictured here. Home to 92 species of eucalyptus, this area offers visitors a chance to marvel at these resilient trees, which are central to Australian wildlife. Their aromatic leaves provide food for koalas, while their bark and canopy create habitats for countless birds and insects.
+> 
+> Also nestled within the mountains is the Megalong Valley. Just a 2-hour drive from Sydney, this region is home to getaway cabins, wineries, and the Megalong Valley Tearooms, a charming retreat where you can enjoy freshly baked scones paired with local jams. Here, you can also explore the Six Foot Track, a historic trail originally carved in the 19th century for horseback riders. The Blue Mountains promise an unforgettable escape into the heart of Australia's wild beauty.
+> 
+> 
+
+</details>
+
+| ![Megalong Valley, Blue Mountains National Park, Australia](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Megalong Valley, Blue Mountains National Park, Australia](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_1080x1920.jpg) |
+
 ### 20250301
 
 > Dr. Anna Howard Shaw leading a suffrage parade in 1910s New York City (© Bettmann/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Group of giant cuttlefish, Whyalla, South Australia](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Group of giant cuttlefish, Whyalla, South Australia](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_1080x1920.jpg) |
-
-### 20250223
-
-> Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Around 60 miles southwest of Tokyo stands one of Japan's cultural icons: Mount Fuji. The country's tallest mountain rises 12,000 feet above the surrounding landscape, with its near-symmetrical cone covered in snow for nearly five months each year. For centuries, Fujisan—as it is known in Japanese—has been worshiped as a sacred mountain. In the Shinto faith, Fuji is deified as Asama no Okami, and shrines dedicated to it are built within sight of the mountain.
-> 
-> February 23 is celebrated as Mount Fuji Day (富士山の日) because the word 'Fujisan' can be interpreted as '2, 2, 3.' Although it's not a national holiday, people often take the opportunity to learn more about this majestic peak. It's also a day to reflect on the future of the mountain, and how it can be preserved for future generations. Every year, more than 300,000 people climb Mount Fuji, and overtourism has become a real concern.
-> 
-> 
-
-</details>
-
-| ![Mount Fuji Day](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Fuji Day](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_1080x1920.jpg) |.com/th?id=OHR.AdamsYosemite_EN-US7924059397_1080x1920.jpg) |1080x1920.jpg) |0012248153_1080x1920.jpg) |1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_1080x1920.jpg) |nMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
