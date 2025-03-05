@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250303
+
+> Southern yellow-billed hornbills in Kruger National Park, South Africa (© Richard Du Toit/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> What better time to shine a spotlight on nature than on World Wildlife Day? This day serves as a reminder that wildlife conservation is a shared responsibility. This year's theme is 'Wildlife Conservation Finance: Investing in People and Planet.' The events emphasize exchanging ideas, presenting solutions, and diving into how innovative finance can help stop biodiversity loss and create a more sustainable future. Schools, conservation groups, and wildlife parks host events such as nature walks, workshops, art contests, wildlife photography competitions, and conservation talks to raise awareness.
+> 
+> One species worth learning about is the southern yellow-billed hornbill, pictured here, a bird found throughout Southern Africa and commonly spotted in Kruger National Park in South Africa. Recognizable by its curved, bright yellow bill, this bird is often seen hopping on the ground in search of food. Its diet includes insects, seeds, fruits, berries, nuts, and small reptiles, making it a key player in the ecosystem as both a predator and seed disperser. Social creatures, these hornbills are usually found in pairs or small groups, often foraging together. Their calls—whistling, grunting, and cackling—echo across the savanna.
+> 
+> 
+
+</details>
+
+| ![World Wildlife Day](https://cn.bing.com/th?id=OHR.HornbillPair_EN-US3168408482_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Wildlife Day](https://cn.bing.com/th?id=OHR.HornbillPair_EN-US3168408482_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HornbillPair_EN-US3168408482_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HornbillPair_EN-US3168408482_1080x1920.jpg) |
+
 ### 20250302
 
 > Eucalyptus trees, Megalong Valley, Blue Mountains National Park, NSW, Australia (© Andrew Peacock/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Anniversary of Bryce Canyon National Park](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of Bryce Canyon National Park](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_1080x1920.jpg) |
-
-### 20250224
-
-> Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Prepare to be amazed by the giant cuttlefish, known for its mesmerizing ability to transform its appearance in the blink of an eye. This cuttlefish is found in the temperate and subtropical waters of Australia, ranging from Brisbane in Queensland and Shark Bay in Western Australia to as far south as Tasmania.
-> 
-> Featured here is a group of giant cuttlefish off the coast near Whyalla, South Australia. This species holds the title of being the largest of its kind on Earth. It can reach an impressive mantle length of 20 inches and stretches up to a total length of 40 inches when its tentacles are fully extended. Weighing nearly 25 pounds, this marine heavyweight is as fascinating as it is formidable. Like all cuttlefish, this species has eight arms, two feeding tentacles, three hearts, and blue blood. However, its most spectacular feature is its skin, which is equipped with chromatophores—specialized cells that allow it to change colors and patterns.
-> 
-> 
-
-</details>
-
-| ![Group of giant cuttlefish, Whyalla, South Australia](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Group of giant cuttlefish, Whyalla, South Australia](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_1080x1920.jpg) |nMuseumDC_EN-US9749048351_1080x1920.jpg) |.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1080x1920.jpg) |pg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_1080x1920.jpg) |g) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
