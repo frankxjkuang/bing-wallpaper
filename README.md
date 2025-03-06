@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250304
+
+> Jackson Square, New Orleans, Louisiana (© SeanPavonePhoto/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Mardi Gras, or 'Fat Tuesday,' is a vibrant tradition that marks the last day of indulgence before the Christian season of Lent begins on Ash Wednesday. Rooted in ancient Roman celebrations like Saturnalia, Mardi Gras evolved as Christianity spread, blending local customs—most notably Carnival festivities—with religious observances. The name itself originates from French, with the word gras meaning 'fat,' referring to rich, fatty foods like meat, eggs, and cheese that are traditionally enjoyed before the fasting season begins.
+> 
+> New Orleans is synonymous with Mardi Gras, a tradition celebrated there since the 18th century. Today, colorful parades, masked revelers, and iconic krewes define the city's celebration. Jackson Square, in the French Quarter, featured in today's image, stands as a witness to these lively traditions. Established in the early 1800s, it remains a central spot for visitors to experience the energy of Mardi Gras. The official colors of Mardi Gras—purple for justice, green for faith, and gold for power—were set by Rex Krewe in 1872. Whether you're eating king cake or marveling at the floats, Mardi Gras is an unforgettable cultural spectacle.
+> 
+> 
+
+</details>
+
+| ![Happy Fat Tuesday!](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Fat Tuesday!](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_1080x1920.jpg) |
+
 ### 20250303
 
 > Southern yellow-billed hornbills in Kruger National Park, South Africa (© Richard Du Toit/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Castle Stalker, Argyll, Scotland](https://cn.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castle Stalker, Argyll, Scotland](https://cn.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_1080x1920.jpg) |
-
-### 20250225
-
-> Sandstone hoodoos, Bryce Canyon National Park, Utah (© Stephen Matera/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> A breathtaking maze of sandstone formations and awe-inspiring views awaits you at Bryce Canyon National Park in Utah. People have lived in this area for at least 10,000 years, including the Anasazi, Pueblo, and Paiute Peoples. The hoodoos—tall, thin spires of rock formed by erosion—in the park inspired Paiute mythology: they believed them to be the Legend People turned to stone by the trickster Coyote.
-> 
-> The first European Americans arrived in the area in the late 18th and early 19th centuries, and some eventually settled there in the 1850s. Bryce Canyon was named after Ebenezer Bryce, who had a homestead nearby. On this date in 1928, it was declared a national park. These days, the park is famous for its hoodoos. Every year, over 2 million visitors come to marvel at these geological formations. In fact, Bryce Canyon National Park has the highest concentration of hoodoos anywhere on Earth.
-> 
-> 
-
-</details>
-
-| ![Anniversary of Bryce Canyon National Park](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of Bryce Canyon National Park](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_1080x1920.jpg) |g) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1080x1920.jpg) |[Anniversary of the British Museum](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_1080x1920.jpg) |hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
