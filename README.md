@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250306
+
+> Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)
+
+<details>
+<summary>Description</summary>
+
+> Nature's desert navigators—desert bighorn sheep—are a marvel to watch, effortlessly scaling cliffs and navigating rocky terrains with grace. Native to North America, these sheep are known for their distinctive curled horns, which can weigh up to 30 pounds. Rams use their massive horns in intense head-butting contests. During these battles, they hurl themselves at each other in charges of up to 20 miles per hour. Ewes, on the other hand, tend to keep things more low-key, forming smaller groups with their lambs. Adapted to the desert environment, the desert bighorn sheep sub-species can go long periods without water, relying on moisture from plants to survive.
+> 
+> Valley of Fire State Park, seen in today's image, is one of the best spots in Nevada to observe these desert dwellers. This park is named for its fiery red sandstone formations that seem to glow under the sun. Beyond its natural beauty, the park holds deep historical significance, with petroglyphs left by ancient Indigenous peoples. It has also earned a place in pop culture as a filming location for scenes from 'Star Trek Generations.' Keep an eye on the rocky outcrops during your visit—you might spot a bighorn sheep observing you.
+> 
+> 
+
+</details>
+
+| ![Desert bighorn sheep in Valley of Fire State Park, Nevada](https://cn.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Desert bighorn sheep in Valley of Fire State Park, Nevada](https://cn.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_1080x1920.jpg) |
+
 ### 20250305
 
 > Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Tibetan New Year](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tibetan New Year](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_1080x1920.jpg) |
-
-### 20250227
-
-> Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Today we're heading north for International Polar Bear Day. This event is the perfect time to learn more about the world's largest bear species and the threats they face. Polar bears are native to the Arctic and can be found in Alaska, Russia, Greenland, and Svalbard. They're also found in Canada—like the cub in today's image, photographed in Churchill, Manitoba.
-> 
-> Polar bears spend over half of their time hunting for seals on the sea ice, although they usually catch just one or two for every 10 that they try to catch. Their reliance on sea ice for hunting means that they are highly vulnerable to climate change. Sea ice is rapidly disappearing as the planet heats up, and polar bears are at risk of malnutrition and starvation as their hunting grounds vanish. Shrinking ice sheets also mean that these bears have to swim farther to find food, which depletes their energy reserves. International Polar Bear Day is the perfect opportunity to reflect on how we can reduce our carbon footprints and contribute to the conservation of these amazing predators.
-> 
-> 
-
-</details>
-
-| ![International Polar Bear Day](https://cn.bing.com/th?id=OHR.PolarCub_EN-US2740470421_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Polar Bear Day](https://cn.bing.com/th?id=OHR.PolarCub_EN-US2740470421_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PolarCub_EN-US2740470421_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PolarCub_EN-US2740470421_1080x1920.jpg) |83665_1080x1920.jpg) |hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_1080x1920.jpg) |0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_1080x1920.jpg) |ng.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
