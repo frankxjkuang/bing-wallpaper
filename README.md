@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250307
+
+> Plum blossoms in China (© zhikun sun/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Plum blossoms, inspiration for countless artists and writers, bloom as symbols of endurance and elegance. The flowers of the Prunus mume tree bloom in late winter to early spring. Native to China, the species has been introduced to Japan, Korea, and Vietnam. Found in China's iconic spots like Nanjing's Plum Blossom Mountain, Wuhan's East Lake, and Hangzhou's West Lake, these fleeting blooms attract visitors eager to witness their ephemeral magic. In Chinese culture, plum blossoms represent purity and the arrival of spring, whereas in Japan, they symbolize new beginnings. With over 300 varieties, this tree can thrive in gardens of all sizes, offering a variety of shapes and colors. Beyond their visual appeal, plum blossoms are also used in traditional cuisine, such as floral teas and preserved plums.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Plum blossoms in China](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Plum blossoms in China](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_1080x1920.jpg) |
+
 ### 20250306
 
 > Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)
@@ -112,24 +131,7 @@
 
 | ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1080x1920.jpg) |
-
-### 20250228
-
-> Paro Taktsang, a Buddhist monastery in Bhutan (© Baron Reznik/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Welcome to the year 2152. That is, in the Tibetan calendar at least. Today marks the start of Losar, the new year festival celebrated in Tibetan Buddhism, which is observed in Tibet, Bhutan, Nepal, and parts of India. Losar celebrations run for 15 days, beginning the night before with a meal of guthuk—a traditional dumpling soup. The new year is rung in with an incense burning ceremony and visits to holy places to pray for good fortune in the year ahead.
-> 
-> Today's image takes us to Paro Taktsang, also known as the Tiger's Nest, a Buddhist monastery and holy site perched 10,000 feet above sea level in Bhutan. Built around the Taktsang Senge Samdup cave in 1692, it is where Guru Padmasambhava, who introduced Vajrayana Buddhism to Bhutan, meditated and taught his students. Paro Taktsang is made up of four main temples, all connected by stairways cut into the cliff face, as well as a handful of rickety bridges. In Bhutan, Losar is celebrated with picnics, dancing, darts, and the country's national sport: archery.
-> 
-> 
-
-</details>
-
-| ![Tibetan New Year](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tibetan New Year](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1080x1920.jpg) |315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_1080x1920.jpg) |0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
