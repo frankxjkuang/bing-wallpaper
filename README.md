@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250308
+
+> Fearless Girl statue facing the New York Stock Exchange, New York City (© JOHANNES EISELE/AFP via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Happy International Women's Day, everyone! It's a global celebration of resilience, rights, and remarkable women. First observed in the early 1900s, the day traces its roots to labor movements led by women fighting for better pay, improved working conditions, and voting rights. From its beginnings in 1911, when over a million people attended rallies in Europe, the day has grown into a worldwide movement. Today, it's marked by events, protests, and campaigns addressing issues like gender pay gaps, domestic violence, and access to education. From trailblazers like Marie Curie, who illuminated science, to Malala Yousafzai, who champions education, women have proven time and again that they don't just participate; they innovate.
+> 
+> Today's image features the Fearless Girl, boldly facing the New York Stock Exchange. Unveiled in 2017, the statue was commissioned to highlight the lack of women in corporate leadership roles. With her fists on her hips, head held high, and a confident stance, she symbolizes female empowerment.
+> 
+> 
+
+</details>
+
+| ![International Women's Day](https://cn.bing.com/th?id=OHR.FearlessWomen_EN-US7338738180_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Women's Day](https://cn.bing.com/th?id=OHR.FearlessWomen_EN-US7338738180_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FearlessWomen_EN-US7338738180_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FearlessWomen_EN-US7338738180_1080x1920.jpg) |
+
 ### 20250307
 
 > Plum blossoms in China (© zhikun sun/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Megalong Valley, Blue Mountains National Park, Australia](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Megalong Valley, Blue Mountains National Park, Australia](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_1080x1920.jpg) |
-
-### 20250301
-
-> Dr. Anna Howard Shaw leading a suffrage parade in 1910s New York City (© Bettmann/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Every March, as we celebrate Women's History Month, we honor the trailblazing women who've shaped our world. Central to this legacy is the suffrage movement—a courageous fight for women's right to vote.
-> 
-> Since the founding of the United States, voting rights had largely been restricted to men. It was only in the early 19th century that the fight for women's suffrage took root, alongside the movement to abolish slavery. Women like Elizabeth Cady Stanton, Lucretia Mott, and Dr. Anna Howard Shaw, pictured here, spearheaded efforts to challenge societal norms that denied political participation based on gender. The Seneca Falls Convention of 1848 marked a pivotal moment, where the Declaration of Sentiments boldly stated that 'all men and women are created equal.' Following decades of activism, including rallies, marches, and relentless petitioning, the 19th Amendment was ratified in 1920, finally granting women the right to vote. Beyond securing voting rights, the suffrage movement became a powerful catalyst for broader discussions on gender equality, inspiring future generations to continue the fight for justice.
-> 
-> 
-
-</details>
-
-| ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1080x1920.jpg) |315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1080x1920.jpg) |315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_1080x1920.jpg) |0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
