@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250310
+
+> A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Feeling a bit tired? You're not alone—losing an hour to daylight saving time can leave anyone groggy. That's why Napping Day exists. Introduced in 1999 by William Anthony, a Boston University professor, and his wife, Camille, this unofficial holiday encourages everyone to take quality naps. Observed on the Monday after clocks spring forward, it's a reminder that rest is essential for well-being. Research backs it up—short naps boost mood, enhance concentration, and sharpen memory. Napping is also linked to lower stress and better heart health. While power naps (20-30 minutes) are ideal for a quick recharge, even a few minutes of shut-eye can help.
+> 
+> In Uganda's Queen Elizabeth National Park, some lions take napping to new heights—quite literally. The tree-climbing lions of the Ishasha Sector have a habit of sprawling across the branches of giant fig trees, as seen in today's image. Experts believe they climb to escape ground-level heat or pesky insects, but these naps make for an unforgettable sight. This vast park spans volcanic craters, open plains, and dense forests. A safari here promises encounters with Uganda's incredible wildlife.
+> 
+> 
+
+</details>
+
+| ![National Napping Day](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Napping Day](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg) |
+
 ### 20250309
 
 > St. Mark's Clock Tower, Venice, Italy (© scaliger/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Happy Fat Tuesday!](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Fat Tuesday!](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_1080x1920.jpg) |
-
-### 20250303
-
-> Southern yellow-billed hornbills in Kruger National Park, South Africa (© Richard Du Toit/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> What better time to shine a spotlight on nature than on World Wildlife Day? This day serves as a reminder that wildlife conservation is a shared responsibility. This year's theme is 'Wildlife Conservation Finance: Investing in People and Planet.' The events emphasize exchanging ideas, presenting solutions, and diving into how innovative finance can help stop biodiversity loss and create a more sustainable future. Schools, conservation groups, and wildlife parks host events such as nature walks, workshops, art contests, wildlife photography competitions, and conservation talks to raise awareness.
-> 
-> One species worth learning about is the southern yellow-billed hornbill, pictured here, a bird found throughout Southern Africa and commonly spotted in Kruger National Park in South Africa. Recognizable by its curved, bright yellow bill, this bird is often seen hopping on the ground in search of food. Its diet includes insects, seeds, fruits, berries, nuts, and small reptiles, making it a key player in the ecosystem as both a predator and seed disperser. Social creatures, these hornbills are usually found in pairs or small groups, often foraging together. Their calls—whistling, grunting, and cackling—echo across the savanna.
-> 
-> 
-
-</details>
-
-| ![World Wildlife Day](https://cn.bing.com/th?id=OHR.HornbillPair_EN-US3168408482_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Wildlife Day](https://cn.bing.com/th?id=OHR.HornbillPair_EN-US3168408482_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HornbillPair_EN-US3168408482_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HornbillPair_EN-US3168408482_1080x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1080x1920.jpg) |315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.HornbillPair_EN-US3168408482_1080x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1080x1920.jpg) |315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_1080x1920.jpg) |0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
