@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250311
+
+> Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Let's be real—the beaches in Bali are beautiful, but the ones in Nusa Penida? That's a whole new vibe. This off-the-beaten-path island, part of the Bali province, is where nature gets a little wild, and the sights are nothing short of epic. With its rugged cliffs and crystal-clear waters, the island offers an escape from Bali's busier tourist hubs. The name 'Nusa Penida' translates to 'island of priests,' and historically, it served as a spiritual retreat, with temples and rituals that locals still honor today.
+> 
+> One of the island's most iconic attractions is Broken Beach, or 'Pasih Uug,' as locals call it, seen in today's image. This marvel features a circular bay in the cliff rocks, carved out by the relentless ocean waves, leading to a small white-sand beach. Some local legends claim the hollow bay was formed by a giant's footsteps, while others attribute it to an angry sorcerer. As you explore, you might spot manta rays gliding gracefully through the waters below, showcasing the island's marine life. The views from the top are unmatched, making this spot a haven for photographers and those seeking a peaceful escape.
+> 
+> 
+
+</details>
+
+| ![Broken Beach in Nusa Penida, Bali, Indonesia](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Broken Beach in Nusa Penida, Bali, Indonesia](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |
+
 ### 20250310
 
 > A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Khao Sok National Park in Thailand](https://cn.bing.com/th?id=OHR.SuratThani_EN-US3326265231_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Khao Sok National Park in Thailand](https://cn.bing.com/th?id=OHR.SuratThani_EN-US3326265231_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuratThani_EN-US3326265231_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuratThani_EN-US3326265231_1080x1920.jpg) |
-
-### 20250304
-
-> Jackson Square, New Orleans, Louisiana (© SeanPavonePhoto/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Mardi Gras, or 'Fat Tuesday,' is a vibrant tradition that marks the last day of indulgence before the Christian season of Lent begins on Ash Wednesday. Rooted in ancient Roman celebrations like Saturnalia, Mardi Gras evolved as Christianity spread, blending local customs—most notably Carnival festivities—with religious observances. The name itself originates from French, with the word gras meaning 'fat,' referring to rich, fatty foods like meat, eggs, and cheese that are traditionally enjoyed before the fasting season begins.
-> 
-> New Orleans is synonymous with Mardi Gras, a tradition celebrated there since the 18th century. Today, colorful parades, masked revelers, and iconic krewes define the city's celebration. Jackson Square, in the French Quarter, featured in today's image, stands as a witness to these lively traditions. Established in the early 1800s, it remains a central spot for visitors to experience the energy of Mardi Gras. The official colors of Mardi Gras—purple for justice, green for faith, and gold for power—were set by Rex Krewe in 1872. Whether you're eating king cake or marveling at the floats, Mardi Gras is an unforgettable cultural spectacle.
-> 
-> 
-
-</details>
-
-| ![Happy Fat Tuesday!](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Fat Tuesday!](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.HornbillPair_EN-US3168408482_1080x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1080x1920.jpg) |315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuratThani_EN-US3326265231_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuratThani_EN-US3326265231_1080x1920.jpg) |2_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.HornbillPair_EN-US3168408482_1080x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1080x1920.jpg) |315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_1080x1920.jpg) |0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
