@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250313
+
+> Holi celebration in Jaipur, India (© powerofforever/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Strolling through the streets of India during Holi is like stepping into a kaleidoscope of colors—vivid splashes of blue, green, red, yellow, pink, and orange fill the air. This festival falls on the full moon day in the Hindu month of Phalguna—usually in late February or March. It is a significant tradition that symbolizes the arrival of spring and the victory of good over evil. Outside India, Holi is celebrated by Hindus in Nepal, Bangladesh, and Pakistan, as well as by Indian communities around the world, including the US.
+> 
+> The festivities start this evening, with Holika Dahan, when people burn the effigy of the demoness Holika, representing the destruction of evil forces. Tomorrow is Rangwali Holi, which sees the streets come alive with laughter and revelry. People of all ages come together to play with colorful powders and drench each other with water. It's a time when social barriers are broken down, and everyone, regardless of age, gender, or social status, joins in the merriment.
+> 
+> 
+
+</details>
+
+| ![Happy Holi!](https://cn.bing.com/th?id=OHR.HoliColors_EN-US9033637774_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Holi!](https://cn.bing.com/th?id=OHR.HoliColors_EN-US9033637774_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoliColors_EN-US9033637774_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoliColors_EN-US9033637774_1080x1920.jpg) |
+
 ### 20250312
 
 > Château de Sully-sur-Loire, Center-Val de Loire, France (© StockPhotoAstur/Shutterstock)
@@ -112,24 +131,7 @@
 
 | ![Plum blossoms in China](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Plum blossoms in China](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_1080x1920.jpg) |
-
-### 20250306
-
-> Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)
-
-<details>
-<summary>Description</summary>
-
-> Nature's desert navigators—desert bighorn sheep—are a marvel to watch, effortlessly scaling cliffs and navigating rocky terrains with grace. Native to North America, these sheep are known for their distinctive curled horns, which can weigh up to 30 pounds. Rams use their massive horns in intense head-butting contests. During these battles, they hurl themselves at each other in charges of up to 20 miles per hour. Ewes, on the other hand, tend to keep things more low-key, forming smaller groups with their lambs. Adapted to the desert environment, the desert bighorn sheep sub-species can go long periods without water, relying on moisture from plants to survive.
-> 
-> Valley of Fire State Park, seen in today's image, is one of the best spots in Nevada to observe these desert dwellers. This park is named for its fiery red sandstone formations that seem to glow under the sun. Beyond its natural beauty, the park holds deep historical significance, with petroglyphs left by ancient Indigenous peoples. It has also earned a place in pop culture as a filming location for scenes from 'Star Trek Generations.' Keep an eye on the rocky outcrops during your visit—you might spot a bighorn sheep observing you.
-> 
-> 
-
-</details>
-
-| ![Desert bighorn sheep in Valley of Fire State Park, Nevada](https://cn.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Desert bighorn sheep in Valley of Fire State Park, Nevada](https://cn.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_1080x1920.jpg) |evada](https://cn.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_1080x1920.jpg) |HR.BhutanMonastery_EN-US2804780711_1080x1920.jpg) |0003531841_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1080x1920.jpg) |) |
 |:---------:|:---------:|
