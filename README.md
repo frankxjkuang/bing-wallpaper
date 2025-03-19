@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250317
+
+> Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> St. Patrick's Day, celebrated on March 17, honors Ireland's patron saint and national apostle, Saint Patrick—a fifth-century missionary. A national holiday in Ireland, the festivity is marked by a range of cultural events, parades, and traditional music and dance enjoyed across the globe. Interestingly, the first St. Patrick's Day parade wasn't held in Ireland but in the US. The earliest celebration was organized by Irish vicar Ricardo Artur in St. Augustine, Florida, in 1601.
+> 
+> For the occasion, Irish landmarks like the surroundings of Dublin's Samuel Beckett Bridge—seen in today's image—are often illuminated in green, the striking symbol of the festivities. The bridge, which spans over 400 feet across the River Liffey, was named after the Dublin-born writer Samuel Beckett. The bridge was designed to evoke the image of Ireland's national symbol, the harp.
+> 
+> 
+
+</details>
+
+| ![Happy St. Patrick's Day!](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy St. Patrick's Day!](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_1080x1920.jpg) |
+
 ### 20250316
 
 > Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)
@@ -112,24 +131,7 @@
 
 | ![Broken Beach in Nusa Penida, Bali, Indonesia](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Broken Beach in Nusa Penida, Bali, Indonesia](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |
-
-### 20250310
-
-> A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Feeling a bit tired? You're not alone—losing an hour to daylight saving time can leave anyone groggy. That's why Napping Day exists. Introduced in 1999 by William Anthony, a Boston University professor, and his wife, Camille, this unofficial holiday encourages everyone to take quality naps. Observed on the Monday after clocks spring forward, it's a reminder that rest is essential for well-being. Research backs it up—short naps boost mood, enhance concentration, and sharpen memory. Napping is also linked to lower stress and better heart health. While power naps (20-30 minutes) are ideal for a quick recharge, even a few minutes of shut-eye can help.
-> 
-> In Uganda's Queen Elizabeth National Park, some lions take napping to new heights—quite literally. The tree-climbing lions of the Ishasha Sector have a habit of sprawling across the branches of giant fig trees, as seen in today's image. Experts believe they climb to escape ground-level heat or pesky insects, but these naps make for an unforgettable sight. This vast park spans volcanic craters, open plains, and dense forests. A safari here promises encounters with Uganda's incredible wildlife.
-> 
-> 
-
-</details>
-
-| ![National Napping Day](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Napping Day](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg) |=1&c=4) |
 |:---------:|:---------:|
