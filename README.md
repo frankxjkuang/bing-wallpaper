@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250318
+
+> Red rock formations, Sedona, Arizona (© Jim Ekstrand/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Sedona, Arizona, is a place where nature, history, and spirituality converge amidst stunning red rock formations. These fiery sandstone creations, part of the Schnebly Hill Formation, were shaped over millions of years during the Permian Period as sediment accumulated in an ancient sea. Over time, erosion has further sculpted Sedona's landscapes, which now glow brilliantly at sunrise and sunset. Notable formations such as Wilson Mountain, Seven Sacred Pools, and Cathedral Rock offer iconic views.
+> 
+> Sedona isn't just a geological wonder; it's also steeped in history. Native American people have called this region home for millennia. Without any written history, most of the information about the earliest settlers comes from the archaeological ruins that remain, including rock art, cliff dwellings, and pueblos such as Montezuma Castle and Tuzigoot. Visitors can also experience Sedona's renowned energy vortexes—spiritual sites said to promote healing and balance. These areas, marked by twisted juniper trees and breathtaking views, add a mystical dimension to Sedona's allure.
+> 
+> 
+
+</details>
+
+| ![Rock formations at Sedona, Arizona](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rock formations at Sedona, Arizona](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_1080x1920.jpg) |
+
 ### 20250317
 
 > Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Château de Sully-sur-Loire, Center-Val de Loire, France](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Château de Sully-sur-Loire, Center-Val de Loire, France](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1080x1920.jpg) |
-
-### 20250311
-
-> Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Let's be real—the beaches in Bali are beautiful, but the ones in Nusa Penida? That's a whole new vibe. This off-the-beaten-path island, part of the Bali province, is where nature gets a little wild, and the sights are nothing short of epic. With its rugged cliffs and crystal-clear waters, the island offers an escape from Bali's busier tourist hubs. The name 'Nusa Penida' translates to 'island of priests,' and historically, it served as a spiritual retreat, with temples and rituals that locals still honor today.
-> 
-> One of the island's most iconic attractions is Broken Beach, or 'Pasih Uug,' as locals call it, seen in today's image. This marvel features a circular bay in the cliff rocks, carved out by the relentless ocean waves, leading to a small white-sand beach. Some local legends claim the hollow bay was formed by a giant's footsteps, while others attribute it to an angry sorcerer. As you explore, you might spot manta rays gliding gracefully through the waters below, showcasing the island's marine life. The views from the top are unmatched, making this spot a haven for photographers and those seeking a peaceful escape.
-> 
-> 
-
-</details>
-
-| ![Broken Beach in Nusa Penida, Bali, Indonesia](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Broken Beach in Nusa Penida, Bali, Indonesia](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg) |=1&c=4) |
 |:---------:|:---------:|
