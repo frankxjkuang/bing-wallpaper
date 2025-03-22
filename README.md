@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250320
+
+> Spring daffodils glowing in morning light (© LedyX/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> With the sun rising higher, the days grow longer, marking the arrival of spring. The spring equinox occurs when the sun crosses the celestial equator, moving from the Southern Hemisphere to the Northern Hemisphere. Traditionally, spring is considered to begin on March 21. However, astronomers and calendar makers now agree that spring officially commences on March 20 across all time zones in North America. This event signals the true start of the season, bringing with it the beauty and symbolism of spring blooms.
+> 
+> Among these blooms, narcissus, commonly known as daffodil or jonquil—featured here—stands out as a quintessential symbol of the season. Celebrated for centuries in art and literature, the daffodil carries cultural significance worldwide, symbolizing death, renewal, and good fortune. As one of England's most cherished plants, the daffodil has been celebrated by many English writers for its cultural and symbolic significance, making it one of the most poetically revered flowers. From John Gower and Shakespeare to William Wordsworth and John Milton, daffodils have inspired countless verses in literary history.
+> 
+> 
+
+</details>
+
+| ![Spring equinox](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spring equinox](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_1080x1920.jpg) |
+
 ### 20250319
 
 > A black heron canopy feeding, Chobe National Park, Botswana (© Paul Souders/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Celebrating Pi Day](https://cn.bing.com/th?id=OHR.BasqueDolmen_EN-US9089569057_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Pi Day](https://cn.bing.com/th?id=OHR.BasqueDolmen_EN-US9089569057_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BasqueDolmen_EN-US9089569057_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BasqueDolmen_EN-US9089569057_1080x1920.jpg) |
-
-### 20250313
-
-> Holi celebration in Jaipur, India (© powerofforever/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Strolling through the streets of India during Holi is like stepping into a kaleidoscope of colors—vivid splashes of blue, green, red, yellow, pink, and orange fill the air. This festival falls on the full moon day in the Hindu month of Phalguna—usually in late February or March. It is a significant tradition that symbolizes the arrival of spring and the victory of good over evil. Outside India, Holi is celebrated by Hindus in Nepal, Bangladesh, and Pakistan, as well as by Indian communities around the world, including the US.
-> 
-> The festivities start this evening, with Holika Dahan, when people burn the effigy of the demoness Holika, representing the destruction of evil forces. Tomorrow is Rangwali Holi, which sees the streets come alive with laughter and revelry. People of all ages come together to play with colorful powders and drench each other with water. It's a time when social barriers are broken down, and everyone, regardless of age, gender, or social status, joins in the merriment.
-> 
-> 
-
-</details>
-
-| ![Happy Holi!](https://cn.bing.com/th?id=OHR.HoliColors_EN-US9033637774_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Holi!](https://cn.bing.com/th?id=OHR.HoliColors_EN-US9033637774_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoliColors_EN-US9033637774_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoliColors_EN-US9033637774_1080x1920.jpg) |rs=1&c=4) | ![Château de Sully-sur-Loire, Center-Val de Loire, France](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BasqueDolmen_EN-US9089569057_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BasqueDolmen_EN-US9089569057_1080x1920.jpg) |5&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
