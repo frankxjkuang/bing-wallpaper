@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250323
+
+> Lightning and storm clouds at sunset near Bowman, Nebraska (© john finney photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, we celebrate World Meteorological Day, commemorating the founding of the World Meteorological Organization (WMO) in 1950. For the annual event, the WMO places emphasis on a different pressing topic each year. The slogan of 2025, 'Closing the early warning gap together,' highlights the importance of timely weather alerts and early action.
+> 
+> Pictured here is awe-inspiring anvil crawler lightning in Nebraska, a state renowned for its tornadoes and thunderstorms, typically during spring and summer. Anvil crawlers are tree-like lightning discharges that move horizontally. Nebraska's location in the Great Plains makes it a hotspot for storm activity. Thanks to the WMO's advancements in meteorology, we can better predict and respond to these dramatic weather events, safeguarding lives and property.
+> 
+> 
+
+</details>
+
+| ![World Meteorological Day](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Meteorological Day](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_1080x1920.jpg) |
+
 ### 20250322
 
 > Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Happy St. Patrick's Day!](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy St. Patrick's Day!](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_1080x1920.jpg) |
-
-### 20250316
-
-> Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Let's celebrate one of nature's fluffiest treasures: the giant panda. Native to China, these iconic black-and-white bears are more than just adorable. They play a crucial role in their bamboo forest ecosystem by dispersing seeds and fostering new vegetation growth, which benefits countless plants and animals.
-> 
-> Once classified as 'endangered,' their conservation status was upgraded to 'vulnerable' in 2016, thanks to dedicated efforts such as breeding programs, reforestation initiatives, and habitat preservation. Despite this progress, fewer than 2,000 pandas remain in the wild, primarily due to habitat loss caused by deforestation and farming. Efforts to protect bamboo forests and improve breeding programs are vital to their survival. While pandas may be cute and cuddly, they're also environmental heroes. Their conservation helps preserve biodiversity in their natural habitats. Let's work together to protect these gentle giants!
-> 
-> 
-
-</details>
-
-| ![Happy Panda Day!](https://cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Panda Day!](https://cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1080x1920.jpg) |--:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_1080x1920.jpg) |cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_1080x1920.jpg) |/cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg) |=1&c=4) |
