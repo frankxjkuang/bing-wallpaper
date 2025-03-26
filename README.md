@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250324
+
+> Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Desert elephants, found in Namibia and Mali, are African bush elephants that have adapted to the harsh conditions of the Namib and Sahara deserts. These extremely arid regions receive less than 2.75 inches of annual rainfall. Compared to other bush elephants, desert elephants have longer legs, broader feet, and slightly smaller bodies. These resilient herbivores migrate between waterholes, following ancient routes based on seasonal food and water availability. Male desert elephants often roam alone over vast areas, while female-led family groups stay near rivers, where food is more plentiful. Their incredible adaptability is showcased by their ability to travel long distances, sometimes 43 miles in a single night, to find their favorite myrrh bushes.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![African bush elephants in Namibia](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![African bush elephants in Namibia](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_1080x1920.jpg) |
+
 ### 20250323
 
 > Lightning and storm clouds at sunset near Bowman, Nebraska (© john finney photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Rock formations at Sedona, Arizona](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rock formations at Sedona, Arizona](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_1080x1920.jpg) |
-
-### 20250317
-
-> Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> St. Patrick's Day, celebrated on March 17, honors Ireland's patron saint and national apostle, Saint Patrick—a fifth-century missionary. A national holiday in Ireland, the festivity is marked by a range of cultural events, parades, and traditional music and dance enjoyed across the globe. Interestingly, the first St. Patrick's Day parade wasn't held in Ireland but in the US. The earliest celebration was organized by Irish vicar Ricardo Artur in St. Augustine, Florida, in 1601.
-> 
-> For the occasion, Irish landmarks like the surroundings of Dublin's Samuel Beckett Bridge—seen in today's image—are often illuminated in green, the striking symbol of the festivities. The bridge, which spans over 400 feet across the River Liffey, was named after the Dublin-born writer Samuel Beckett. The bridge was designed to evoke the image of Ireland's national symbol, the harp.
-> 
-> 
-
-</details>
-
-| ![Happy St. Patrick's Day!](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy St. Patrick's Day!](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_1080x1920.jpg) |cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1080x1920.jpg) |--:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_1080x1920.jpg) |cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_1080x1920.jpg) |/cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg) |=1&c=4) |
