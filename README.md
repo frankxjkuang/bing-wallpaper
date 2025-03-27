@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250325
+
+> Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Today is Tolkien Reading Day. It's a time to dust off well-worn copies of 'The Lord of the Rings' or 'The Hobbit,' and journey once more into the lands of elves, dwarves, and one particularly famous ring. But why this date? March 25 is the day the One Ring was destroyed, bringing down Sauron and ending his dark reign. The observation was launched in 2003 to encourage people to explore J.R.R. Tolkien's works. Schools, libraries, and fans worldwide take part, reading passages aloud, discussing favorite moments, and diving into the rich lore of Middle-earth. Some go all out with themed events, cosplay, and even second breakfasts—because what better way to honor Tolkien than by feasting like a hobbit?
+> 
+> Tolkien's writings extend far beyond Middle-earth. His academic work on language and mythology, his poetry, and lesser-known stories like in 'The Silmarillion' offer plenty for curious readers. Not sure where to start? Try reading the iconic 'All That is Gold Does Not Glitter' poem, revisiting Bilbo's riddle battle with Gollum, or even touring a hobbit-hole at Hobbiton Movie Set in Waikato, New Zealand, like the one pictured here.
+> 
+> 
+
+</details>
+
+| ![Tolkien Reading Day](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tolkien Reading Day](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_1080x1920.jpg) |
+
 ### 20250324
 
 > Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![A black heron canopy feeding in Botswana](https://cn.bing.com/th?id=OHR.BlackHeron_EN-US9662351796_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A black heron canopy feeding in Botswana](https://cn.bing.com/th?id=OHR.BlackHeron_EN-US9662351796_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlackHeron_EN-US9662351796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlackHeron_EN-US9662351796_1080x1920.jpg) |
-
-### 20250318
-
-> Red rock formations, Sedona, Arizona (© Jim Ekstrand/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Sedona, Arizona, is a place where nature, history, and spirituality converge amidst stunning red rock formations. These fiery sandstone creations, part of the Schnebly Hill Formation, were shaped over millions of years during the Permian Period as sediment accumulated in an ancient sea. Over time, erosion has further sculpted Sedona's landscapes, which now glow brilliantly at sunrise and sunset. Notable formations such as Wilson Mountain, Seven Sacred Pools, and Cathedral Rock offer iconic views.
-> 
-> Sedona isn't just a geological wonder; it's also steeped in history. Native American people have called this region home for millennia. Without any written history, most of the information about the earliest settlers comes from the archaeological ruins that remain, including rock art, cliff dwellings, and pueblos such as Montezuma Castle and Tuzigoot. Visitors can also experience Sedona's renowned energy vortexes—spiritual sites said to promote healing and balance. These areas, marked by twisted juniper trees and breathtaking views, add a mystical dimension to Sedona's allure.
-> 
-> 
-
-</details>
-
-| ![Rock formations at Sedona, Arizona](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rock formations at Sedona, Arizona](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_1080x1920.jpg) |cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1080x1920.jpg) |--:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlackHeron_EN-US9662351796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlackHeron_EN-US9662351796_1080x1920.jpg) |ridge_EN-US9511078525_1080x1920.jpg) |cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_1080x1920.jpg) |/cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg) |=1&c=4) |
