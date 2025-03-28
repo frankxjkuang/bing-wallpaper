@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250326
+
+> Manatee in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida (© Stephen Frink/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Manatees don't rush through life—they float. These gentle giants of the sea have been gliding through warm waters for millions of years, minding their own business and munching on seagrass. But despite their laid-back nature, they face serious threats. Hence, the last Wednesday of March is dedicated to them—Manatee Appreciation Day.
+> 
+> There are three species of manatees: the West Indian, the Amazonian, and the African manatee. The West Indian manatee, which includes the Florida manatee, can grow up to 13 feet long and weigh over 1,000 pounds. These peaceful creatures spend most of their time grazing and napping. They have no natural predators, but human activity poses a major risk. Boat strikes are a leading cause of injury and death, as these marine mammals are too slow to dodge speeding vessels. Habitat loss and pollution also threaten their survival. Conservation efforts, including speed limits in manatee zones and habitat protection, have helped, but these sea cows still need all the support they can get.
+> 
+> 
+
+</details>
+
+| ![Manatee Appreciation Day](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Manatee Appreciation Day](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_1080x1920.jpg) |
+
 ### 20250325
 
 > Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Spring equinox](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spring equinox](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_1080x1920.jpg) |
-
-### 20250319
-
-> A black heron canopy feeding, Chobe National Park, Botswana (© Paul Souders/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> In the world of clever hunting, the black heron rules the roost. This bird thrives in shallow, open waters and at the edges of freshwater lakes and ponds. It's also commonly spotted in marshes, rice fields, seasonally flooded grasslands, and along riverbanks. At first glance, this feathered genius seems like any other wading bird, with its long legs, slender neck, and pointed beak that aid in hunting. But when it hunts, this jet-black African species showcases an extraordinary skill—it takes the shape of an umbrella, as seen in today's image.
-> 
-> While fishing, the black heron dips its head, extends its wings around its body, and forms a shaded canopy. This clever technique is known as canopy feeding. One common theory is that small fish, seeking cover, are attracted to the shade of the heron's wings and swim right into its trap. The shade acts like polarized sunglasses, reducing glare and improving the heron's vision under the water. Additionally, the heron might also be camouflaging itself, which further intensifies the trap for the fish.
-> 
-> 
-
-</details>
-
-| ![A black heron canopy feeding in Botswana](https://cn.bing.com/th?id=OHR.BlackHeron_EN-US9662351796_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A black heron canopy feeding in Botswana](https://cn.bing.com/th?id=OHR.BlackHeron_EN-US9662351796_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlackHeron_EN-US9662351796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlackHeron_EN-US9662351796_1080x1920.jpg) |ridge_EN-US9511078525_1080x1920.jpg) |cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1080x1920.jpg) |--:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_1080x1920.jpg) |2351796_1080x1920.jpg) |ridge_EN-US9511078525_1080x1920.jpg) |cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_1080x1920.jpg) |/cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg) |=1&c=4) |
