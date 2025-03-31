@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250329
+
+> Superbloom in Carrizo Plain National Monument, California (© Robb Hirsch/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> It's not every day you see a desert burst into colors, but during a superbloom, arid land is covered with endless stretches of flowers. This rare phenomenon happens in California and Arizona when the rainy season awakens wildflower seeds that have been lying dormant in the soil. Superblooms in California typically occur once a decade, but prolonged droughts in the 21st century have made them increasingly less frequent. Drawing attention to California's diverse flora and rural federal lands, this event offers a temporary boost to local economies.
+> 
+> One of the best spots to witness this spectacular phenomenon is Carrizo Plain National Monument, seen in today's image. A vast enclosed grassland in southeastern San Luis Obispo County, California, this spot is approximately 50 miles long and 15 miles wide. Here, the hills of the Temblor and Caliente Ranges, along with the valley floor near Soda Lake, transform into a patchwork of colorful wildflowers. Have you ever had the chance to see a superbloom?
+> 
+> 
+
+</details>
+
+| ![Superbloom in Carrizo Plain National Monument, California](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Superbloom in Carrizo Plain National Monument, California](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |
+
 ### 20250328
 
 > Female black-naped monarch nesting (© komkrit tonusin/Alamy)
@@ -112,26 +131,7 @@
 
 | ![World Meteorological Day](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Meteorological Day](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_1080x1920.jpg) |
-
-### 20250322
-
-> Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> March 22 is World Water Day, a United Nations initiative highlighting the importance of fresh water and its conservation. This day raises awareness about the global water crisis and promotes actions to ensure clean water for all. Fresh water is vital—not just for drinking, but for ecosystems, agriculture, and cultural heritage.
-> 
-> A stunning example of nature's freshwater wonders is Cenote Nicte Ha in Tulum, Mexico, seen in today's image. A cenote is a natural sinkhole that arises from the collapse of limestone bedrock, exposing groundwater. Named after the Mayan words for flower (nicte) and water (ha), this open cenote is known for its turquoise waters and abundant water lilies. Sunlight filters through its surface, supporting aquatic life. For the ancient Maya, cenotes were sacred portals to the underworld and vital water sources in the Yucatán Peninsula. With a maximum depth of approximately 32 feet, Cenote Nicte Ha is a popular spot for snorkeling and diving and offers a glimpse into an ancient and fragile ecosystem.
-> 
-> 
-
-</details>
-
-| ![World Water Day](https://cn.bing.com/th?id=OHR.CenoteLilies_EN-US1076301699_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Water Day](https://cn.bing.com/th?id=OHR.CenoteLilies_EN-US1076301699_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CenoteLilies_EN-US1076301699_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CenoteLilies_EN-US1076301699_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_1080x1920.jpg) |2351796_1080x1920.jpg) |ridge_EN-US9511078525_1080x1920.jpg) |cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1080x1920.jpg) |--:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_1080x1920.jpg) |/th?id=OHR.SpringDaffodils_EN-US9726346116_1080x1920.jpg) |2351796_1080x1920.jpg) |ridge_EN-US9511078525_1080x1920.jpg) |cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_1080x1920.jpg) |/cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg) |=1&c=4) |
