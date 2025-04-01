@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250330
+
+> Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today's photo features a spot in Sydney, Australia, where shimmery waters meet famous landmarks: Port Jackson, more commonly known as Sydney Harbour. In the center, we have a bird's-eye view of the Sydney Opera House, an architectural icon with sail-like shells that shine bright under the Australian sun. Designed by Danish architect Jørn Utzon, this UNESCO World Heritage Site took 14 years to complete and hosts over 1,500 performances annually. Just across the harbor, on the left side of the picture, the Sydney Harbour Bridge—affectionately called 'the Coathanger' for its arching steel frame—connects the city's northern and southern shores. When it opened in 1932, it was the world's widest long-span bridge. Adventurous visitors can climb its 440-foot summit for breathtaking panoramic views.
+> 
+> Every New Year's Eve, this waterfront transforms into the stage for spectacular fireworks displays, attracting over a million spectators and millions more watching worldwide. The dazzling show, launched from the bridge and barges across the harbor, is a bucket-list experience. No matter what time of year, Sydney Harbour promises an experience filled with history, adventure, and beauty at every turn.
+> 
+> 
+
+</details>
+
+| ![Sydney Harbour, New South Wales, Australia](https://cn.bing.com/th?id=OHR.SydneyHarbour_EN-US2885246621_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sydney Harbour, New South Wales, Australia](https://cn.bing.com/th?id=OHR.SydneyHarbour_EN-US2885246621_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SydneyHarbour_EN-US2885246621_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SydneyHarbour_EN-US2885246621_1080x1920.jpg) |
+
 ### 20250329
 
 > Superbloom in Carrizo Plain National Monument, California (© Robb Hirsch/TANDEM Stills + Motion)
@@ -112,27 +131,7 @@
 
 | ![African bush elephants in Namibia](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![African bush elephants in Namibia](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_1080x1920.jpg) |
-
-### 20250323
-
-> Lightning and storm clouds at sunset near Bowman, Nebraska (© john finney photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, we celebrate World Meteorological Day, commemorating the founding of the World Meteorological Organization (WMO) in 1950. For the annual event, the WMO places emphasis on a different pressing topic each year. The slogan of 2025, 'Closing the early warning gap together,' highlights the importance of timely weather alerts and early action.
-> 
-> Pictured here is awe-inspiring anvil crawler lightning in Nebraska, a state renowned for its tornadoes and thunderstorms, typically during spring and summer. Anvil crawlers are tree-like lightning discharges that move horizontally. Nebraska's location in the Great Plains makes it a hotspot for storm activity. Thanks to the WMO's advancements in meteorology, we can better predict and respond to these dramatic weather events, safeguarding lives and property.
-> 
-> 
-
-</details>
-
-| ![World Meteorological Day](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Meteorological Day](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_1080x1920.jpg) |/th?id=OHR.SpringDaffodils_EN-US9726346116_1080x1920.jpg) |2351796_1080x1920.jpg) |ridge_EN-US9511078525_1080x1920.jpg) |cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1080x1920.jpg) |--:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_1080x1920.jpg) |/cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_1080x1920.jpg) |auLoire_EN-US8827570825_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg) |=1&c=4) |
 |:---------:|:---------:|
