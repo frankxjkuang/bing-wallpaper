@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250331
+
+> Ostuni at dusk, Apulia, Italy (© Feng Wei Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Perched on a hilltop overlooking the Adriatic Sea, there is a historic city that enchants visitors with its labyrinth of whitewashed buildings, winding alleyways, and a sun-drenched piazza. Welcome to Ostuni, in the Apulia region of Italy. Apulia is a southeastern area of the country, located in the heel of Italy's 'boot.' It has the longest coastline of any mainland region in the country and is home to numerous attractions, including beaches, cliffs, and charming cities like the one we see in today's image.
+> 
+> Known as the White City, Ostuni's white facades serve a practical purpose—reflecting the sun's rays to keep interiors cool. The center of the city features the Gothic-style Ostuni Cathedral, which boasts an intricate rose window dating back to the 15th century. Nearby, the Diocesan Museum, opened in 2017, houses treasures from local churches and monasteries, including Byzantine icons, Apulian sculptures, and an 18th-century wax crucifix. Piazza della Libertà, Ostuni's lively hub, is home to the Column of St. Oronzo, which honors the patron saint who saved the city from the plague in 1657. Whether you're drawn by history or simply love wandering through idyllic streets, Ostuni has something for everyone.
+> 
+> 
+
+</details>
+
+| ![Ostuni, Apulia, Italy](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ostuni, Apulia, Italy](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_1080x1920.jpg) |
+
 ### 20250330
 
 > Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Tolkien Reading Day](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tolkien Reading Day](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_1080x1920.jpg) |
-
-### 20250324
-
-> Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Desert elephants, found in Namibia and Mali, are African bush elephants that have adapted to the harsh conditions of the Namib and Sahara deserts. These extremely arid regions receive less than 2.75 inches of annual rainfall. Compared to other bush elephants, desert elephants have longer legs, broader feet, and slightly smaller bodies. These resilient herbivores migrate between waterholes, following ancient routes based on seasonal food and water availability. Male desert elephants often roam alone over vast areas, while female-led family groups stay near rivers, where food is more plentiful. Their incredible adaptability is showcased by their ability to travel long distances, sometimes 43 miles in a single night, to find their favorite myrrh bushes.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![African bush elephants in Namibia](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![African bush elephants in Namibia](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_1080x1920.jpg) |auLoire_EN-US8827570825_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1080x1920.jpg) |OHR.NappingLion_EN-US8441298325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg) |=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg) |=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ItalyClock_EN-US7397391355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ItalyClock_EN-US7397391355_1080x1920.jpg) |:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_1080x1920.jpg) |ng.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
