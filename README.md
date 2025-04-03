@@ -1,137 +1,137 @@
 ## bing wallpaper
 
-### 20250331
+### 20250402
 
-> Ostuni at dusk, Apulia, Italy (© Feng Wei Photography/Getty Images)
+> 凯恩维尔附近荒地的砂岩地层, 犹他州, 美国 (© Chris Moore/TANDEM Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> Perched on a hilltop overlooking the Adriatic Sea, there is a historic city that enchants visitors with its labyrinth of whitewashed buildings, winding alleyways, and a sun-drenched piazza. Welcome to Ostuni, in the Apulia region of Italy. Apulia is a southeastern area of the country, located in the heel of Italy's 'boot.' It has the longest coastline of any mainland region in the country and is home to numerous attractions, including beaches, cliffs, and charming cities like the one we see in today's image.
+> 蜿蜒起伏的砂岩脊绵延于犹他州凯恩维尔荒地，宛如大自然在石头上绘制的笔触。这些地貌由细粒沉积物构成，最初沉积在古代河流三角洲和内陆海洋中，随后逐渐硬化为岩石。随着时间的推移，侵蚀作用穿透了这些地层，露出流动般的波纹状图案。沉积岩层记录着气候变迁和古老地貌的演变。今日图片中，这片荒凉的土地看似毫无生机，但在早春时节，降雨会让大地铺满紫色和黄色的小花。一天的不同时刻，光影不断变化，展现出不同的角度与风貌，为摄影师和游客提供了丰富的观赏体验。尽管这片崎岖不平的地形大部分仍然保持原始状态，但部分区域地势较为平缓，允许游客在无需剧烈攀爬的情况下轻松探索。
 > 
-> Known as the White City, Ostuni's white facades serve a practical purpose—reflecting the sun's rays to keep interiors cool. The center of the city features the Gothic-style Ostuni Cathedral, which boasts an intricate rose window dating back to the 15th century. Nearby, the Diocesan Museum, opened in 2017, houses treasures from local churches and monasteries, including Byzantine icons, Apulian sculptures, and an 18th-century wax crucifix. Piazza della Libertà, Ostuni's lively hub, is home to the Column of St. Oronzo, which honors the patron saint who saved the city from the plague in 1657. Whether you're drawn by history or simply love wandering through idyllic streets, Ostuni has something for everyone.
+> 荒地广布于除南极洲以外的所有大陆。早期探险者在穿越这些艰难地形时遭遇重重困难，因此赋予它们“荒地”之名。古生物学家经常能在这里发现史前生物的化石遗骸。尽管环境极端，这些土地依然孕育着丰富的生命，包括沙漠植物、蜥蜴和鸟类。
 > 
 > 
 
 </details>
 
-| ![Ostuni, Apulia, Italy](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ostuni, Apulia, Italy](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![凯恩维尔附近荒地的砂岩地层, 犹他州, 美国](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![凯恩维尔附近荒地的砂岩地层, 犹他州, 美国](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_1080x1920.jpg) |
+
+### 20250401
+
+> 树蛙, 哥斯达黎加 (© Ondrej Prosicky/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> 青蛙从恐龙时代就已经存在，并进化成了世界上最奇特、最酷的生物。世界上已知的青蛙种类超过4000种，从比一角硬币还小的新几内亚毛蛙到重达7磅以上的巨蛙，它们的形状和大小各不相同。有些青蛙几乎是透明的，比如玻璃蛙，而有些青蛙则剧毒无比。例如，金色毒蛙携带的毒素足以杀死 10个人。如果你认为所有的青蛙都生活在沼泽中，那就来认识一下沙漠雨蛙吧，这是一种又小又胖的两栖动物，通过皮肤吸收水分来适应干旱的环境。
+> 
+> 青蛙在生态系统中起着至关重要的作用，它们控制昆虫种群，同时也是众多捕食者的食物来源。然而，栖息地丧失、污染和疾病正威胁着许多青蛙物种的生存。许多相关活动聚焦于栖息地保护、繁育计划，以及人们可以采取的简单行动，比如减少花园中的杀虫剂使用。国家青蛙月提醒人们，青蛙不仅仅是后院的“呱呱”歌手，它们还是大自然中不可或缺的重要成员！
+> 
+> 
+
+</details>
+
+| ![国家青蛙月](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国家青蛙月](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_1080x1920.jpg) |
+
+### 20250331
+
+> 黄昏下的奥斯图尼, 普利亚, 意大利 (© Feng Wei Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 这座历史悠久的城市坐落在亚得里亚海的山顶，以其迷宫般的白色建筑、蜿蜒的小巷和阳光普照的广场吸引着游客。欢迎来到意大利普利亚大区的奥斯图尼！普利亚位于意大利“靴子”形版图的“脚后跟”，拥有该国大陆地区最长的海岸线，这里不仅有迷人的海滩、壮丽的悬崖，还有如今日图片中的奥斯图尼这样美丽的城市。
+> 
+> 奥斯图尼被称为“白色之城”，但这些建筑的白色外墙不仅仅是美观，更有实际用途：白色涂层可以反射阳光，从而保持室内凉爽。市中心坐落着哥特式风格的奥斯图尼大教堂，其精美的玫瑰窗可追溯至15世纪。附近 2017 年开放的教区博物馆收藏了来自当地教堂和修道院的珍贵文物，其中包括拜占庭圣像、普利亚雕塑和 18 世纪的蜡制十字架。自由广场是奥斯图尼这座城市的活力中心，这里矗立着圣奥隆佐石柱，以纪念这位在 1657 年拯救奥斯图尼免受瘟疫侵袭的守护神。无论你是热爱历史，还是喜欢漫步于如画的街道，奥斯图尼都能为你带来独特的体验。
+> 
+> 
+
+</details>
+
+| ![奥斯图尼，普利亚，意大利](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![奥斯图尼，普利亚，意大利](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_1080x1920.jpg) |
 
 ### 20250330
 
-> Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)
+> 悉尼港鸟瞰图，新南威尔士州，澳大利亚 (© jamenpercy/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Today's photo features a spot in Sydney, Australia, where shimmery waters meet famous landmarks: Port Jackson, more commonly known as Sydney Harbour. In the center, we have a bird's-eye view of the Sydney Opera House, an architectural icon with sail-like shells that shine bright under the Australian sun. Designed by Danish architect Jørn Utzon, this UNESCO World Heritage Site took 14 years to complete and hosts over 1,500 performances annually. Just across the harbor, on the left side of the picture, the Sydney Harbour Bridge—affectionately called 'the Coathanger' for its arching steel frame—connects the city's northern and southern shores. When it opened in 1932, it was the world's widest long-span bridge. Adventurous visitors can climb its 440-foot summit for breathtaking panoramic views.
+> 今日图片展示了悉尼的著名景点，波光粼粼的海面映衬着世界级地标：杰克逊港，也就是人们更熟知的悉尼港。在图片右侧，可以俯瞰到悉尼歌剧院，这座建筑杰作以白色帆状外壳闻名，在澳大利亚的阳光下熠熠生辉作为联合国教科文组织世界遗产，该建筑由丹麦建筑师约恩·乌松 设计，耗时 14 年建成。如今，它每年举办超过 1500 场演出，是全球最知名的文化艺术中心之一。图片左侧，横跨港湾的是悉尼海港大桥，因其拱形钢架结构而被亲切地称为“衣架”，连接着悉尼的南北两岸。这座桥1932 年开通时，是世界上最宽的长跨度桥梁。喜欢冒险的游客还可以攀登桥顶，到达 440 英尺的高度，俯瞰令人惊叹的悉尼全景。
 > 
-> Every New Year's Eve, this waterfront transforms into the stage for spectacular fireworks displays, attracting over a million spectators and millions more watching worldwide. The dazzling show, launched from the bridge and barges across the harbor, is a bucket-list experience. No matter what time of year, Sydney Harbour promises an experience filled with history, adventure, and beauty at every turn.
+> 每年新年前夜，悉尼港都会变身为世界级烟花秀的舞台，吸引超过百万名现场观众，以及全球数百万电视观众共同观看这场盛大的视觉盛宴。烟花从大桥和港口上的驳船一同点燃，成为无数人的人生必体验清单之一。无论何时来到悉尼港，这里都能为游客带来融合历史、冒险与自然之美的非凡体验。
 > 
 > 
 
 </details>
 
-| ![Sydney Harbour, New South Wales, Australia](https://cn.bing.com/th?id=OHR.SydneyHarbour_EN-US2885246621_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sydney Harbour, New South Wales, Australia](https://cn.bing.com/th?id=OHR.SydneyHarbour_EN-US2885246621_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![克逊港，新南威尔士州，澳大利亚](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![克逊港，新南威尔士州，澳大利亚](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SydneyHarbour_EN-US2885246621_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SydneyHarbour_EN-US2885246621_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_1080x1920.jpg) |
 
 ### 20250329
 
-> Superbloom in Carrizo Plain National Monument, California (© Robb Hirsch/TANDEM Stills + Motion)
+> 卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国 (© Robb Hirsch/TANDEM Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> It's not every day you see a desert burst into colors, but during a superbloom, arid land is covered with endless stretches of flowers. This rare phenomenon happens in California and Arizona when the rainy season awakens wildflower seeds that have been lying dormant in the soil. Superblooms in California typically occur once a decade, but prolonged droughts in the 21st century have made them increasingly less frequent. Drawing attention to California's diverse flora and rural federal lands, this event offers a temporary boost to local economies.
+> 在沙漠地区，大片花朵绽放的景象并不常见，但在超级花海期间，原本干旱的土地将被无尽的花田覆盖。这种罕见的自然现象发生在美国加利福尼亚州和亚利桑那州，当雨季来临，沉睡在土壤中的野花种子被唤醒，形成壮观的花海景观。加利福尼亚州的超级花海通常每十年出现一次，然而21 世纪持续的干旱使其愈发罕见。超级花海不仅展示了加州丰富的植物多样性，还吸引游客前来观赏，短暂地促进当地经济发展。今日图片中的卡里佐平原国家纪念碑正是观赏这一壮观景象的最佳地点之一。这片广阔的封闭型草原位于加利福尼亚州圣路易斯奥比斯波县东南部，全长约50英里，宽约15英里。坦布洛山脉和卡连特山脉的山丘，以及苏打湖附近的谷地，都会变成一片五彩斑斓的野花拼图，绚丽至极。你曾有幸见过超级花海吗？
 > 
-> One of the best spots to witness this spectacular phenomenon is Carrizo Plain National Monument, seen in today's image. A vast enclosed grassland in southeastern San Luis Obispo County, California, this spot is approximately 50 miles long and 15 miles wide. Here, the hills of the Temblor and Caliente Ranges, along with the valley floor near Soda Lake, transform into a patchwork of colorful wildflowers. Have you ever had the chance to see a superbloom?
+> 
 > 
 > 
 
 </details>
 
-| ![Superbloom in Carrizo Plain National Monument, California](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Superbloom in Carrizo Plain National Monument, California](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![卡里佐平原国家纪念碑的超级花期，加利福尼亚州](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![卡里佐平原国家纪念碑的超级花期，加利福尼亚州](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_1080x1920.jpg) |
 
 ### 20250328
 
-> Female black-naped monarch nesting (© komkrit tonusin/Alamy)
+> 正在筑巢的雌性黑枕王鹟 (© komkrit tonusin/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> Watch closely; you might catch a glimpse of the black-naped monarch. This bird is part of the monarch flycatcher family, which also includes shrikebills, magpie-larks, and paradise flycatchers. Found across tropical southern Asia, from Iran and Sri Lanka to Indonesia and the Philippines, the black-naped monarch prefers dense forests and other lush, wooded spots. It perches upright on its short legs and spends most of its time catching insects in midair. These birds occupy the dense understory of the forest canopy.
+> 仔细观察，你或许能瞥见黑枕王鹟的身影。这种鸟属于王鹟科的一员，是伯劳鹟、鹊百灵和天堂鹟的近亲。它们分布于南亚热带地区，从伊朗、斯里兰卡到印度尼西亚、菲律宾均可见踪影。黑枕王鹟喜欢茂密的森林及其他植被繁茂的区域。黑枕王鹟的腿短，站姿挺直，并以空中捕食昆虫为主。它们常常与不同种类的鸟群混居，并且在森林冠层的浓密底层活动频繁。在繁殖季节，雌鸟会在树杈间筑起一个温暖的杯状巢穴，通常产下两到三枚蛋，正如今日图片所示。这一鸟巢结构十分独特，由蜘蛛丝和菌丝体交织而成。这种巧妙的构造不仅增强了鸟巢的韧性，还能帮助抵御有害微生物的侵袭，使鸟巢成为一个自给自足的庇护所。更有趣的是，黑枕王鹟还会用蜘蛛卵囊装饰鸟巢，不仅增强伪装效果，增添一丝特别的风格。
 > 
-> During the breeding season, the female black-naped monarch lays two or three eggs in a cozy, cup-shaped nest tucked into a tree fork, as seen in today's image. The nest is woven with filaments of spider webs and marasmius, a type of mushroom-producing fungus known for its natural antibiotic properties. This clever design may help shield young birds from harmful infections, turning the nest into a tiny, self-sustaining sanctuary. And here's another touch—Mama Bird even decorates the nest with spider-egg cases.
+> 
 > 
 > 
 
 </details>
 
-| ![Black-naped monarch](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black-naped monarch](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![黑枕王鹟](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![黑枕王鹟](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NestingMonarch_ZH-CN7848166951_1080x1920.jpg) |
 
 ### 20250327
 
-> Odeon of Herodes Atticus, Acropolis of Athens, Greece (© f11photo/Getty Images)
+> 希罗德·阿提库斯剧场，雅典卫城，希腊 (© f11photo/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Lights on, curtains rise—it's World Theater Day. Since 1961, this annual event by the International Theater Institute (ITI) has united audiences and artists in a shared appreciation of storytelling, creativity, and culture. Every year, a renowned theater figure is invited by ITI to deliver a message that resonates across the industry. Their words are translated into more than 50 languages and shared with people all over the world. These messages highlight theater's role in society—be it as a mirror to reality, an agent of change, or a refuge for the imagination. From Shakespeare's soliloquies to experimental avant-garde productions, theater has continuously evolved while holding onto its core: human connection.
+> 灯光亮起，帷幕升起，今天是世界戏剧日。自 1961 年以来，国际戏剧协会每年都会举办这一年度盛事，旨在让全球观众和艺术家共同庆祝戏剧的魅力，感受叙事的力量、创造力和文化的交汇。每年，国际戏剧协会都会邀请一位享誉全球的戏剧界代表发表主题演讲，这些演讲被翻译成50多种语言，与世界各地的人们分享。这些演讲强调了戏剧在社会中的重要作用，它既可以是作为现实的镜子，也是推动变革的力量，或是激发想象力的庇护所。无论是莎士比亚的独白，还是先锋实验剧场，戏剧艺术始终在发展演变，但它的核心始终不变：人与人之间的情感联系。
 > 
-> So, what better place to celebrate today than at the Odeon of Herodes Atticus? Located at the foot of the Acropolis in Athens, Greece, this stone Roman theater has been setting the scene for performances for nearly two millennia. Built in 161 CE by the wealthy Roman Herodes Atticus in memory of his wife, the ancient venue has hosted everything from classical tragedies to modern-day concerts. Despite the passing centuries, its acoustics still strike the right chord.
+> 那么，在这样一个重要的日子里，哪里才是最佳的庆祝地点呢？这座位于希腊雅典卫城脚下的赫罗德·阿提库斯剧场，近两千年来一直是戏剧与音乐的舞台。剧场建于公元 161 年，由富有的罗马人希罗德斯·阿提库斯为纪念其亡妻而建。从古典悲剧到现代音乐会，这里仍在续写戏剧艺术的辉煌篇章。尽管历经数个世纪，其卓越的声学设计依然让每一场演出都能完美回响。
 > 
 > 
 
 </details>
 
-| ![World Theater Day](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Theater Day](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![世界戏剧日](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界戏剧日](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_1080x1920.jpg) |
-
-### 20250326
-
-> Manatee in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida (© Stephen Frink/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Manatees don't rush through life—they float. These gentle giants of the sea have been gliding through warm waters for millions of years, minding their own business and munching on seagrass. But despite their laid-back nature, they face serious threats. Hence, the last Wednesday of March is dedicated to them—Manatee Appreciation Day.
-> 
-> There are three species of manatees: the West Indian, the Amazonian, and the African manatee. The West Indian manatee, which includes the Florida manatee, can grow up to 13 feet long and weigh over 1,000 pounds. These peaceful creatures spend most of their time grazing and napping. They have no natural predators, but human activity poses a major risk. Boat strikes are a leading cause of injury and death, as these marine mammals are too slow to dodge speeding vessels. Habitat loss and pollution also threaten their survival. Conservation efforts, including speed limits in manatee zones and habitat protection, have helped, but these sea cows still need all the support they can get.
-> 
-> 
-
-</details>
-
-| ![Manatee Appreciation Day](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Manatee Appreciation Day](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_1080x1920.jpg) |
-
-### 20250325
-
-> Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Today is Tolkien Reading Day. It's a time to dust off well-worn copies of 'The Lord of the Rings' or 'The Hobbit,' and journey once more into the lands of elves, dwarves, and one particularly famous ring. But why this date? March 25 is the day the One Ring was destroyed, bringing down Sauron and ending his dark reign. The observation was launched in 2003 to encourage people to explore J.R.R. Tolkien's works. Schools, libraries, and fans worldwide take part, reading passages aloud, discussing favorite moments, and diving into the rich lore of Middle-earth. Some go all out with themed events, cosplay, and even second breakfasts—because what better way to honor Tolkien than by feasting like a hobbit?
-> 
-> Tolkien's writings extend far beyond Middle-earth. His academic work on language and mythology, his poetry, and lesser-known stories like in 'The Silmarillion' offer plenty for curious readers. Not sure where to start? Try reading the iconic 'All That is Gold Does Not Glitter' poem, revisiting Bilbo's riddle battle with Gollum, or even touring a hobbit-hole at Hobbiton Movie Set in Waikato, New Zealand, like the one pictured here.
-> 
-> 
-
-</details>
-
-| ![Tolkien Reading Day](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tolkien Reading Day](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg) |=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_1080x1920.jpg) |load portrait 4K](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1080x1920.jpg) |=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ItalyClock_EN-US7397391355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ItalyClock_EN-US7397391355_1080x1920.jpg) |:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9903529231_1080x1920.jpg) |ng.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
