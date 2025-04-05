@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250403
+
+> Rainbow over Wasson Peak, Saguaro National Park, Arizona (© Frank Staub/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Have you ever spotted a rainbow and felt a little lucky? National Find a Rainbow Day, celebrated today, is all about looking to the sky for that magical mix of sun and rain. Nature's color wheel has long been linked to myths and legends, from Norse gods to the Irish leprechaun's pot of gold. But beyond folklore, the science behind rainbows is just as compelling. The first real explanation came from Theodoric of Freiberg, a German physicist, in 1304. He discovered that rainbows form when sunlight enters a raindrop, bends, reflects inside, and then bends again as it exits. This process splits light into its colors, creating the spectrum we see. The classic 'ROYGBIV' (red, orange, yellow, green, blue, indigo, and violet) doesn't tell the whole story—rainbows contain millions of colors blended together.
+> 
+> Not all rainbows look the same. Double rainbows occur when a fainter, reversed arc appears above the main one. Moonbows happen at night when moonlight refracts through water droplets. The rare supernumerary rainbow features extra pastel bands inside the primary arc. Today's image features a rainbow over Wasson Peak in Saguaro National Park, Arizona. Against a backdrop of desert cacti and rocky slopes, the vibrant arc stands out in a place where rain is scarce, proving that even the driest landscapes can surprise you.
+> 
+> 
+
+</details>
+
+| ![National Find a Rainbow Day](https://cn.bing.com/th?id=OHR.SaguaroRainbow_EN-US3149462337_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Find a Rainbow Day](https://cn.bing.com/th?id=OHR.SaguaroRainbow_EN-US3149462337_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaguaroRainbow_EN-US3149462337_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaguaroRainbow_EN-US3149462337_1080x1920.jpg) |
+
 ### 20250402
 
 > Sandstone formations in the badlands near Caineville, Utah (© Chris Moore/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Black-naped monarch](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black-naped monarch](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_1080x1920.jpg) |
-
-### 20250327
-
-> Odeon of Herodes Atticus, Acropolis of Athens, Greece (© f11photo/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Lights on, curtains rise—it's World Theater Day. Since 1961, this annual event by the International Theater Institute (ITI) has united audiences and artists in a shared appreciation of storytelling, creativity, and culture. Every year, a renowned theater figure is invited by ITI to deliver a message that resonates across the industry. Their words are translated into more than 50 languages and shared with people all over the world. These messages highlight theater's role in society—be it as a mirror to reality, an agent of change, or a refuge for the imagination. From Shakespeare's soliloquies to experimental avant-garde productions, theater has continuously evolved while holding onto its core: human connection.
-> 
-> So, what better place to celebrate today than at the Odeon of Herodes Atticus? Located at the foot of the Acropolis in Athens, Greece, this stone Roman theater has been setting the scene for performances for nearly two millennia. Built in 161 CE by the wealthy Roman Herodes Atticus in memory of his wife, the ancient venue has hosted everything from classical tragedies to modern-day concerts. Despite the passing centuries, its acoustics still strike the right chord.
-> 
-> 
-
-</details>
-
-| ![World Theater Day](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Theater Day](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_1080x1920.jpg) |?id=OHR.CoastalWales_EN-US9903529231_1080x1920.jpg) |ng.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_1080x1920.jpg) |N-US6991915839_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
