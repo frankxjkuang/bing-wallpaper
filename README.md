@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250404
+
+> The National Cherry Blossom Festival in Washington, DC (© f11photo/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Every spring, Washington, DC, transforms into a sea of pink and white as the cherry trees bloom, marking the return of the National Cherry Blossom Festival. This beloved event commemorates the 1912 gift of 3,000 cherry trees from Tokyo's Mayor Yukio Ozaki to the US, symbolizing the friendship between the two nations.
+> 
+> This year's festival runs through April 13, with the peak bloom period expected to last four to seven days, depending on the weather. The Tidal Basin is the most popular spot for viewing, offering breathtaking scenes near landmarks like the Jefferson Memorial and the Martin Luther King Jr. Memorial. If you prefer a quieter experience, check out Dumbarton Oaks or the National Arboretum for off-the-beaten-path beauty. Will you be visiting this year? If so, we recommend you arrive early in the morning or in the evening for the best views and fewer crowds. And remember—look, but don't touch! Picking the blossoms is against the law and harms the trees.
+> 
+> 
+
+</details>
+
+| ![National Cherry Blossom Festival, Washington, DC](https://cn.bing.com/th?id=OHR.CherryBlossomDC_EN-US9897772834_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Cherry Blossom Festival, Washington, DC](https://cn.bing.com/th?id=OHR.CherryBlossomDC_EN-US9897772834_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CherryBlossomDC_EN-US9897772834_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CherryBlossomDC_EN-US9897772834_1080x1920.jpg) |
+
 ### 20250403
 
 > Rainbow over Wasson Peak, Saguaro National Park, Arizona (© Frank Staub/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Superbloom in Carrizo Plain National Monument, California](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Superbloom in Carrizo Plain National Monument, California](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |
-
-### 20250328
-
-> Female black-naped monarch nesting (© komkrit tonusin/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Watch closely; you might catch a glimpse of the black-naped monarch. This bird is part of the monarch flycatcher family, which also includes shrikebills, magpie-larks, and paradise flycatchers. Found across tropical southern Asia, from Iran and Sri Lanka to Indonesia and the Philippines, the black-naped monarch prefers dense forests and other lush, wooded spots. It perches upright on its short legs and spends most of its time catching insects in midair. These birds occupy the dense understory of the forest canopy.
-> 
-> During the breeding season, the female black-naped monarch lays two or three eggs in a cozy, cup-shaped nest tucked into a tree fork, as seen in today's image. The nest is woven with filaments of spider webs and marasmius, a type of mushroom-producing fungus known for its natural antibiotic properties. This clever design may help shield young birds from harmful infections, turning the nest into a tiny, self-sustaining sanctuary. And here's another touch—Mama Bird even decorates the nest with spider-egg cases.
-> 
-> 
-
-</details>
-
-| ![Black-naped monarch](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black-naped monarch](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_1080x1920.jpg) |N-US6991915839_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |20.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
