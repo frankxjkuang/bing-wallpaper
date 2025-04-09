@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250407
+
+> North American beaver, Moran, Wyoming (© Enrique Aguirre Aves/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, we celebrate International Beaver Day! Established in 2009 by Beavers Wetlands & Wildlife, this day highlights the vital role beavers play in our ecosystems. Beavers are remarkable creatures known for their dam-building skills, which create wetlands, benefiting numerous species. As North America's largest rodents, they can grow up to 3 feet long, not including their distinctive flat tails. Their continuously growing teeth, with thick enamel giving them an orange hue, are essential tools for gnawing on trees—a behavior that maintains both their dental health and their environment. No wonder their strong choppers make them one of nature's best engineers. Who knew a furry little architect could have such a big impact on nature?
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Happy International Beaver Day!](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0090956170_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy International Beaver Day!](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0090956170_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0090956170_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0090956170_1080x1920.jpg) |
+
 ### 20250406
 
 > George Peabody Library, Baltimore, Maryland (© Wim Wiskerke/Alamy)
@@ -112,24 +131,7 @@
 
 | ![National Frog Month](https://cn.bing.com/th?id=OHR.TicanFrog_EN-US3006346741_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Frog Month](https://cn.bing.com/th?id=OHR.TicanFrog_EN-US3006346741_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TicanFrog_EN-US3006346741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TicanFrog_EN-US3006346741_1080x1920.jpg) |
-
-### 20250331
-
-> Ostuni at dusk, Apulia, Italy (© Feng Wei Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Perched on a hilltop overlooking the Adriatic Sea, there is a historic city that enchants visitors with its labyrinth of whitewashed buildings, winding alleyways, and a sun-drenched piazza. Welcome to Ostuni, in the Apulia region of Italy. Apulia is a southeastern area of the country, located in the heel of Italy's 'boot.' It has the longest coastline of any mainland region in the country and is home to numerous attractions, including beaches, cliffs, and charming cities like the one we see in today's image.
-> 
-> Known as the White City, Ostuni's white facades serve a practical purpose—reflecting the sun's rays to keep interiors cool. The center of the city features the Gothic-style Ostuni Cathedral, which boasts an intricate rose window dating back to the 15th century. Nearby, the Diocesan Museum, opened in 2017, houses treasures from local churches and monasteries, including Byzantine icons, Apulian sculptures, and an 18th-century wax crucifix. Piazza della Libertà, Ostuni's lively hub, is home to the Column of St. Oronzo, which honors the patron saint who saved the city from the plague in 1657. Whether you're drawn by history or simply love wandering through idyllic streets, Ostuni has something for everyone.
-> 
-> 
-
-</details>
-
-| ![Ostuni, Apulia, Italy](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ostuni, Apulia, Italy](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TicanFrog_EN-US3006346741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TicanFrog_EN-US3006346741_1080x1920.jpg) |stuni, Apulia, Italy](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ostuni, Apulia, Italy](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_1080x1920.jpg) |504669059_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Superbloom in Carrizo Plain National Monument, California](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
