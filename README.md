@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250411
+
+> 郁金香，荷兰 (© 1111IESPDJ/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 从著名的郁金香花田到世界上最大的花卉拍卖市场，荷兰与郁金香的渊源悠久。有趣的是，郁金香的原产地并非荷兰。这些绚丽的花朵最早于 16 世纪末由奥斯曼帝国传入荷兰。到了 17 世纪，郁金香的价值飙升，甚至一颗郁金香球茎的价格曾超过一栋房屋。这一时期被称为“郁金香狂热”，常被视为是最早有记录的金融泡沫之一。1637 年价格崩盘后，许多人一夜破产，但荷兰人对郁金香的喜爱却从未消退。
+> 
+> 最著名的郁金香花田，如今日图片中展示的壮观景象，主要分布在阿姆斯特丹郊外的博尔伦斯特雷克（花卉区）等地。红、黄、粉、紫等色彩斑斓的郁金香花海绵延至天际。另一处不可错过的赏花胜地是位于利瑟的库肯霍夫公园，这是世界上最著名的花卉公园，每年春天仅开放数周，展示超过七百万株花卉，包括稀有和异国品种的郁金香。公园的花卉设计每年都会变化，因此每次参观都会带来全新的体验。如果错过了郁金香的花期，也无需遗憾。荷兰的郁金香产业全年保持繁荣，这一点在阿尔斯梅尔花卉拍卖市场体现得尤为明显，作为全球最大的花卉交易市场，这里每天有数百万朵鲜花，包括郁金香，被买卖并运往世界各地，为无数家庭带去缤纷色彩和春天的气息。
+> 
+> 
+
+</details>
+
+| ![郁金香，荷兰](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![郁金香，荷兰](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_1080x1920.jpg) |
+
 ### 20250410
 
 > 靠近巢穴的红狐幼崽 (© WildMedia/Shutterstock)
@@ -112,34 +131,7 @@
 
 | ![日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_1080x1920.jpg) |
-
-### 20250404
-
-> 苏州古镇风景，江苏省，中国 (© gyn9038/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 清明是中国二十四节气之一，源于古代祖先信仰和春祭。至今，扫墓、踏青仍是清明节的主要活动。清明节，春回大地，万物生机，正是人们出门赏春的好时节。
-> 
-> 今天的图片展示的是苏州古镇的美景。春光明媚，景色宜人。来到水乡古镇，乘一叶扁舟，只见柳树、花树摇曳生姿。你能听到吴侬软语和江南民歌。处处充满诗情画意，美不胜收。
-> 
-> 
-
-</details>
-
-| ![江苏苏州古镇景观](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![江苏苏州古镇景观](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_1080x1920.jpg) |hrough the layers, exposing flowing, ripple-like patterns. The sedimentary layers tell a story of shifting climates and ancient landscapes. The barren land may appear lifeless, but during early spring, rainfall causes the terrain to be blanketed with tiny purple and yellow flowers. While much of the terrain remains rugged, some areas offer easy access, allowing visitors to explore without strenuous hiking.
-> 
-> Badlands exist on every continent except Antarctica. Early explorers named them after struggling to navigate harsh terrains. Fossil hunters frequently uncover remnants of prehistoric creatures in the eroded hills. Despite the extreme conditions, badlands support a wide range of life, including desert plants, lizards, and birds.
-> 
-> 
-
-</details>
-
-| ![Sandstone formations in the badlands near Caineville, Utah](https://cn.bing.com/th?id=OHR.UtahBadlands_EN-US0210675034_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sandstone formations in the badlands near Caineville, Utah](https://cn.bing.com/th?id=OHR.UtahBadlands_EN-US0210675034_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_1080x1920.jpg) |dlands near Caineville, Utah](https://cn.bing.com/th?id=OHR.UtahBadlands_EN-US0210675034_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.UtahBadlands_EN-US0210675034_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UtahBadlands_EN-US0210675034_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.TicanFrog_EN-US3006346741_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Frog Month](https://cn.bing.com/th?id=OHR.TicanFrog_EN-US3006346741_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
