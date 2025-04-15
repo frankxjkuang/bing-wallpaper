@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250413
+
+> Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> New Year celebrations don't always come with fireworks—sometimes, they come with buckets and a nationwide water splash fest! Thailand's Songkran festival is a unique mix of spiritual traditions and all-out water fights. Held from April 13 to 15 this year, the holiday is deeply rooted in Buddhist customs and focuses on cleansing and starting afresh. During this time, people visit temples, offer food to monks, and pour scented water over Buddha statues and elders' hands as a sign of respect. Meanwhile, the streets turn into water battlegrounds, with locals and tourists alike getting soaked in the spirit of renewal. Traditional parades roll through the lanes, and in some places, the 'Lady Songkran' or 'Miss Songkran' contest steals the show, with contestants dressed in stunning Thai outfits.
+> 
+> Those seeking a calmer way to celebrate might consider visiting Wat Tang Sai Temple in the village of Ban Krut, seen in today's image. Perched on Thong Chai Mountain, this temple complex is home to a 43-foot-tall Buddha statue and Thai-style pagodas. Built in 1996 to honor King Bhumibol Adulyadej (Rama IX) on his 50th year of reign, it remains an important spiritual site. With stunning coastline views, Wat Tang Sai offers a peaceful setting to meditate and feel the vibrations of Buddhist chants.
+> 
+> 
+
+</details>
+
+| ![Songkran—Thai New Year](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Songkran—Thai New Year](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1080x1920.jpg) |
+
 ### 20250412
 
 > View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)
@@ -112,28 +131,7 @@
 
 | ![Happy International Beaver Day!](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0006495238_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy International Beaver Day!](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0006495238_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0006495238_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0006495238_1080x1920.jpg) |
-
-### 20250406
-
-> George Peabody Library, Baltimore, Maryland (© Wim Wiskerke/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Libraries are magical places. They are home to books full of stories and knowledge, provide easy access to resources that might not be affordable for all, and offer spaces for book clubs, author talks, and other social gatherings. Without a doubt, our society benefits from libraries in several ways. To motivate people to read and take advantage of these institutions, the National Book Committee initiated an event series. The first National Library Week was celebrated in 1958 with the action slogan, 'Wake Up and Read!' This year, the annual National Library Week starts on April 6, which coincides with National Library Day. Some libraries will amaze us not only with their collection of books but also with their architecture. The George Peabody Library at Johns Hopkins University in Baltimore has earned the prestigious nickname, 'the cathedral of books.' Take today's image as inspiration for the theme of the 2025 National Library Week: 'Drawn to the Library.'
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![National Library Week](https://cn.bing.com/th?id=OHR.PeabodyBaltimore_EN-US7933142212_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Library Week](https://cn.bing.com/th?id=OHR.PeabodyBaltimore_EN-US7933142212_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PeabodyBaltimore_EN-US7933142212_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeabodyBaltimore_EN-US7933142212_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ostuni, Apulia, Italy](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_1080x1920.jpg) |504669059_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Superbloom in Carrizo Plain National Monument, California](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0006495238_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0006495238_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_1080x1920.jpg) |504669059_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Superbloom in Carrizo Plain National Monument, California](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |20.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
