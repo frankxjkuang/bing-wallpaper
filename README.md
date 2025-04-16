@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250414
+
+> Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Dolphins don't need a calendar to celebrate—but we do! National Dolphin Day, on April 14, reminds us to appreciate these smart and downright fascinating marine mammals. From leaping through waves to chatting in clicks and whistles, dolphins are all about social life. They often travel in pods and love to check out passing boats whenever they get the chance. But pollution and overfishing threaten their survival, and they need our help. National Dolphin Day is a chance to learn, take action, and—if you're lucky—see these creatures in their natural habitat.
+> 
+> Take the Atlantic spotted dolphin—the star of today's image—known for the spots on its body, which multiply and become denser with age. You'll find them in the warm temperate and tropical waters of the Atlantic, hunting fish in coordinated groups. Their speed and agility make them efficient hunters—and a thrill to watch. The United States is home to several species, including the bottlenose, common, Risso's, and spinner dolphins. Each species helps maintain the ocean's balance, highlighting the need to conserve their habitat.
+> 
+> 
+
+</details>
+
+| ![National Dolphin Day](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Dolphin Day](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_1080x1920.jpg) |
+
 ### 20250413
 
 > Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Benagil Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Benagil Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg) |
-
-### 20250407
-
-> North American beaver, Moran, Wyoming (© Enrique Aguirre Aves/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, we celebrate International Beaver Day. Established in 2009 by Beavers Wetlands & Wildlife, this day highlights the vital role beavers play in our ecosystems. Beavers are remarkable creatures known for their dam-building skills, which create wetlands, benefiting numerous species. As North America's largest rodents, they can grow up to 3 feet long, not including their distinctive flat tails. Their continuously growing teeth, with thick enamel giving them an orange hue, are essential tools for gnawing on trees—a behavior that maintains both their dental health and their environment. No wonder their strong choppers make them one of nature's best engineers. Who knew a furry little architect could have such a big impact on nature?
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Happy International Beaver Day!](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0006495238_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy International Beaver Day!](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0006495238_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0006495238_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0006495238_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_1080x1920.jpg) |504669059_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Superbloom in Carrizo Plain National Monument, California](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |20.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg) |CarrizoBloom_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |20.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
