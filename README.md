@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250415
+
+> Beach art by Zarpõ at plage de Sauveterre, Les Sables-d'Olonne, France (© Hemis/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> What if we celebrated World Art Day with our feet in the sand? Created by the International Association of Art in honor of Leonardo da Vinci's birthday, this day promotes creativity in all its forms. This is exactly what artist Zarpõ did on the beach at Sauveterre, in Vendée, France. He sculpted a gigantic work, playing with natural curves and patterns to create an unforgettable spectacle.
+> 
+> Zarpõ, aka 'Le Jardinier de la Plage,' creates his art with just the wind, the sand, and a huge dose of talent. Here, each line drawn tells a story, each motif interacts with the environment. But this art has one golden rule: It is ephemeral. In a few hours, the tide will have erased everything.
+> 
+> 
+
+</details>
+
+| ![World Art Day](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Art Day](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_1080x1920.jpg) |
+
 ### 20250414
 
 > Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)
@@ -112,24 +131,7 @@
 
 | ![Naxos in the Cyclades Islands of Greece](https://cn.bing.com/th?id=OHR.BlueNaxos_EN-US8006377229_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Naxos in the Cyclades Islands of Greece](https://cn.bing.com/th?id=OHR.BlueNaxos_EN-US8006377229_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNaxos_EN-US8006377229_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNaxos_EN-US8006377229_1080x1920.jpg) |
-
-### 20250408
-
-> Benagil Cave, Algarve, Portugal (© Westend61/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Tucked along the Algarve coast in Portugal is the Benagil Cave, carved by the relentless power of the sea. Called Algar de Benagil in Portuguese, this sea cave, seen in today's image, draws adventurers, photographers, and nature enthusiasts from across the world. With its limestone walls, circular skylight, and turquoise waters, its interior looks like a natural cathedral.
-> 
-> Benagil Cave wasn't sculpted overnight—it was formed over millions of years by coastal erosion, shaped mostly by waves, currents, and tides. The cave's most distinctive feature is its 'eye,' a natural opening in the ceiling that bathes the interior in sunlight, creating a stunning interplay of light and shadow. The cave is located near Benagil, a village on the Atlantic coast in the municipality of Lagoa. Until the late 20th century, Benagil was a traditional fishing village, with its economy deeply rooted in ocean fishing. Over the years, it has transformed into a thriving tourist destination, thanks in part to its beach, Praia de Benagil. The region, including the Benagil Cave, showcases a perfect harmony of nature's wonders and the charms of Portugal's coastline.
-> 
-> 
-
-</details>
-
-| ![Benagil Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Benagil Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNaxos_EN-US8006377229_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNaxos_EN-US8006377229_1080x1920.jpg) |il Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Benagil Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg) |CarrizoBloom_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |20.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
