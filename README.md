@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250416
+
+> Kachina Bridge, Natural Bridges National Monument, Utah (© Alan Majchrowicz/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Within the remote canyons of southeastern Utah, Natural Bridges National Monument highlights the power of erosion and the passage of time. Shaped by the relentless forces of wind and water, this monument features three magnificent natural bridges—Sipapu, Kachina, and Owachomo. These bridges were named to honor the Ancestral Puebloans who once lived here. Sipapu is the largest bridge, with a massive opening that could almost fit the dome of the United States Capitol. Kachina, pictured here, is equidistant from Sipapu and Owachomo. It was named after the petroglyphs and pictographs found at its base. Owachomo is believed to be the oldest of the three. Its thin, arching structure suggests it may eventually collapse.
+> 
+> Recognizing the significance of these natural wonders, President Theodore Roosevelt designated Natural Bridges as Utah's first national monument on this day in 1908. Today, it remains a place of awe and solitude, where visitors can hike beneath the soaring bridges, gaze at some of the darkest night skies in the country, and step back into a landscape sculpted over millions of years.
+> 
+> 
+
+</details>
+
+| ![Anniversary of Natural Bridges National Monument, Utah](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of Natural Bridges National Monument, Utah](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1080x1920.jpg) |
+
 ### 20250415
 
 > Beach art by Zarpõ at plage de Sauveterre, Les Sables-d'Olonne, France (© Hemis/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Siblings Day](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Siblings Day](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_1080x1920.jpg) |
-
-### 20250409
-
-> Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As daylight fades or just before it emerges, the island of Naxos in Greece takes on an azure glow, immersing itself in the magic of the blue hour. When the sun is positioned well below the horizon, during this brief window, the lingering sunlight casts a deep blue hue across the sky.
-> 
-> Naxos is renowned for its deposits of emery, a corundum-rich rock that was once among the finest natural abrasives used before modern alternatives emerged. The most fertile island in the Cyclades, it has a reliable water supply in the region. It is celebrated across Greece for its signature flavors, including the rich Arseniko Naxou cheese, flavorful potatoes, aromatic Kitron liqueur made from local citrus, and Naxian honey, primarily sourced from thyme nectar. A sun-soaked island, Naxos is packed with beaches, villages, and ancient ruins. Whether you're looking to rest on the sands of beaches like Agia Anna, Agios Prokopios, or Plaka, or chase the wind at one of the island's top windsurfing and kitesurfing spots, there's no shortage of adventure here.
-> 
-> 
-
-</details>
-
-| ![Naxos in the Cyclades Islands of Greece](https://cn.bing.com/th?id=OHR.BlueNaxos_EN-US8006377229_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Naxos in the Cyclades Islands of Greece](https://cn.bing.com/th?id=OHR.BlueNaxos_EN-US8006377229_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueNaxos_EN-US8006377229_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueNaxos_EN-US8006377229_1080x1920.jpg) |il Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Benagil Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_1080x1920.jpg) |l Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg) |CarrizoBloom_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |20.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
