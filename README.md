@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250417
+
+> Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> If fashion had a bird ambassador, the cock-of-the-rock would steal the spotlight. The males look like they're wearing a bright orange-red costume, complete with a huge crest that almost covers their beak. With its bold colors, this native South American bird isn't just about looks—it's got the moves too. The Andean and Guianan cock-of-the-rock are renowned for their theatrical courtship dances, making them true head-turners of the feathered kingdom. Females are far less flashy, with brownish feathers that help them stay hidden. During the mating season, males gather in leks—noisy display arenas—where they hop, squawk, and shake their heads in an effort to impress a female. She watches, picks the best dancer, mates, and then flies off to build a concave, cup-shaped mud nest on a rocky surface.
+> 
+> The female typically lays two white eggs and incubates them for 25 to 28 days, raising the chicks on her own. The Andean cock-of-the-rock thrives in the cloud forests of the Andes, favoring dense, fruit-rich areas in Venezuela, Colombia, Ecuador, Peru, and Bolivia. As a frugivore, it primarily eats fruit and helps spread seeds throughout its habitat. It occasionally consumes insects and small vertebrates.
+> 
+> 
+
+</details>
+
+| ![Andean cocks-of-the-rock, Ecuador](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Andean cocks-of-the-rock, Ecuador](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_1080x1920.jpg) |
+
 ### 20250416
 
 > Kachina Bridge, Natural Bridges National Monument, Utah (© Alan Majchrowicz/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Tulips, Netherlands](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tulips, Netherlands](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_1080x1920.jpg) |
-
-### 20250410
-
-> Red fox cubs near their den (© WildMedia/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> April 10 rolls around, and suddenly, childhood rivalries, inside jokes, and borrowed clothes come flooding back. Siblings Day is here—a day to appreciate the ones who stole your toys, tattled on you, and yet somehow remain your biggest supporters. Although Siblings Day is not a federally recognized holiday, it has gained recognition across several countries. The idea came from Claudia Evart, who established the day in memory of her late siblings. Since 1995, the Siblings Day Foundation has worked to celebrate this occasion and the unique connection shared by brothers and sisters.
-> 
-> Siblinghood isn't just for humans—it's a big deal in the wild too! Red fox cubs, featured in today's image, take sibling rivalry and teamwork to a whole new level. Cubs are born in an underground den, blind and helpless. Their mother keeps them safe while the father brings food. But as their eyes open and legs strengthen, the real fun begins. Sibling play is essential, shaping their hunting and social skills while keeping things entertaining. Wrestling, pouncing, and even playful ambushes are all part of the training. They mimic each other's behaviors, test their boundaries, and develop their cunning instincts as a team. So, this Siblings Day, take a lesson from these animals—embrace the chaos, enjoy the fun, and maybe let your sibling have the last snack—just this once.
-> 
-> 
-
-</details>
-
-| ![Siblings Day](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Siblings Day](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_1080x1920.jpg) |l Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_1080x1920.jpg) |8078019606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_1080x1920.jpg) |l Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg) |CarrizoBloom_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |20.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
