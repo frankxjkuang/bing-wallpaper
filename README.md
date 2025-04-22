@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250420
+
+> Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today is a special day for billions of Christians worldwide—a time of renewal, celebration, and traditions. Easter, also called Pascha or Resurrection Sunday, commemorates the resurrection of Jesus Christ as described in the New Testament. It's also a time for festive traditions, from sunrise services to Easter egg hunts and, of course, the beloved Easter Bunny.
+> 
+> The origins of the Easter Bunny are unclear, but historians believe German settlers introduced the tradition to America in the 1700s. In German folklore, an egg-laying hare called 'Osterhase' visited children and left behind decorated eggs representing good fortune and new beginnings. Over time, this tradition evolved into Easter baskets filled with chocolates, jellybeans, and marshmallows. Whether you're enjoying a festive feast, decorating eggs, or simply soaking in the beauty of spring, may your Easter be filled with joy and love!
+> 
+> 
+
+</details>
+
+| ![Happy Easter!](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Easter!](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_1080x1920.jpg) |
+
 ### 20250419
 
 > Zion National Park, Utah (© Simon Dannhauer/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![National Dolphin Day](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Dolphin Day](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_1080x1920.jpg) |
-
-### 20250413
-
-> Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> New Year celebrations don't always come with fireworks—sometimes, they come with buckets and a nationwide water splash fest! Thailand's Songkran festival is a unique mix of spiritual traditions and all-out water fights. Held from April 13 to 15 this year, the holiday is deeply rooted in Buddhist customs and focuses on cleansing and starting afresh. During this time, people visit temples, offer food to monks, and pour scented water over Buddha statues and elders' hands as a sign of respect. Meanwhile, the streets turn into water battlegrounds, with locals and tourists alike getting soaked in the spirit of renewal. Traditional parades roll through the lanes, and in some places, the 'Lady Songkran' or 'Miss Songkran' contest steals the show, with contestants dressed in stunning Thai outfits.
-> 
-> Those seeking a calmer way to celebrate might consider visiting Wat Tang Sai Temple in the village of Ban Krut, seen in today's image. Perched on Thong Chai Mountain, this temple complex is home to a 43-foot-tall Buddha statue and Thai-style pagodas. Built in 1996 to honor King Bhumibol Adulyadej (Rama IX) on his 50th year of reign, it remains an important spiritual site. With stunning coastline views, Wat Tang Sai offers a peaceful setting to meditate and feel the vibrations of Buddhist chants.
-> 
-> 
-
-</details>
-
-| ![Songkran—Thai New Year](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Songkran—Thai New Year](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_1080x1920.jpg) |.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Songkran—Thai New Year](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1080x1920.jpg) |75629_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Human Space Flight](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
