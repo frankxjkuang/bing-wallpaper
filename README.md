@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250421
+
+> Joshua trees under the Milky Way, California (© Chao Zhang/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Imagine standing under a sky so dark that the Milky Way stretches across it like a luminous ribbon. This is the experience that International Dark Sky Week aims to bring back. Every April, during the week of the new moon (this year from April 21 to 27), we are invited to turn off our lights and gaze at the stars. The event was initiated by Jennifer Barlow, a high school student in 2003, to combat light pollution. One of the best places to experience the night sky's beauty is Joshua Tree National Park in southeastern California, an International Dark Sky Park. Here, the absence of artificial light allows visitors to see the stars as our ancestors once did. Did you know that light pollution prevents us from seeing most of the stars in the Milky Way? By reducing it, we can reconnect with the universe's beauty and wonder.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![International Dark Sky Week](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Dark Sky Week](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_1080x1920.jpg) |
+
 ### 20250420
 
 > Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![World Art Day](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Art Day](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_1080x1920.jpg) |
-
-### 20250414
-
-> Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Dolphins don't need a calendar to celebrate—but we do! National Dolphin Day, on April 14, reminds us to appreciate these smart and downright fascinating marine mammals. From leaping through waves to chatting in clicks and whistles, dolphins are all about social life. They often travel in pods and love to check out passing boats whenever they get the chance. But pollution and overfishing threaten their survival, and they need our help. National Dolphin Day is a chance to learn, take action, and—if you're lucky—see these creatures in their natural habitat.
-> 
-> Take the Atlantic spotted dolphin—the star of today's image—known for the spots on its body, which multiply and become denser with age. You'll find them in the warm temperate and tropical waters of the Atlantic, hunting fish in coordinated groups. Their speed and agility make them efficient hunters—and a thrill to watch. The United States is home to several species, including the bottlenose, common, Risso's, and spinner dolphins. Each species helps maintain the ocean's balance, highlighting the need to conserve their habitat.
-> 
-> 
-
-</details>
-
-| ![National Dolphin Day](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Dolphin Day](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_1080x1920.jpg) |SpottedDolphins_EN-US0872892049_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_1080x1920.jpg) |.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Songkran—Thai New Year](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
