@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250422
+
+> Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On Earth Day, let's journey to one of nature's most stunning displays of geothermal power—Grand Prismatic Spring in Yellowstone National Park, Wyoming. The largest hot spring in the US, it spans 370 feet across and reaches temperatures of 160°F. This geothermal marvel is fueled by the immense heat of the massive Yellowstone volcano beneath the surface. Its vivid rings of blue, green, yellow, and orange are created by heat-loving microorganisms—called thermophiles—that thrive in the mineral-rich waters.
+> 
+> Yellowstone's geothermal activity not only fuels its geysers and hot springs, but also demonstrates a model for sustainable energy. Unlike fossil fuels, geothermal energy provides a continuous and renewable energy source. As we celebrate Earth Day, the theme 'Our Power, Our Planet' highlights the need for cleaner energy solutions. Yellowstone National Park's geothermal forces showcase Earth's untapped potential—one that could help reduce carbon emissions and combat climate change. The Grand Prismatic Spring serves as a reminder that our planet holds immense power. The challenge is using it wisely for a sustainable future.
+> 
+> 
+
+</details>
+
+| ![Earth Day](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Earth Day](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_1080x1920.jpg) |
+
 ### 20250421
 
 > Joshua trees under the Milky Way, California (© Chao Zhang/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Anniversary of Natural Bridges National Monument, Utah](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of Natural Bridges National Monument, Utah](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1080x1920.jpg) |
-
-### 20250415
-
-> Beach art by Zarpõ at plage de Sauveterre, Les Sables-d'Olonne, France (© Hemis/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> What if we celebrated World Art Day with our feet in the sand? Created by the International Association of Art in honor of Leonardo da Vinci's birthday, this day promotes creativity in all its forms. This is exactly what artist Zarpõ did on the beach at Sauveterre, in Vendée, France. He sculpted a gigantic work, playing with natural curves and patterns to create an unforgettable spectacle.
-> 
-> Zarpõ, aka 'Le Jardinier de la Plage,' creates his art with just the wind, the sand, and a huge dose of talent. Here, each line drawn tells a story, each motif interacts with the environment. But this art has one golden rule: It is ephemeral. In a few hours, the tide will have erased everything.
-> 
-> 
-
-</details>
-
-| ![World Art Day](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Art Day](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_1080x1920.jpg) |SpottedDolphins_EN-US0872892049_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_1080x1920.jpg) |.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Songkran—Thai New Year](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1080x1920.jpg) |9_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1080x1920.jpg) |75629_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Human Space Flight](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
