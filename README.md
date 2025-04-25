@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250423
+
+> Shakespeare's Globe, London, England (© Peter Dazeley/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 'All the world's a stage ...' and only a few have shaped that stage like William Shakespeare. Every April 23, we celebrate Shakespeare Day, honoring one of England's greatest playwrights and poets. This date is special as it marks both his birth and death. Born in 1564, Shakespeare revolutionized English literature with unforgettable works like 'Hamlet,' 'Macbeth,' and 'Romeo and Juliet.' Four centuries after his death, his influence remains undeniable—his stories continue to captivate, challenge, and inspire.
+> 
+> With today's image, we can step inside Shakespeare's Globe in London, a faithful reconstruction of the original 1599 theater where the Bard's plays once thrilled Elizabethan audiences. The original Globe, built by Shakespeare's acting company, the Lord Chamberlain's Men, was destroyed by fire in 1613 when a cannon misfired during a performance of 'Henry VIII.' With an open-air stage, wooden benches, and a standing 'groundlings' area, the modern Globe is as close as one can get to experiencing Shakespeare's plays as his audience did.
+> 
+> 
+
+</details>
+
+| ![Shakespeare Day](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shakespeare Day](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_1080x1920.jpg) |
+
 ### 20250422
 
 > Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Andean cocks-of-the-rock, Ecuador](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Andean cocks-of-the-rock, Ecuador](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_1080x1920.jpg) |
-
-### 20250416
-
-> Kachina Bridge, Natural Bridges National Monument, Utah (© Alan Majchrowicz/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Within the remote canyons of southeastern Utah, Natural Bridges National Monument highlights the power of erosion and the passage of time. Shaped by the relentless forces of wind and water, this monument features three magnificent natural bridges—Sipapu, Kachina, and Owachomo. These bridges were named to honor the Ancestral Puebloans who once lived here. Sipapu is the largest bridge, with a massive opening that could almost fit the dome of the United States Capitol. Kachina, pictured here, is equidistant from Sipapu and Owachomo. It was named after the petroglyphs and pictographs found at its base. Owachomo is believed to be the oldest of the three. Its thin, arching structure suggests it may eventually collapse.
-> 
-> Recognizing the significance of these natural wonders, President Theodore Roosevelt designated Natural Bridges as Utah's first national monument on this day in 1908. Today, it remains a place of awe and solitude, where visitors can hike beneath the soaring bridges, gaze at some of the darkest night skies in the country, and step back into a landscape sculpted over millions of years.
-> 
-> 
-
-</details>
-
-| ![Anniversary of Natural Bridges National Monument, Utah](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of Natural Bridges National Monument, Utah](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1080x1920.jpg) |9_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_1080x1920.jpg) |ing.com/th?id=OHR.KachinaBridge_EN-US1000475196_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1080x1920.jpg) |9_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1080x1920.jpg) |75629_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Human Space Flight](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
