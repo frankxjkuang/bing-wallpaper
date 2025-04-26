@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250424
+
+> Spire Cove in Kenai Fjords National Park, Seward, Alaska (© Wander Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As National Park Week rolls on, let's turn our attention to Kenai Fjords National Park, a gem on Alaska's Kenai Peninsula. Stretching over 1,000 square miles, this landscape features fjords, river valleys, and alpine landscapes. More than half of the terrain is blanketed in ice. Throughout the 20th century, the park's glaciers have receded, uncovering new land for plant and animal life to take root. From ancient Sitka spruces to delicate fireweed shoots and moss carpeting the forest floor, plant life in Kenai Fjords flourishes. The park is also home to diverse terrestrial and marine mammals, including timber wolves, porcupines, Canadian lynxes, and cetaceans like orcas and fin whales. It also hosts a variety of birds, such as bald eagles and Peale's peregrine falcons.
+> 
+> Kenai Fjords isn't just about stunning landscapes and flourishing wilderness—it's also a place rich with human history. For thousands of years, Alaska Natives have called this region home, leaving behind traces of their lives in the land. Within the national park, the past still lingers—from the camps left by Alaska Native Sugpiaq people once scattered along the coastline to the remnants of old mining camps in Nuka Bay.
+> 
+> 
+
+</details>
+
+| ![Spire Cove in Kenai Fjords National Park, Seward, Alaska](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spire Cove in Kenai Fjords National Park, Seward, Alaska](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_1080x1920.jpg) |
+
 ### 20250423
 
 > Shakespeare's Globe, London, England (© Peter Dazeley/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Day for Monuments and Sites](https://cn.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Monuments and Sites](https://cn.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_1080x1920.jpg) |
-
-### 20250417
-
-> Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> If fashion had a bird ambassador, the cock-of-the-rock would steal the spotlight. The males look like they're wearing a bright orange-red costume, complete with a huge crest that almost covers their beak. With its bold colors, this native South American bird isn't just about looks—it's got the moves too. The Andean and Guianan cock-of-the-rock are renowned for their theatrical courtship dances, making them true head-turners of the feathered kingdom. Females are far less flashy, with brownish feathers that help them stay hidden. During the mating season, males gather in leks—noisy display arenas—where they hop, squawk, and shake their heads in an effort to impress a female. She watches, picks the best dancer, mates, and then flies off to build a concave, cup-shaped mud nest on a rocky surface.
-> 
-> The female typically lays two white eggs and incubates them for 25 to 28 days, raising the chicks on her own. The Andean cock-of-the-rock thrives in the cloud forests of the Andes, favoring dense, fruit-rich areas in Venezuela, Colombia, Ecuador, Peru, and Bolivia. As a frugivore, it primarily eats fruit and helps spread seeds throughout its habitat. It occasionally consumes insects and small vertebrates.
-> 
-> 
-
-</details>
-
-| ![Andean cocks-of-the-rock, Ecuador](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Andean cocks-of-the-rock, Ecuador](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_1080x1920.jpg) |ing.com/th?id=OHR.KachinaBridge_EN-US1000475196_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1080x1920.jpg) |9_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1080x1920.jpg) |9_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1080x1920.jpg) |75629_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Human Space Flight](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
