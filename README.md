@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250425
+
+> Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Cute, clumsy, and completely captivating, penguins steal the show today. World Penguin Day is all about celebrating these flightless birds while raising awareness about their habitats. This day originated at McMurdo Station, an American research center on Ross Island in Antarctica, where scientists observed Adélie penguins starting their yearly migration around this time. Inspired by this natural event, the observance was created to shed light on penguins' role in the ecosystem, the threats they face, and the urgency of protecting their habitats.
+> 
+> Among the many remarkable species of penguins are Magellanic penguins, featured in today's image. A species native to South America's coastal regions, these birds breed along Patagonia's shores in Argentina, Chile, and the Falkland Islands. Named after Portuguese explorer Ferdinand Magellan, these medium-sized penguins were first documented in 1520. They can grow up to 30 inches tall and weigh around 15 pounds. Skilled hunters, they thrive on a diet of small fish, squid, and krill, efficiently filtering seawater with their specialized salt-excreting glands. With the abundant marine life along South America's Atlantic coast, they have a reliable food source. While these flightless creatures may not soar in the skies, they certainly capture hearts.
+> 
+> 
+
+</details>
+
+| ![World Penguin Day](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Penguin Day](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1080x1920.jpg) |
+
 ### 20250424
 
 > Spire Cove in Kenai Fjords National Park, Seward, Alaska (© Wander Photography/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![First day of National Park Week](https://cn.bing.com/th?id=OHR.ZionValley_EN-US2520458606_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![First day of National Park Week](https://cn.bing.com/th?id=OHR.ZionValley_EN-US2520458606_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZionValley_EN-US2520458606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZionValley_EN-US2520458606_1080x1920.jpg) |
-
-### 20250418
-
-> Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Imagine a world without the pyramids, the Great Wall, or ancient cave cities—hard to picture, right? That's why April 18 is the International Day for Monuments and Sites, an event recognized by UNESCO dedicated to protecting cultural treasures worldwide. This day is all about celebrating our history, raising awareness about endangered sites, and making sure future generations can enjoy them too.
-> 
-> A remarkable example is Göreme Historical National Park in Cappadocia, Türkiye. It's famous for its 'fairy chimneys'—towering rock formations shaped by volcanic ash and erosion over thousands of years. People carved homes, churches, and entire underground cities into these soft rock formations, some dating back to the 4th century. Today, it's a UNESCO World Heritage Site, attracting visitors from around the world. Whether it's ancient castles, temples, or hidden underground cities, this day reminds us to appreciate and protect the landmarks that tell the story of humanity.
-> 
-> 
-
-</details>
-
-| ![International Day for Monuments and Sites](https://cn.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Monuments and Sites](https://cn.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1080x1920.jpg) |9_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1080x1920.jpg) |75629_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Human Space Flight](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZionValley_EN-US2520458606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZionValley_EN-US2520458606_1080x1920.jpg) |bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1080x1920.jpg) |75629_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Human Space Flight](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_1080x1920.jpg) |l_EN-US8114977846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
