@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250426
+
+> Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Step into a world where trees touch the sky. The redwood groves of Redwood National and State Parks (RNSP) in California are home to some of the tallest trees on Earth, soaring over 370 feet high. The combined RNSP contain Redwood National Park, Del Norte Coast Redwoods State Park, Jedediah Smith Redwoods State Park, and Prairie Creek Redwoods State Park. Some of these redwoods were alive when the Mayans built their temples, and the Great Wall of China was under construction. Protected since 1968, the park preserves nearly half of the world's remaining old-growth redwoods.
+> 
+> Walk through Stout Grove in Jedediah Smith Redwoods State Park or Lady Bird Johnson Grove in Redwood National Park for a quiet stroll among the redwoods. You can also hike the Tall Trees Trail, a permit-only path where you can closely witness the tallest trees. The RNSP ecosystem is home to many animals, including Roosevelt elk, black bears, banana slugs, and the endangered marbled murrelets. Ferns and moss thrive beneath the leafy canopy, while coastal fog provides essential moisture to the trees. Whether hiking beneath these towering giants or simply standing in their shadows, the experience is humbling.
+> 
+> 
+
+</details>
+
+| ![Redwood National and State Parks, California](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Redwood National and State Parks, California](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg) |
+
 ### 20250425
 
 > Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Happy Easter!](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Easter!](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_1080x1920.jpg) |
-
-### 20250419
-
-> Zion National Park, Utah (© Simon Dannhauer/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Get your hiking boots on—it's National Park Week! This nine-day-long event encourages people to explore and appreciate the natural beauty and cultural heritage of our national parks. It's an excellent time to learn about these protected areas, participate in preservation efforts, and enjoy their scenic views. You can join in by visiting a national park, sharing information about these natural treasures, and appreciating the vital role they play in our country's heritage.
-> 
-> Zion National Park—seen in today's image—is a great place to start. Located in southwestern Utah, the park's 232 square miles are adorned with stunning sandstone cliffs and narrow slot canyons. Zion's plant and animal life are diverse and include nearly 300 bird species and 19 species of bats.
-> 
-> 
-
-</details>
-
-| ![First day of National Park Week](https://cn.bing.com/th?id=OHR.ZionValley_EN-US2520458606_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![First day of National Park Week](https://cn.bing.com/th?id=OHR.ZionValley_EN-US2520458606_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ZionValley_EN-US2520458606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ZionValley_EN-US2520458606_1080x1920.jpg) |bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1080x1920.jpg) |75629_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Human Space Flight](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_1080x1920.jpg) |l_EN-US8114977846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_1080x1920.jpg) |14977846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_1080x1920.jpg) |8078019606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_1080x1920.jpg) |l Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
