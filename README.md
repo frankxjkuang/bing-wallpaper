@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250427
+
+> Halema'uma'u Crater's lava lake, Kīlauea Caldera, Hawai'i Volcanoes National Park, Hawaii (© Stephen Matera/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> As National Park Week wraps up today, let's explore a park in a land sculpted by fire and time—Hawai'i Volcanoes National Park on the Big Island. The Halema'uma'u Crater is an intermittent lava lake in Kīlauea, one of Earth's most active volcanoes. Since it was first documented in 1823, volcanic activity has caused the crater to fill with lava, partially collapse, erupt in fountains of lava, expand to twice its size on two occasions, and at times fill with groundwater. All this activity demonstrates the unpredictable raw power that lies below the surface of the Earth. The natural and cultural importance of this site led to the establishment of Hawai'i Volcanoes National Park in 1916, and to it being named a UNESCO International Biosphere Reserve and World Heritage Site in the 1980s.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Halema'uma'u Crater, Hawai'i Volcanoes National Park](https://cn.bing.com/th?id=OHR.KilaueaCaldera_EN-US7764962675_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Halema'uma'u Crater, Hawai'i Volcanoes National Park](https://cn.bing.com/th?id=OHR.KilaueaCaldera_EN-US7764962675_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KilaueaCaldera_EN-US7764962675_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KilaueaCaldera_EN-US7764962675_1080x1920.jpg) |
+
 ### 20250426
 
 > Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Dark Sky Week](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Dark Sky Week](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_1080x1920.jpg) |
-
-### 20250420
-
-> Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today is a special day for billions of Christians worldwide—a time of renewal, celebration, and traditions. Easter, also called Pascha or Resurrection Sunday, commemorates the resurrection of Jesus Christ as described in the New Testament. It's also a time for festive traditions, from sunrise services to Easter egg hunts and, of course, the beloved Easter Bunny.
-> 
-> The origins of the Easter Bunny are unclear, but historians believe German settlers introduced the tradition to America in the 1700s. In German folklore, an egg-laying hare called 'Osterhase' visited children and left behind decorated eggs representing good fortune and new beginnings. Over time, this tradition evolved into Easter baskets filled with chocolates, jellybeans, and marshmallows. Whether you're enjoying a festive feast, decorating eggs, or simply soaking in the beauty of spring, may your Easter be filled with joy and love!
-> 
-> 
-
-</details>
-
-| ![Happy Easter!](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Easter!](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_1080x1920.jpg) |14977846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_1080x1920.jpg) |=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_1080x1920.jpg) |8078019606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_1080x1920.jpg) |l Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
