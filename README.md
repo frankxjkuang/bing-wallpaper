@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250428
+
+> Impala with red-billed oxpecker in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Here's a place where the wild rules and nature moves at its own pace. Moremi Game Reserve stretches across the eastern side of Botswana's Okavango Delta, covering 1,900 square miles. Established in 1963, it became Africa's first reserve created by local people—the Batawana, a Bantu ethnic group native to Southern Africa—to protect the region's wildlife from uncontrolled hunting. The combination of permanent water and dry land makes it one of the best places in Africa to observe wildlife in its natural habitat.
+> 
+> One animal you're almost certain to spot is the impala. These medium-sized antelopes are active mainly during the day. Males fight fiercely for dominance during the breeding season, or rut, locking horns in dramatic battles. After a six-month gestation period, females give birth to a single fawn. Outside the mating season, they stick together in herds—the territorial males, bachelor herds, and female herds—always on the lookout for predators. When danger strikes, they freeze, only to explode into a sprint when the moment demands. They can leap up to 10 feet high, cover nearly 30 feet in a single bound, and change direction mid-sprint. Whether grazing quietly or launching into a sudden dash, impalas are among Moremi's most adaptable residents.
+> 
+> 
+
+</details>
+
+| ![Impala in Moremi Game Reserve, Botswana](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Impala in Moremi Game Reserve, Botswana](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg) |
+
 ### 20250427
 
 > Halema'uma'u Crater's lava lake, Kīlauea Caldera, Hawai'i Volcanoes National Park, Hawaii (© Stephen Matera/Tandem Stills + Motion)
@@ -112,29 +131,7 @@
 
 | ![Earth Day](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Earth Day](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_1080x1920.jpg) |
-
-### 20250421
-
-> Joshua trees under the Milky Way, California (© Chao Zhang/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Imagine standing under a sky so dark that the Milky Way stretches across it like a luminous ribbon. This is the experience that International Dark Sky Week aims to bring back. Every April, during the week of the new moon (this year from April 21 to 27), we are invited to turn off our lights and gaze at the stars. The event was initiated by Jennifer Barlow, a high school student in 2003, to combat light pollution. One of the best places to experience the night sky's beauty is Joshua Tree National Park in southeastern California, an International Dark Sky Park. Here, the absence of artificial light allows visitors to see the stars as our ancestors once did. Did you know that light pollution prevents us from seeing most of the stars in the Milky Way? By reducing it, we can reconnect with the universe's beauty and wonder.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![International Dark Sky Week](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Dark Sky Week](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_1080x1920.jpg) |=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_1080x1920.jpg) |8078019606_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_1080x1920.jpg) |l Cave, Algarve, Portugal](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_1080x1920.jpg) |--------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg) |CarrizoBloom_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |20.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
