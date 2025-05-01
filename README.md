@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250429
+
+> Formal garden at Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The grass truly is greener on the other side—especially when that side is Château de Villandry. While the Loire Valley in France is packed with stunning châteaux (French for castles), Villandry stands apart, not for its towering turrets or medieval might, but for its gardens. Built in the 16th century by Jean le Breton, a minister to King Francis I, Villandry was always meant to impress. Unlike fortified castles built for war, it was designed for comfort, featuring large windows and an open, welcoming layout. Its gardens are arranged across terraces with distinct themes. The ornamental garden showcases geometric patterns like the one pictured here. The water garden offers a serene retreat, and the vegetable garden turns everyday crops into artistic displays.
+> 
+> After a challenging period, the dilapidated Château de Villandry was purchased in 1906 by Spanish doctor Joachim Carvallo and his wife, Ann Coleman, an heiress to an American steel empire. Their passion for history and horticulture led to a full restoration, and their descendants continue to maintain the estate today. These gardens change with the seasons, ensuring that no two visits are exactly alike. Whether you have a green thumb or not, it's hard not to admire the precision at play.
+> 
+> 
+
+</details>
+
+| ![Formal garden at Château de Villandry, Loire Valley, France](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Formal garden at Château de Villandry, Loire Valley, France](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1080x1920.jpg) |
+
 ### 20250428
 
 > Impala with red-billed oxpecker in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Shakespeare Day](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shakespeare Day](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_1080x1920.jpg) |
-
-### 20250422
-
-> Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On Earth Day, let's journey to one of nature's most stunning displays of geothermal power—Grand Prismatic Spring in Yellowstone National Park, Wyoming. The largest hot spring in the US, it spans 370 feet across and reaches temperatures of 160°F. This geothermal marvel is fueled by the immense heat of the massive Yellowstone volcano beneath the surface. Its vivid rings of blue, green, yellow, and orange are created by heat-loving microorganisms—called thermophiles—that thrive in the mineral-rich waters.
-> 
-> Yellowstone's geothermal activity not only fuels its geysers and hot springs, but also demonstrates a model for sustainable energy. Unlike fossil fuels, geothermal energy provides a continuous and renewable energy source. As we celebrate Earth Day, the theme 'Our Power, Our Planet' highlights the need for cleaner energy solutions. Yellowstone National Park's geothermal forces showcase Earth's untapped potential—one that could help reduce carbon emissions and combat climate change. The Grand Prismatic Spring serves as a reminder that our planet holds immense power. The challenge is using it wisely for a sustainable future.
-> 
-> 
-
-</details>
-
-| ![Earth Day](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Earth Day](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_1080x1920.jpg) |--------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoaPortugal_EN-US2211601955_1080x1920.jpg) |CarrizoBloom_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |20.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_1080x1920.jpg) |_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |20.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
