@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250430
+
+> Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> It's time to jazz up—literally. From the smoky clubs of New Orleans to the bustling streets of Tokyo, jazz has crossed borders, blended cultures, and turned improvisation into an art form. Every April 30, International Jazz Day—established by UNESCO in 2011—celebrates this genre's role in promoting peace, dialogue, and unity. This music form emerged in the late 19th and early 20th centuries in New Orleans, a city alive with musical traditions from Africa, Europe, and the Caribbean. Rooted in blues and ragtime, jazz quickly evolved, with pioneers like Louis Armstrong and Ella Fitzgerald giving it a voice. What started as an American sound soon found a global audience. Swing and bebop took over dance halls, Latin jazz brought a new rhythm, and cool jazz mellowed the mood.
+> 
+> Today, jazz is everywhere—from Brazilian bossa nova to Ethiopian Ethio-jazz, proving that a good groove knows no borders. This photo of jazz legend John Coltrane and his band performing in London, England, is a perfect example of jazz's worldwide impact. Trends change, technology evolves, and debates continue over what defines jazz, but this music lives on. So, today, tune in, tap your feet, and let the rhythm take over—because this celebration has truly struck the right chord.
+> 
+> 
+
+</details>
+
+| ![International Jazz Day](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Jazz Day](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_1080x1920.jpg) |
+
 ### 20250429
 
 > Formal garden at Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Spire Cove in Kenai Fjords National Park, Seward, Alaska](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spire Cove in Kenai Fjords National Park, Seward, Alaska](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_1080x1920.jpg) |
-
-### 20250423
-
-> Shakespeare's Globe, London, England (© Peter Dazeley/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 'All the world's a stage ...' and only a few have shaped that stage like William Shakespeare. Every April 23, we celebrate Shakespeare Day, honoring one of England's greatest playwrights and poets. This date is special as it marks both his birth and death. Born in 1564, Shakespeare revolutionized English literature with unforgettable works like 'Hamlet,' 'Macbeth,' and 'Romeo and Juliet.' Four centuries after his death, his influence remains undeniable—his stories continue to captivate, challenge, and inspire.
-> 
-> With today's image, we can step inside Shakespeare's Globe in London, a faithful reconstruction of the original 1599 theater where the Bard's plays once thrilled Elizabethan audiences. The original Globe, built by Shakespeare's acting company, the Lord Chamberlain's Men, was destroyed by fire in 1613 when a cannon misfired during a performance of 'Henry VIII.' With an open-air stage, wooden benches, and a standing 'groundlings' area, the modern Globe is as close as one can get to experiencing Shakespeare's plays as his audience did.
-> 
-> 
-
-</details>
-
-| ![Shakespeare Day](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shakespeare Day](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_1080x1920.jpg) |_EN-US2504669059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1080x1920.jpg) |20.jpg) |e 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_1080x1920.jpg) |urtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
