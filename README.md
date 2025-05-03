@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250501
+
+> Plumeria flowers, Hawaii (© Miranda Jans/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, while the world celebrates May Day with parades and protests, Hawaii takes a more fragrant approach—by draping itself in flowers. On May 1, Hawaii celebrates Lei Day, a tradition that honors culture, craftsmanship, and the ever-present aloha spirit, described as 'the coordination of mind and heart within each person.' Since 1928, this Hawaiian tradition has been in full bloom, with leis—or garlands made of flowers, leaves, or shells—serving as symbols of connection. The idea for Lei Day came from poet Don Blanding, who suggested a holiday dedicated to Hawaii's iconic floral garlands. Local writer Grace Tower Warren gave it its slogan, 'May Day is Lei Day in Hawaii,' and the tradition quickly took root.
+> 
+> What started as a single event in Honolulu has grown into a statewide celebration, with each island showcasing its unique floral identity, such as Maui's pink lokelani rose and the Big Island's red 'ōhi'a lehua. Giving a lei is a gesture of aloha, and on this day, that warmth can be seen everywhere. Whether crafted from fragrant Plumeria flowers, like the ones pictured here, delicate pikake, or colorful ti leaves, leis symbolize the bonds between people and the land. So, if you find yourself in Hawaii on May 1, don't just say 'Aloha'—wear it.
+> 
+> 
+
+</details>
+
+| ![Lei Day in Hawaii](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lei Day in Hawaii](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_1080x1920.jpg) |
+
 ### 20250430
 
 > Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Penguin Day](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Penguin Day](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1080x1920.jpg) |
-
-### 20250424
-
-> Spire Cove in Kenai Fjords National Park, Seward, Alaska (© Wander Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As National Park Week rolls on, let's turn our attention to Kenai Fjords National Park, a gem on Alaska's Kenai Peninsula. Stretching over 1,000 square miles, this landscape features fjords, river valleys, and alpine landscapes. More than half of the terrain is blanketed in ice. Throughout the 20th century, the park's glaciers have receded, uncovering new land for plant and animal life to take root. From ancient Sitka spruces to delicate fireweed shoots and moss carpeting the forest floor, plant life in Kenai Fjords flourishes. The park is also home to diverse terrestrial and marine mammals, including timber wolves, porcupines, Canadian lynxes, and cetaceans like orcas and fin whales. It also hosts a variety of birds, such as bald eagles and Peale's peregrine falcons.
-> 
-> Kenai Fjords isn't just about stunning landscapes and flourishing wilderness—it's also a place rich with human history. For thousands of years, Alaska Natives have called this region home, leaving behind traces of their lives in the land. Within the national park, the past still lingers—from the camps left by Alaska Native Sugpiaq people once scattered along the coastline to the remnants of old mining camps in Nuka Bay.
-> 
-> 
-
-</details>
-
-| ![Spire Cove in Kenai Fjords National Park, Seward, Alaska](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spire Cove in Kenai Fjords National Park, Seward, Alaska](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_1080x1920.jpg) |urtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1080x1920.jpg) |naiSpires_EN-US3294247007_1080x1920.jpg) |urtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
