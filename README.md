@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250502
+
+> Striated heron on a Victoria water lily, Pantanal, Brazil (© Gerald Corsi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In the lush Pantanal wetlands of Brazil, a striated heron perches on a Victoria water lily. This water bird, also known as the mangrove heron, is about 16 inches tall. It is a master of patience, waiting to ambush its prey. It uses clever tactics, such as dropping feathers or insects to lure fish. Common in the wetlands of South America, the striated heron is also found in North America, Australia, Africa, Asia, New Guinea, and the Pacific islands.
+> 
+> The Victoria, or giant water lily, belongs to the genus of aquatic herbs, including species like Victoria amazonica and Victoria boliviana, which can boast leaves up to 10 feet in diameter. The Pantanal, the world's largest tropical wetland, is a sanctuary for wildlife and offers an extraordinary glimpse into the natural world.
+> 
+> 
+
+</details>
+
+| ![Striated heron on a Victoria water lily, Pantanal, Brazil](https://cn.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Striated heron on a Victoria water lily, Pantanal, Brazil](https://cn.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_1080x1920.jpg) |
+
 ### 20250501
 
 > Plumeria flowers, Hawaii (© Miranda Jans/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Redwood National and State Parks, California](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Redwood National and State Parks, California](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg) |
-
-### 20250425
-
-> Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Cute, clumsy, and completely captivating, penguins steal the show today. World Penguin Day is all about celebrating these flightless birds while raising awareness about their habitats. This day originated at McMurdo Station, an American research center on Ross Island in Antarctica, where scientists observed Adélie penguins starting their yearly migration around this time. Inspired by this natural event, the observance was created to shed light on penguins' role in the ecosystem, the threats they face, and the urgency of protecting their habitats.
-> 
-> Among the many remarkable species of penguins are Magellanic penguins, featured in today's image. A species native to South America's coastal regions, these birds breed along Patagonia's shores in Argentina, Chile, and the Falkland Islands. Named after Portuguese explorer Ferdinand Magellan, these medium-sized penguins were first documented in 1520. They can grow up to 30 inches tall and weigh around 15 pounds. Skilled hunters, they thrive on a diet of small fish, squid, and krill, efficiently filtering seawater with their specialized salt-excreting glands. With the abundant marine life along South America's Atlantic coast, they have a reliable food source. While these flightless creatures may not soar in the skies, they certainly capture hearts.
-> 
-> 
-
-</details>
-
-| ![World Penguin Day](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Penguin Day](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg) |![World Penguin Day](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Penguin Day](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1080x1920.jpg) |naiSpires_EN-US3294247007_1080x1920.jpg) |urtle_EN-US6100263163_1080x1920.jpg) |as_EN-US6430903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
