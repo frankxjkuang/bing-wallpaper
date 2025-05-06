@@ -2,142 +2,136 @@
 
 ### 20250504
 
-> 西班牙广场，塞维利亚，西班牙 (© Horia Merla/Getty Images)
+> Plaza de España, Seville, Spain (© Horia Merla/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 5月4日是《星球大战》粉丝们的“星球大战日”，这一天旨在致敬由乔治·卢卡斯创造的这一广受喜爱的系列电影。该系列共包含九部电影，统称为“天行者传奇”。 其中一个令人难忘的拍摄地是西班牙塞维利亚的西班牙广场，正如今日图片所展示。这座美丽的广场呈半椭圆形，建筑风格令人惊叹，在影片中被用作纳布星的希德城。参议员阿米达拉抵达纳布星的场景，就是在这里拍摄的，演员包括娜塔莉·波特曼和海登·克里斯滕森。西班牙广场独特的设计，包括中央建筑、塔楼和喷泉，为《星球大战》的世界增添了一抹魔幻色彩。这座历史悠久的广场由安尼巴尔·冈萨雷斯设计，最初是为1929 年举办的伊比利亚-美洲博览会而建造的。
+> On May 4, 'Star Wars' fans celebrate Star Wars Day, a tribute to the beloved franchise created by George Lucas. The film series consists of nine movies, collectively referred to as the 'Skywalker Saga.' One of the memorable filming locations is Plaza de España in Seville, Spain, as seen in today's image. This beautiful square, with its semi-elliptical shape and stunning architecture, was used as the city of Theed on the planet Naboo. The scene where Senator Amidala arrives in Naboo, featuring Natalie Portman and Hayden Christensen, was filmed here. Plaza de España's unique design, with its central building, towers, and fountain, adds a touch of magic to the Star Wars universe. This historic square, designed by Aníbal González, was originally built for the Ibero-American Exposition in 1929.
 > 
-> 
+> Whether you are in Spain or elsewhere in the galaxy, May the Force be with you today!
 > 
 > 
 
 </details>
 
-| ![星球大战日](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![星球大战日](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Star Wars Day](https://cn.bing.com/th?id=OHR.SevilleNaboo_EN-US5814352031_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Star Wars Day](https://cn.bing.com/th?id=OHR.SevilleNaboo_EN-US5814352031_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SevilleNaboo_EN-US5814352031_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SevilleNaboo_EN-US5814352031_1080x1920.jpg) |
 
 ### 20250503
 
-> 拱门国家公园双拱门映衬下的银河，犹他州，美国 (© Adventure_Photo/Getty Images)
+> The Milky Way framed by Double Arch in Arches National Park, Utah (© Adventure_Photo/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 你是否曾好奇，通过望远镜看到的土星环是什么样子？又或者，天文学家是如何发现遥远星系的？国际天文日正是探索这些奥秘的绝佳时机！这一年度活动最早于 1973 年发起，其官方主题是：“将天文学带给大众”。 从当地公园到天文俱乐部、博物馆，再到天文台，游客们可以参与望远镜观测、太空讲座，甚至体验模拟月球重力的装置！这一想法起源于加利福尼亚的一位天文学家道格·伯杰。他不再等待人们走进天文台，而是直接把望远镜带到热闹的公共场所。这一招奏效了，人们很快就迷上了仰望星空！如今，世界各地都在庆祝国际天文日，加拿大、瑞典、阿根廷等许多国家都有举办相关活动。今天，就是探索宇宙的好时机。找一架望远镜，一起仰望星空、庆祝宇宙的壮丽吧！
+> Ever wondered what Saturn's rings look like through a telescope? Or how astronomers spot distant galaxies? International Astronomy Day is the perfect time to find out. This annual event, first launched in 1973, is all about 'Bringing Astronomy to the People'—the official theme of Astronomy Day. From local parks to astronomy clubs, museums, and observatories, visitors can enjoy activities like telescope viewings, space talks, and even moon gravity simulators.
 > 
-> 
+> The event started when Doug Berger, an astronomer in California, decided to take telescopes to busy public spaces rather than wait for people to visit observatories. It worked—people got hooked on stargazing! Astronomy Day is celebrated worldwide, with events in countries like Canada, Sweden, and Argentina, among many others. Today is the day to explore the universe. Find a telescope and celebrate the cosmos!
 > 
 > 
 
 </details>
 
-| ![国际天文日快乐！](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际天文日快乐！](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Happy International Astronomy Day!](https://cn.bing.com/th?id=OHR.ArchesGalaxy_EN-US5690613383_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy International Astronomy Day!](https://cn.bing.com/th?id=OHR.ArchesGalaxy_EN-US5690613383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArchesGalaxy_EN-US5690613383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArchesGalaxy_EN-US5690613383_1080x1920.jpg) |
 
 ### 20250502
 
-> 维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西 (© Gerald Corsi/Getty Images)
+> Striated heron on a Victoria water lily, Pantanal, Brazil (© Gerald Corsi/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在巴西郁郁葱葱的潘塔纳尔湿地，一只绿鹭栖息在一片维多利亚王莲的叶面上。这种水鸟，也被称为红树鹭，约16英寸高，是耐心的猎手，擅长埋伏猎物。它会采用聪明的策略，例如投下羽毛或昆虫引诱鱼类上钩。绿鹭常见于南美洲的湿地，也分布于北美、澳大利亚、非洲、亚洲、新几内亚和太平洋岛屿。
+> In the lush Pantanal wetlands of Brazil, a striated heron perches on a Victoria water lily. This water bird, also known as the mangrove heron, is about 16 inches tall. It is a master of patience, waiting to ambush its prey. It uses clever tactics, such as dropping feathers or insects to lure fish. Common in the wetlands of South America, the striated heron is also found in North America, Australia, Africa, Asia, New Guinea, and the Pacific islands.
 > 
-> 王莲，又称巨王莲，是一种水生草本植物，包括如亚马孙王莲和玻利维亚王莲等物种，其叶片直径可达 10 英尺。潘塔纳尔是世界上最大的热带湿地，是野生动物的避风港，为人们提供了一扇洞察自然奇观的窗口。
+> The Victoria, or giant water lily, belongs to the genus of aquatic herbs, including species like Victoria amazonica and Victoria boliviana, which can boast leaves up to 10 feet in diameter. The Pantanal, the world's largest tropical wetland, is a sanctuary for wildlife and offers an extraordinary glimpse into the natural world.
 > 
 > 
 
 </details>
 
-| ![维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Striated heron on a Victoria water lily, Pantanal, Brazil](https://cn.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Striated heron on a Victoria water lily, Pantanal, Brazil](https://cn.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_1080x1920.jpg) |
 
 ### 20250501
 
-> 鸡蛋花，夏威夷，美国 (© Miranda Jans/Getty Images)
+> Plumeria flowers, Hawaii (© Miranda Jans/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 方式纪念这一天，让整个群岛沐浴在花香之中。每年5月1日，夏威夷庆祝“花环节”，这一传统节日旨在弘扬文化、手工技艺，以及无处不在的阿罗哈精神，这种精神被描述为“每个人内心中思想与情感的协调统一”。 自1928年起，这一传统就在夏威夷广为流行。花环：由花朵、叶子或贝壳编织而成的花冠，成为人与人之间联结的象征。节日的灵感来自诗人唐·布兰丁，他提出设立一个专属于夏威夷的标志性花环节日。当地作家格蕾丝·塔沃·沃伦为其赋予口号：“五一劳动节就是夏威夷的花环节”，这一传统由此迅速生根发芽。
+> Today, while the world celebrates May Day with parades and protests, Hawaii takes a more fragrant approach—by draping itself in flowers. On May 1, Hawaii celebrates Lei Day, a tradition that honors culture, craftsmanship, and the ever-present aloha spirit, described as 'the coordination of mind and heart within each person.' Since 1928, this Hawaiian tradition has been in full bloom, with leis—or garlands made of flowers, leaves, or shells—serving as symbols of connection. The idea for Lei Day came from poet Don Blanding, who suggested a holiday dedicated to Hawaii's iconic floral garlands. Local writer Grace Tower Warren gave it its slogan, 'May Day is Lei Day in Hawaii,' and the tradition quickly took root.
 > 
-> 最初仅在檀香山举行的活动，如今已发展为全州范围内的庆典。各个岛屿纷纷通过展示各自独特的花卉象征参与庆祝，例如毛伊岛的粉色洛可兰尼玫瑰，以及大岛的红色欧胡阿勒花。送出花环是一种阿罗哈的表达，而在这一天，这份温暖的情感无处不在。无论花环是由如图所示的芳香鸡蛋花、娇嫩的茉莉花，还是色彩鲜艳的提叶制作而成，它都象征着人与人之间，以及人与土地之间的情感纽带。所以，如果你在5月1日恰好身在夏威夷，别只说一句“阿罗哈”，把它戴在身上吧。
+> What started as a single event in Honolulu has grown into a statewide celebration, with each island showcasing its unique floral identity, such as Maui's pink lokelani rose and the Big Island's red 'ōhi'a lehua. Giving a lei is a gesture of aloha, and on this day, that warmth can be seen everywhere. Whether crafted from fragrant Plumeria flowers, like the ones pictured here, delicate pikake, or colorful ti leaves, leis symbolize the bonds between people and the land. So, if you find yourself in Hawaii on May 1, don't just say 'Aloha'—wear it.
 > 
 > 
 
 </details>
 
-| ![花环节](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![花环节](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Lei Day in Hawaii](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lei Day in Hawaii](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_1080x1920.jpg) |
 
 ### 20250430
 
-> 从巴拉那州看到的伊瓜苏瀑布, 巴西 (© agustavop/Getty Images)
+> Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 伊瓜苏市是一处由大自然雕琢出的奇观，今日图片仅捕捉到其壮丽景色的一角。位于巴拉那州西南角，这片边境地带回荡着瀑布震耳欲聋的轰鸣声，每秒数百万升水以狂野而迷人的姿态倾泻而下。瀑布腾起的水雾在空中绘出道道彩虹，河流的力量将这片土地塑造成一幅仿佛有生命、不断变化的画卷。
+> It's time to jazz up—literally. From the smoky clubs of New Orleans to the bustling streets of Tokyo, jazz has crossed borders, blended cultures, and turned improvisation into an art form. Every April 30, International Jazz Day—established by UNESCO in 2011—celebrates this genre's role in promoting peace, dialogue, and unity. This music form emerged in the late 19th and early 20th centuries in New Orleans, a city alive with musical traditions from Africa, Europe, and the Caribbean. Rooted in blues and ragtime, jazz quickly evolved, with pioneers like Louis Armstrong and Ella Fitzgerald giving it a voice. What started as an American sound soon found a global audience. Swing and bebop took over dance halls, Latin jazz brought a new rhythm, and cool jazz mellowed the mood.
 > 
-> 但伊瓜苏的魅力不仅止于瀑布。它是一片充满活力的文化拼图，巴西、阿根廷和巴拉圭三国在此交汇。在集市上，语言与香气交织碰撞，展现出这个多元地区跳动的不同节奏。伊瓜苏国家公园是稀有物种的栖息地，而“三国交界纪念碑”提醒着人们，在这里，历史与传统之间没有边界。在葱郁的自然与国际化都市的活力之间，伊瓜苏也拥抱着未来，通过可持续旅游，确保这份宏伟得以世代相传。在这里，每一滴水、每一条小径、每一次相遇，都诉说着关于美丽、力量与联结的故事。
+> Today, jazz is everywhere—from Brazilian bossa nova to Ethiopian Ethio-jazz, proving that a good groove knows no borders. This photo of jazz legend John Coltrane and his band performing in London, England, is a perfect example of jazz's worldwide impact. Trends change, technology evolves, and debates continue over what defines jazz, but this music lives on. So, today, tune in, tap your feet, and let the rhythm take over—because this celebration has truly struck the right chord.
 > 
 > 
 
 </details>
 
-| ![从巴拉那州看到的伊瓜苏瀑布, 巴西](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![从巴拉那州看到的伊瓜苏瀑布, 巴西](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Jazz Day](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Jazz Day](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_1080x1920.jpg) |
 
 ### 20250429
 
-> 维朗德里城堡，卢瓦尔河谷，法国 (© Mint Images/Getty Images)
+> Formal garden at Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 这边的草地确实更绿，尤其是当那一边是维朗德里城堡时。虽然法国卢瓦尔河谷遍布令人惊叹的城堡，但维朗德里城堡却与众不同，它并非以高耸的塔楼或中世纪的雄伟气势取胜，而是以花园闻名。这座城堡建于 16 世纪，由弗朗索瓦一世国王的财政大臣让·勒·布雷顿所建，目的就是为了令人印象深刻。与为战争而建的防御性城堡不同，维朗德里城堡的设计注重舒适，拥有大窗户和开阔、宜人的布局。城堡的花园分布在不同的梯田上。每个梯田有独特的主题。装饰性花园展示了如图所示的几何图案。水景花园则提供宁静的休憩之所，而蔬菜园则将日常作物打造成艺术展示。
+> The grass truly is greener on the other side—especially when that side is Château de Villandry. While the Loire Valley in France is packed with stunning châteaux (French for castles), Villandry stands apart, not for its towering turrets or medieval might, but for its gardens. Built in the 16th century by Jean le Breton, a minister to King Francis I, Villandry was always meant to impress. Unlike fortified castles built for war, it was designed for comfort, featuring large windows and an open, welcoming layout. Its gardens are arranged across terraces with distinct themes. The ornamental garden showcases geometric patterns like the one pictured here. The water garden offers a serene retreat, and the vegetable garden turns everyday crops into artistic displays.
 > 
-> 在历经一段艰难时期后，破败不堪的维朗德里城堡于 1906 年被西班牙医生若阿基姆·卡瓦略及其妻子、美国钢铁帝国的女继承人安·科尔曼购得。他们对历史和园艺的热爱促成了城堡的全面修复，如今他们的后代仍在维护这座庄园。这些花园随季节更替而变化，确保每次造访都有不同的体验。无论是否擅长园艺，都很难不为其中的精巧布局所折服。
+> After a challenging period, the dilapidated Château de Villandry was purchased in 1906 by Spanish doctor Joachim Carvallo and his wife, Ann Coleman, an heiress to an American steel empire. Their passion for history and horticulture led to a full restoration, and their descendants continue to maintain the estate today. These gardens change with the seasons, ensuring that no two visits are exactly alike. Whether you have a green thumb or not, it's hard not to admire the precision at play.
 > 
 > 
 
 </details>
 
-| ![维朗德里城堡花园，卢瓦尔河谷，法国](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![维朗德里城堡花园，卢瓦尔河谷，法国](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Formal garden at Château de Villandry, Loire Valley, France](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Formal garden at Château de Villandry, Loire Valley, France](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1080x1920.jpg) |
 
 ### 20250428
 
-> 莫雷米野生动物保护区的高角羚，博茨瓦纳 (© Paul Souders/Getty Images)
+> Impala with red-billed oxpecker in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 这里是野性主宰之地，大自然按自己的节奏律动。莫雷米禁猎区横跨博茨瓦纳奥卡万戈三角洲的东部，面积达1,900 平方英里。该保护区于 1963 年设立，是非洲首个由当地巴塔瓦纳人（一个原住于南部非洲的班图族裔）创建的自然保护区，旨在防止不受控制的狩猎行为，保护该地区的野生动物。永久性的水源与干燥陆地相结合，使这里成为非洲观察野生动物最理想的地点之一。
+> Here's a place where the wild rules and nature moves at its own pace. Moremi Game Reserve stretches across the eastern side of Botswana's Okavango Delta, covering 1,900 square miles. Established in 1963, it became Africa's first reserve created by local people—the Batawana, a Bantu ethnic group native to Southern Africa—to protect the region's wildlife from uncontrolled hunting. The combination of permanent water and dry land makes it one of the best places in Africa to observe wildlife in its natural habitat.
 > 
-> 在这里，你几乎肯定能见到黑斑羚。这种中等体型的羚羊主要在白天活动。在繁殖季节，雄性羚羊会为了争夺统治地位而激烈争斗，角力场面十分壮观。经过六个月的妊娠期，雌性羚羊会产下一只幼崽。在非繁殖季节时，它们总是成群结队地在一起，包括领地公羚群和母羚群，时刻警惕着捕食者。一旦危险来临，它们会先静止不动，等到关键时刻再突然冲刺而出。它们能跳高达 10 英尺远，一跃跨越将近 30 英尺，并能在奔跑中变换方向。无论是在安静地吃草还是突然起跳奔跑，黑斑羚都是莫雷米最具适应力的常驻动物之一。
+> One animal you're almost certain to spot is the impala. These medium-sized antelopes are active mainly during the day. Males fight fiercely for dominance during the breeding season, or rut, locking horns in dramatic battles. After a six-month gestation period, females give birth to a single fawn. Outside the mating season, they stick together in herds—the territorial males, bachelor herds, and female herds—always on the lookout for predators. When danger strikes, they freeze, only to explode into a sprint when the moment demands. They can leap up to 10 feet high, cover nearly 30 feet in a single bound, and change direction mid-sprint. Whether grazing quietly or launching into a sudden dash, impalas are among Moremi's most adaptable residents.
 > 
 > 
 
 </details>
 
-| ![莫雷米野生动物保护区的高角羚，博茨瓦纳](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![莫雷米野生动物保护区的高角羚，博茨瓦纳](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Impala in Moremi Game Reserve, Botswana](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Impala in Moremi Game Reserve, Botswana](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_1080x1920.jpg) |dangered marbled murrelets. Ferns and moss thrive beneath the leafy canopy, while coastal fog provides essential moisture to the trees. Whether hiking beneath these towering giants or simply standing in their shadows, the experience is humbling.
-> 
-> 
-
-</details>
-
-| ![Redwood National and State Parks, California](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Redwood National and State Parks, California](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg) |&h=224&rs=1&c=4) | ![Redwood National and State Parks, California](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg) |![World Penguin Day](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Penguin Day](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
