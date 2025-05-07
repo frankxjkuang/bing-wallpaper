@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250505
+
+> Paper flags strung over a street in San Miguel de Allende, Mexico (© William Zinn/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Cinco de Mayo, or the Fifth of May, marks the Mexican army's victory over France at the Battle of Puebla on May 5, 1862. While it is only celebrated sporadically in Mexico, it has become a vibrant celebration of Mexican culture and heritage in the US, especially in cities like Los Angeles, Chicago, and Houston. This holiday is often mistaken for Mexican Independence Day, but that falls on September 16. Instead, Cinco de Mayo honors Mexico's fight against foreign rule and symbolizes resilience and unity. The battle itself was brief, lasting from daybreak to early evening, but the Mexican army, led by General Ignacio Zaragoza, managed to defeat a much larger and better-equipped French force. Today, Cinco de Mayo festivities feature parades, mariachi music, folk dancing, and delicious foods like tacos and mole poblano. Whether you're joining a festival or just enjoying a plate of Mexican cuisine, it's a great day to appreciate Mexico's rich history and traditions. Viva Mexico!
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Cinco de Mayo](https://cn.bing.com/th?id=OHR.CincoFlags_EN-US5873749093_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cinco de Mayo](https://cn.bing.com/th?id=OHR.CincoFlags_EN-US5873749093_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CincoFlags_EN-US5873749093_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CincoFlags_EN-US5873749093_1080x1920.jpg) |
+
 ### 20250504
 
 > Plaza de España, Seville, Spain (© Horia Merla/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Formal garden at Château de Villandry, Loire Valley, France](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Formal garden at Château de Villandry, Loire Valley, France](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1080x1920.jpg) |
-
-### 20250428
-
-> Impala with red-billed oxpecker in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Here's a place where the wild rules and nature moves at its own pace. Moremi Game Reserve stretches across the eastern side of Botswana's Okavango Delta, covering 1,900 square miles. Established in 1963, it became Africa's first reserve created by local people—the Batawana, a Bantu ethnic group native to Southern Africa—to protect the region's wildlife from uncontrolled hunting. The combination of permanent water and dry land makes it one of the best places in Africa to observe wildlife in its natural habitat.
-> 
-> One animal you're almost certain to spot is the impala. These medium-sized antelopes are active mainly during the day. Males fight fiercely for dominance during the breeding season, or rut, locking horns in dramatic battles. After a six-month gestation period, females give birth to a single fawn. Outside the mating season, they stick together in herds—the territorial males, bachelor herds, and female herds—always on the lookout for predators. When danger strikes, they freeze, only to explode into a sprint when the moment demands. They can leap up to 10 feet high, cover nearly 30 feet in a single bound, and change direction mid-sprint. Whether grazing quietly or launching into a sudden dash, impalas are among Moremi's most adaptable residents.
-> 
-> 
-
-</details>
-
-| ![Impala in Moremi Game Reserve, Botswana](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Impala in Moremi Game Reserve, Botswana](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1080x1920.jpg) |me Reserve, Botswana](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg) |&h=224&rs=1&c=4) | ![Redwood National and State Parks, California](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
