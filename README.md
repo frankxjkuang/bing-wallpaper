@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250506
+
+> An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Imagine soaring through the skies in an ultralight aircraft, the wind rushing past as you take in the picturesque views. Below, the world's oldest desert, the Namib, stretches endlessly, shaped by winds over 55 million years. This is Namibia—a surreal landscape of towering dunes, dry riverbeds, and shifting sands.
+> 
+> Unlike traditional aircraft, ultralights offer an unmatched sense of freedom. Also known as microlights, these small planes are designed for low-altitude, slow-speed flying. Their weight and speed limits vary by country; in the United States, they should weigh under 254 pounds when empty and not go over 55 knots (63 miles per hour) at full power. With open or semi-enclosed cockpits, ultralights provide breathtaking panoramic views, making each flight an immersive experience. Ultralight aviation emerged in the late 1970s and early 1980s, revolutionizing recreational flying. With minimal regulations and lightweight design, these aircraft offer an accessible and exhilarating way to explore some of the world's most remote and beautiful places, like the one we see in today's image.
+> 
+> 
+
+</details>
+
+| ![An ultralight aircraft flying over the sands of Namibia](https://cn.bing.com/th?id=OHR.FlyoverNamibia_EN-US6033011196_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![An ultralight aircraft flying over the sands of Namibia](https://cn.bing.com/th?id=OHR.FlyoverNamibia_EN-US6033011196_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlyoverNamibia_EN-US6033011196_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyoverNamibia_EN-US6033011196_1080x1920.jpg) |
+
 ### 20250505
 
 > Paper flags strung over a street in San Miguel de Allende, Mexico (© William Zinn/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Jazz Day](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Jazz Day](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_1080x1920.jpg) |
-
-### 20250429
-
-> Formal garden at Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The grass truly is greener on the other side—especially when that side is Château de Villandry. While the Loire Valley in France is packed with stunning châteaux (French for castles), Villandry stands apart, not for its towering turrets or medieval might, but for its gardens. Built in the 16th century by Jean le Breton, a minister to King Francis I, Villandry was always meant to impress. Unlike fortified castles built for war, it was designed for comfort, featuring large windows and an open, welcoming layout. Its gardens are arranged across terraces with distinct themes. The ornamental garden showcases geometric patterns like the one pictured here. The water garden offers a serene retreat, and the vegetable garden turns everyday crops into artistic displays.
-> 
-> After a challenging period, the dilapidated Château de Villandry was purchased in 1906 by Spanish doctor Joachim Carvallo and his wife, Ann Coleman, an heiress to an American steel empire. Their passion for history and horticulture led to a full restoration, and their descendants continue to maintain the estate today. These gardens change with the seasons, ensuring that no two visits are exactly alike. Whether you have a green thumb or not, it's hard not to admire the precision at play.
-> 
-> 
-
-</details>
-
-| ![Formal garden at Château de Villandry, Loire Valley, France](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Formal garden at Château de Villandry, Loire Valley, France](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1080x1920.jpg) |me Reserve, Botswana](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_1080x1920.jpg) |andscape 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1080x1920.jpg) |me Reserve, Botswana](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg) |&h=224&rs=1&c=4) | ![Redwood National and State Parks, California](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
