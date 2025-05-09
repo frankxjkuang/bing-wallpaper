@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250507
+
+> Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> If Dunluce Castle, pictured here, feels like something straight out of 'Game of Thrones,' that's because it is the real-life inspiration for Pyke, the seat of House Greyjoy. Built in the 13th century, this castle in County Antrim, Northern Ireland, was once a stronghold of the MacDonnells of Antrim, a branch of the Clan MacDonnell that played a key role in Irish politics from the 15th to the 17th century. The family's fortunes declined after the Battle of the Boyne in 1690, and with little money for upkeep, the castle gradually fell into ruin.
+> 
+> Dunluce Castle is steeped in legend, including the tale of its banshee. Maeve Roe, the only daughter of Lord MacQuillan, defied an arranged marriage and was locked away in the castle's turret. One night, as Maeve Roe and her lover fled by boat, a fierce storm struck, dragging them both to a watery grave. Locals say her ghostly cries still echo from the turret. Today, visitors can explore the windswept remains of this medieval fortress, imagining the feasts and battles that once took place here. And if the castle itself isn't impressive enough, the views over the Causeway Coast certainly are.
+> 
+> 
+
+</details>
+
+| ![Dunluce Castle, County Antrim, Northern Ireland](https://cn.bing.com/th?id=OHR.DunluceIreland_EN-US6236791025_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dunluce Castle, County Antrim, Northern Ireland](https://cn.bing.com/th?id=OHR.DunluceIreland_EN-US6236791025_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DunluceIreland_EN-US6236791025_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DunluceIreland_EN-US6236791025_1080x1920.jpg) |
+
 ### 20250506
 
 > An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Lei Day in Hawaii](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lei Day in Hawaii](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_1080x1920.jpg) |
-
-### 20250430
-
-> Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It's time to jazz up—literally. From the smoky clubs of New Orleans to the bustling streets of Tokyo, jazz has crossed borders, blended cultures, and turned improvisation into an art form. Every April 30, International Jazz Day—established by UNESCO in 2011—celebrates this genre's role in promoting peace, dialogue, and unity. This music form emerged in the late 19th and early 20th centuries in New Orleans, a city alive with musical traditions from Africa, Europe, and the Caribbean. Rooted in blues and ragtime, jazz quickly evolved, with pioneers like Louis Armstrong and Ella Fitzgerald giving it a voice. What started as an American sound soon found a global audience. Swing and bebop took over dance halls, Latin jazz brought a new rhythm, and cool jazz mellowed the mood.
-> 
-> Today, jazz is everywhere—from Brazilian bossa nova to Ethiopian Ethio-jazz, proving that a good groove knows no borders. This photo of jazz legend John Coltrane and his band performing in London, England, is a perfect example of jazz's worldwide impact. Trends change, technology evolves, and debates continue over what defines jazz, but this music lives on. So, today, tune in, tap your feet, and let the rhythm take over—because this celebration has truly struck the right chord.
-> 
-> 
-
-</details>
-
-| ![International Jazz Day](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Jazz Day](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_1080x1920.jpg) |andscape 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1080x1920.jpg) |me Reserve, Botswana](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_1080x1920.jpg) |andscape 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1080x1920.jpg) |me Reserve, Botswana](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg) |&h=224&rs=1&c=4) | ![Redwood National and State Parks, California](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
