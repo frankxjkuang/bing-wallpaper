@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250510
+
+> Minnesota State Capitol, St. Paul, Minnesota (© lavin photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> A grand and gilded sight—the heart of the Minnesota State Capitol is waiting to be explored. Home to the Minnesota Senate, the House of Representatives, the governor's office, and the attorney general's office, this building also houses a chamber for the Minnesota Supreme Court. Designed in the Beaux-Arts and American Renaissance styles, the Capitol integrates modern materials like iron, glass, and steel. The term 'Beaux-Arts' was not used when the Capitol was built, but the style gained popularity, partly due to the architecture showcased at the 1893 Chicago World's Columbian Exposition. Architect Cass Gilbert's design features a remarkable dome, which is inspired by St. Peter's Basilica in the Vatican City. Featured in today's image, it is the second-largest self-supported marble dome in the world.
+> 
+> This dome is built in three layers, each serving a different purpose. The outermost layer, made of Georgia marble, holds itself up by sheer weight alone. Inside, a brick-and-steel cone adds support and helps drain water to withstand Minnesota's harsh winters. The innermost layer is the beautifully decorated dome visible from the rotunda. Resting at its base, twelve marble eagles stand alongside the surrounding columns. Crowning the structure is an elegant stone lantern, topped with a gleaming gold-leaf-covered finial globe.
+> 
+> 
+
+</details>
+
+| ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg) |
+
 ### 20250509
 
 > Common chameleon (© Photostock-Israel/SPL/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Star Wars Day](https://cn.bing.com/th?id=OHR.SevilleNaboo_EN-US5814352031_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Star Wars Day](https://cn.bing.com/th?id=OHR.SevilleNaboo_EN-US5814352031_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SevilleNaboo_EN-US5814352031_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SevilleNaboo_EN-US5814352031_1080x1920.jpg) |
-
-### 20250503
-
-> The Milky Way framed by Double Arch in Arches National Park, Utah (© Adventure_Photo/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Ever wondered what Saturn's rings look like through a telescope? Or how astronomers spot distant galaxies? International Astronomy Day is the perfect time to find out. This annual event, first launched in 1973, is all about 'Bringing Astronomy to the People'—the official theme of Astronomy Day. From local parks to astronomy clubs, museums, and observatories, visitors can enjoy activities like telescope viewings, space talks, and even moon gravity simulators.
-> 
-> The event started when Doug Berger, an astronomer in California, decided to take telescopes to busy public spaces rather than wait for people to visit observatories. It worked—people got hooked on stargazing! Astronomy Day is celebrated worldwide, with events in countries like Canada, Sweden, and Argentina, among many others. Today is the day to explore the universe. Find a telescope and celebrate the cosmos!
-> 
-> 
-
-</details>
-
-| ![Happy International Astronomy Day!](https://cn.bing.com/th?id=OHR.ArchesGalaxy_EN-US5690613383_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy International Astronomy Day!](https://cn.bing.com/th?id=OHR.ArchesGalaxy_EN-US5690613383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArchesGalaxy_EN-US5690613383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArchesGalaxy_EN-US5690613383_1080x1920.jpg) |/cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_1080x1920.jpg) |920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1080x1920.jpg) |&h=224&rs=1&c=4) | ![Redwood National and State Parks, California](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SevilleNaboo_EN-US5814352031_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SevilleNaboo_EN-US5814352031_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1080x1920.jpg) |![World Penguin Day](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Penguin Day](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
