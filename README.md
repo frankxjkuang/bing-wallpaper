@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250514
+
+> Porto Flavia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Most ports rely on docks and cranes that extend into the shoreline. Porto Flavia on the Italian island of Sardinia took a completely different approach. This engineering marvel transformed a cliff into a gateway for Sardinia's ore industry. Mining in the area has a history dating back thousands of years, from the Phoenicians and Romans to the industrial boom in the 20th century. Lead, zinc, coal, sulfur, barium, and silver were extracted from these rugged hills, but transporting them was a logistical nightmare. Ore had to be hauled by cart, loaded onto small boats, and then transferred to larger ships—a slow, costly, and inefficient process.
+> 
+> In 1924, Italian engineer Cesare Vecelli revolutionized ore transport in the region. He designed Porto Flavia as a system of tunnels and silos carved into a limestone cliff, allowing ore to be loaded directly onto cargo ships. The facility featured two stacked tunnel levels. The upper level could store up to 11,000 short tons of ore in nine reservoirs. Gravity-fed chutes transported the ore to the lower level, where a conveyor belt loaded it directly onto waiting ships. The port, named after Vecelli's daughter, Flavia, remained in use until mining declined in the mid-20th century. Today, visitors can explore its tunnels, massive silos, and the platform where ships once docked—soaking in the same sea breeze that once carried Sardinia's minerals to markets worldwide.
+> 
+> 
+
+</details>
+
+| ![Porto Flavia, Sardinia, Italy](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Porto Flavia, Sardinia, Italy](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_1080x1920.jpg) |
+
 ### 20250513
 
 > Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![World Donkey Day](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_EN-US6439068828_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Donkey Day](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_EN-US6439068828_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_EN-US6439068828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_EN-US6439068828_1080x1920.jpg) |
-
-### 20250507
-
-> Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> If Dunluce Castle, pictured here, feels like something straight out of 'Game of Thrones,' that's because it is the real-life inspiration for Pyke, the seat of House Greyjoy. Built in the 13th century, this castle in County Antrim, Northern Ireland, was once a stronghold of the MacDonnells of Antrim, a branch of the Clan MacDonnell that played a key role in Irish politics from the 15th to the 17th century. The family's fortunes declined after the Battle of the Boyne in 1690, and with little money for upkeep, the castle gradually fell into ruin.
-> 
-> Dunluce Castle is steeped in legend, including the tale of its banshee. Maeve Roe, the only daughter of Lord MacQuillan, defied an arranged marriage and was locked away in the castle's turret. One night, as Maeve Roe and her lover fled by boat, a fierce storm struck, dragging them both to a watery grave. Locals say her ghostly cries still echo from the turret. Today, visitors can explore the windswept remains of this medieval fortress, imagining the feasts and battles that once took place here. And if the castle itself isn't impressive enough, the views over the Causeway Coast certainly are.
-> 
-> 
-
-</details>
-
-| ![Dunluce Castle, County Antrim, Northern Ireland](https://cn.bing.com/th?id=OHR.DunluceIreland_EN-US6236791025_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dunluce Castle, County Antrim, Northern Ireland](https://cn.bing.com/th?id=OHR.DunluceIreland_EN-US6236791025_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DunluceIreland_EN-US6236791025_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DunluceIreland_EN-US6236791025_1080x1920.jpg) |903741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Calacas_EN-US6430903741_1080x1920.jpg) |.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_EN-US6439068828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_EN-US6439068828_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
 > 
 
