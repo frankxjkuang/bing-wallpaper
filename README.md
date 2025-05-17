@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250515
+
+> Big Ben and the Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> London's most famous clock tower isn't called Big Ben—that name belongs to the massive 13.5-ton bell inside. The Great Clock has marked time for Londoners since 1859, ringing from what is now known as the Elizabeth Tower. In 2012, officials renamed the Clock Tower as Elizabeth Tower to honor Queen Elizabeth II during her Diamond Jubilee. At 316 feet tall, the tower is part of the grand Palace of Westminster. The clock has stopped only for maintenance and rare disruptions, such as bomb damage during each world war. Each of its four clock faces spans 22.5 feet, with the minute hands measuring 14 feet.
+> 
+> For centuries, the Palace of Westminster has stood at the heart of British politics. Originally built by Edward the Confessor in the 11th century, the palace has hosted Parliament since the 13th century. Previously a royal residence, it remained one until a fire in 1512 forced Henry VIII to relocate. A second devastating fire in 1834 destroyed most of the medieval complex, leading to the Gothic Revival design seen today. Architect Charles Barry led the reconstruction, while his assistant, Augustus Pugin, designed the intricate details. Covering about 27.8 acres, the palace houses the House of Commons, the House of Lords, and Westminster Hall, which dates back to 1097.
+> 
+> 
+
+</details>
+
+| ![Palace of Westminster, London, England](https://cn.bing.com/th?id=OHR.LondonParliament_EN-US7213846564_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Palace of Westminster, London, England](https://cn.bing.com/th?id=OHR.LondonParliament_EN-US7213846564_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LondonParliament_EN-US7213846564_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LondonParliament_EN-US7213846564_1080x1920.jpg) |
+
 ### 20250514
 
 > Porto Flavia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Chameleon Day](https://cn.bing.com/th?id=OHR.CuteChameleon_EN-US6483346105_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Chameleon Day](https://cn.bing.com/th?id=OHR.CuteChameleon_EN-US6483346105_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CuteChameleon_EN-US6483346105_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CuteChameleon_EN-US6483346105_1080x1920.jpg) |
-
-### 20250508
-
-> Donkeys in a valley near Rhyolite, Nevada (© Moelyn Photos/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On May 8 each year, donkeys get their moment in the sun—though they'd probably prefer the shade. World Donkey Day, established by Dr. Abdul Raziq Kakar, a livestock expert from Pakistan, is all about celebrating these hardworking animals. Donkeys have a reputation for being stubborn, but that's just a misunderstanding. They're actually cautious thinkers. Unlike horses, which might bolt at danger, donkeys take a moment to assess the situation before reacting. From ancient trade routes to modern farms, donkeys have been essential to transportation and agriculture. In many parts of the world, they're still the backbone of rural economies, carrying supplies across difficult terrain where vehicles can't go. Despite their vital role, donkeys face serious challenges. Many endure overwork, poor treatment, and abandonment.
-> 
-> Spanish explorers introduced donkeys, or burros, to North America in the 1500s. Today is a great excuse to visit Beatty, Nevada, where these mammals roam freely and interact with the townsfolk. While you're there, don't miss the Rhyolite ghost town, a relic of the gold rush era. Whether pulling carts, working in therapy programs, or just being adorable, these creatures deserve more appreciation. So, let's give them their due—and maybe even a bray of applause.
-> 
-> 
-
-</details>
-
-| ![World Donkey Day](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_EN-US6439068828_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Donkey Day](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_EN-US6439068828_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_EN-US6439068828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_EN-US6439068828_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CuteChameleon_EN-US6483346105_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
 > 
 
