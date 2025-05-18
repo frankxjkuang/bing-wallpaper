@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250516
+
+> Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Each year on the third Friday of May, people worldwide recognize Endangered Species Day—a day to celebrate, learn about, and act on behalf of at-risk wildlife. First launched in 2006 by the Endangered Species Coalition and conservationist David Robinson, this event inspires local and global efforts to protect threatened animals and their habitats.
+> 
+> The stunning bird featured in today's image is a great green macaw. Native to the tropical forests of Central and South America, this colorful parrot is critically endangered, with fewer than 1,000 individuals estimated to remain in the wild. These intelligent, social birds depend heavily on old-growth forests, particularly in places like Costa Rica, where they nest in almendro trees. Deforestation and habitat fragmentation remain their greatest threats. On May 16, let's join wildlife refuges, schools, and conservation groups in celebrating and supporting biodiversity. Every voice counts in protecting species that still have a fighting chance.
+> 
+> 
+
+</details>
+
+| ![Endangered Species Day](https://cn.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Day](https://cn.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_1080x1920.jpg) |
+
 ### 20250515
 
 > Big Ben and the Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg) |
-
-### 20250509
-
-> Common chameleon (© Photostock-Israel/SPL/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> One moment they're blending in, the next they're flaunting a new shade—chameleons really know how to color the world. But every May 9, these masters of disguise can't hide from the spotlight. International Chameleon Day celebrates their color-shifting skills, zippy tongues, and wild adaptations. Chameleons change colors to help regulate their body temperature, attract mates, and communicate with others. Specialized skin cells, including iridophores, reflect light to create dazzling displays. Some species turn bright to signal aggression, while others adopt subdued tones to avoid attention.
-> 
-> A chameleon's eyes move independently, scanning for predators or prey. With 360-degree vision and a lightning-fast sticky tongue, they're stealthy hunters and agile escape artists. Their zygodactylous feet (two toes forward, two toes back) and prehensile tails give them an iron grip, making them expert climbers in tricky treetops. So, today, whether you stand out or fade in, take a moment to appreciate these incredible creatures.
-> 
-> 
-
-</details>
-
-| ![International Chameleon Day](https://cn.bing.com/th?id=OHR.CuteChameleon_EN-US6483346105_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Chameleon Day](https://cn.bing.com/th?id=OHR.CuteChameleon_EN-US6483346105_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CuteChameleon_EN-US6483346105_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
 > 
 
