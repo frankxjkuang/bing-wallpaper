@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250517
+
+> A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)
+
+<details>
+<summary>Description</summary>
+
+> Pictured here is a spectacular view of a delta in the Venetian Lagoon, Italy. Spanning over 212 square miles, this lagoon is a rich mosaic of islands, mudflats, canals, and marshes, and it's one of the largest wetlands in the entire Mediterranean Basin. The lagoon isn't just a scenic wonder—it's a place steeped in history and innovation. Formed after the last Ice Age, it became a refuge for people fleeing invasions around the time of the fall of the Western Roman Empire in 476. In the centuries that followed, those early settlers began building what would eventually become the iconic city of Venice.
+> 
+> Today, the lagoon is still central to local life, supporting fishing, tourism, and even sustainable aquaculture. It's connected to the Adriatic Sea by three inlets and is famous for acqua alta, or 'high water,' when tides flood parts of Venice. From ancient refuge to modern marvel, the Venetian Lagoon is a reflection of how people and nature can shape a place together.
+> 
+> 
+
+</details>
+
+| ![A delta in the Venetian Lagoon, Italy](https://cn.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A delta in the Venetian Lagoon, Italy](https://cn.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_1080x1920.jpg) |
+
 ### 20250516
 
 > Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)
@@ -112,24 +131,7 @@
 
 | ![Happy Mother's Day!](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Mother's Day!](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |
-
-### 20250510
-
-> Minnesota State Capitol, St. Paul, Minnesota (© lavin photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> A grand and gilded sight—the heart of the Minnesota State Capitol is waiting to be explored. Home to the Minnesota Senate, the House of Representatives, the governor's office, and the attorney general's office, this building also houses a chamber for the Minnesota Supreme Court. Designed in the Beaux-Arts and American Renaissance styles, the Capitol integrates modern materials like iron, glass, and steel. The term 'Beaux-Arts' was not used when the Capitol was built, but the style gained popularity, partly due to the architecture showcased at the 1893 Chicago World's Columbian Exposition. Architect Cass Gilbert's design features a remarkable dome, which is inspired by St. Peter's Basilica in the Vatican City. Featured in today's image, it is the second-largest self-supported marble dome in the world.
-> 
-> This dome is built in three layers, each serving a different purpose. The outermost layer, made of Georgia marble, holds itself up by sheer weight alone. Inside, a brick-and-steel cone adds support and helps drain water to withstand Minnesota's harsh winters. The innermost layer is the beautifully decorated dome visible from the rotunda. Resting at its base, twelve marble eagles stand alongside the surrounding columns. Crowning the structure is an elegant stone lantern, topped with a gleaming gold-leaf-covered finial globe.
-> 
-> 
-
-</details>
-
-| ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
