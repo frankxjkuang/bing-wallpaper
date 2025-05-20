@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250518
+
+> 'The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> This International Museum Day, let's immerse ourselves in Raoul Dufy's 6,460 square-foot fresco. The 'La Fée Electricité' (The Spirit of Electricity) is housed at the Museum of Modern Art in Paris. This stunning artwork was created for the Pavilion of Light and Electricity at the 1937 International Exhibition of Art and Technology in Modern Life. The painting was inspired by the poem 'On the Nature of Things,' written by Roman poet and philosopher Lucretius. Raoul Dufy's work vividly depicts the evolution of electricity through two main themes: the history of electricity and its applications.
+> 
+> International Museum Day, celebrated annually on May 18, aims to raise awareness about the importance of museums in cultural exchange, enrichment, and mutual understanding. Since its inception in 1977, the event has grown to include over 37,000 museums across 158 countries. This year's theme, 'The Future of Museums in Rapidly Changing Communities,' invites us to reimagine the role of museums as essential connectors and drivers of innovation.
+> 
+> 
+
+</details>
+
+| ![International Museum Day](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Museum Day](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_1080x1920.jpg) |
+
 ### 20250517
 
 > A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)
@@ -112,24 +131,7 @@
 
 | ![An iris garden in Tokyo, Japan](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![An iris garden in Tokyo, Japan](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_1080x1920.jpg) |
-
-### 20250511
-
-> Leopard mother grooming her cub, Jao Reserve, Botswana (© Suzi Eszterhas/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> From warm hugs to wise guidance, moms give it all. Mother's Day is a time to honor the women who shape our lives, celebrating motherhood, unbreakable bonds, and their lasting impact on society. While the modern American version of this holiday began in the early 20th century, the celebration of motherhood has existed for centuries across cultures. Social activist Anna Jarvis led the inaugural Mother's Day worship service in 1908 at Andrews Methodist Episcopal Church in Grafton, West Virginia, now home to the International Mother's Day Shrine.
-> 
-> Perfectly capturing a touching moment of motherhood in the wild, today's image features a leopard mother and her cub. This bond extends beyond infancy, as mothers continue to nurture and support their young even after weaning. Leopard mothers share territory with their cubs, providing protection and guidance as they grow. At around nine weeks, cubs begin eating meat, and by three months, they start joining hunts, learning essential survival skills. By their first year, they can fend for themselves, but they typically stay with their mother for up to two years before venturing out on their own. In times of scarcity, mothers have been known to share their kills, ensuring their cubs remain nourished and strong. Their relationship embodies the essence of motherhood—teaching, protecting, and preparing the next generation for life ahead.
-> 
-> 
-
-</details>
-
-| ![Happy Mother's Day!](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Mother's Day!](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
