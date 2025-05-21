@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250519
+
+> Mount Hamilton, near San Jose, California (© Jeffrey Lewis/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Drive up Mount Hamilton just east of San Jose, California, and immerse yourself in stunning views and rich history. The 19-mile Mount Hamilton Road is loved by cyclists and motorcyclists for its long climbs and sparse traffic. Built in 1875-76, the road was designed to transport materials to the Lick Observatory, the world's first permanently occupied mountaintop observatory. On a clear day, you can see as far as Yosemite National Park or the Sierra Nevada from the 4,265-foot summit.
+> 
+> Several rare species are endemic to this area, such as the Hamilton jewelflower and the tule elk. On the slopes of the mountain, you might encounter golden eagle nesting sites. Whether you're drawn to the thrill of the winding road or the views, Mount Hamilton will connect you with nature.
+> 
+> 
+
+</details>
+
+| ![Mount Hamilton, near San Jose, California](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Hamilton, near San Jose, California](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_1080x1920.jpg) |
+
 ### 20250518
 
 > 'The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Torres del Paine National Park in Patagonia, Chile](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Torres del Paine National Park in Patagonia, Chile](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_1080x1920.jpg) |
-
-### 20250512
-
-> An iris garden in Tokyo, Japan (© M.Arai/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Flower viewing is a beloved tradition in Japan, with each season bringing its own natural spectacle. Just as the last sakura (cherry blossom) petals drift away, Tokyo's gardens start gearing up for their next big show: the iris bloom. Featured here is an iris garden in Tokyo. The iris is a flowering plant genus that has 310 recognized species, known for their bold and beautiful blossoms. The genus is named after the Greek word 'îris', meaning 'rainbow,' which is also the name of the Greek goddess of rainbows.
-> 
-> During the Edo Period (1603-1867), a fascination with breeding Japanese irises led to an explosion of new varieties. Today, there are over 2,000 types, which are planted in March and nurtured by tsuyu, Japan's rainy season. These vibrant flowers make their grand entrance in early June, marking the start of summer. Three beautiful iris species flourish in the country's gardens and wild landscapes: hanashōbu (Iris ensata), kakitsubata (Iris laevigata), and ayame (Iris sanguinea). Iris ensata is known as 'Japanese iris' outside Japan. With flowers this stunning, who wouldn't want to take a stroll through this floral paradise?
-> 
-> 
-
-</details>
-
-| ![An iris garden in Tokyo, Japan](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![An iris garden in Tokyo, Japan](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_1080x1920.jpg) |ing.com/th?id=OHR.IrisGarden_EN-US6778843108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
