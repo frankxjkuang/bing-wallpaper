@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250520
+
+> Honey bee on lavender flowers (© Anthony Brown/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Honey bees may be small, but without them, your grocery list would be a lot shorter. No more berries, avocados, or even coffee. Alongside butterflies, bats, and hummingbirds, bees pollinate nearly 90% of the world's wild flowering plants and over 35% of the food crops we rely on. World Bee Day, marked every May 20, honors these vital pollinators and celebrates Anton Janša, a pioneer of modern beekeeping. Janša saw bees as the noblest of insects, an idea now backed by science.
+> 
+> Unfortunately, bee populations are in danger. Pesticide exposure, habitat loss, and climate change are driving their numbers down, threatening both global food security and biodiversity. The good news is that small actions can make a big difference. Support local beekeepers, plant pollinator-friendly flowers, and avoid chemical pesticides. And the next time you stir honey into your tea, remember the tiny worker behind that golden spoonful and why protecting this buzzing species matters more than ever.
+> 
+> 
+
+</details>
+
+| ![World Bee Day](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bee Day](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1080x1920.jpg) |
+
 ### 20250519
 
 > Mount Hamilton, near San Jose, California (© Jeffrey Lewis/TANDEM Stills + Motion)
@@ -112,24 +131,7 @@
 
 | ![Porto Flavia, Sardinia, Italy](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Porto Flavia, Sardinia, Italy](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_1080x1920.jpg) |
-
-### 20250513
-
-> Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Wildlife roams freely in one of Chile's most stunning protected areas, where towering peaks and ancient glaciers shape the land. Established on this day in 1959, Torres del Paine National Park in Patagonia turns 66 years old today and covers over 448,000 acres. Originally called Grey Lake National Tourism Park, it was renamed in 1970 and later designated a UNESCO Biosphere Reserve in 1978. Its most recognizable feature—the three massive granite peaks known as the Torres—stands over 8,000 feet tall. These formations took shape through magma intrusion and uplift, followed by millions of years of glacial erosion, leaving behind the jagged spires seen today.
-> 
-> The park's lakes and rivers, fueled by melting ice, create a hydrological network that sustains its wildlife. Four major glaciers—Tyndall, Grey, Dickson, and Zapata—are fed by the Southern Patagonian Ice Field. Originating from Dickson Lake, the Paine River flows through various bodies of water, including Paine Lake, Nordenskjöld Lake, and Pehoé Lake. Wildlife thrives here, including pumas, endangered southern huemuls (south Andean deer), Chilean flamingos, and chimango caracaras. With grasslands, wetlands, and forests, the park supports a range of plant life, including lenga and Antarctic beech, and cushion plants that endure the harsh climate.
-> 
-> 
-
-</details>
-
-| ![Torres del Paine National Park in Patagonia, Chile](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Torres del Paine National Park in Patagonia, Chile](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_1080x1920.jpg) |48961_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Torres del Paine National Park in Patagonia, Chile](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_1080x1920.jpg) |ing.com/th?id=OHR.IrisGarden_EN-US6778843108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
