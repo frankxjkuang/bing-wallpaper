@@ -1,139 +1,137 @@
 ## bing wallpaper
 
-### 20250522
+### 20250524
 
-> Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)
+> 挪威尤通黑门山国家公园 (© Marisa Estivill/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> Life on Earth, from tiny bacteria to towering trees, is interconnected. International Day for Biological Diversity is about celebrating this web of life that keeps our planet thriving. Biodiversity ties into everything, from sustainable farming and clean water to climate action and disaster preparedness. A decline in biodiversity can increase the spread of zoonotic diseases—those transmitted from animals to humans. In contrast, protecting biodiversity strengthens our ability to prevent and respond to health crises like pandemics. Recognizing its crucial role for current and future generations, the United Nations observes this day each year to raise awareness and foster action for conserving the planet's biological treasures.
+> 今天是“欧洲公园日”，旨在庆祝那些塑造各国自然特性的国家公园和保护区。该纪念日由欧洲公园联盟于1999年创立，以纪念1909年在瑞典建立的九座欧洲最早的国家公园。该节日旨在推动保护自然栖息地、野生动植物及文化遗产的行动，同时鼓励可持续旅游与户外活动。
 > 
-> Today's image features Madagascar's Avenue of the Baobabs. In the Menabe region of western Madagascar, Grandidier's baobabs line the unpaved Road No. 8. Also known as giant baobabs, they are the largest and most famous of Madagascar's baobab species. Locally known as renala or reniala (mother of the forest), these trees are remnants of the lush tropical forests that once covered this island country. Now, they stand alone as survivors of widespread deforestation. Though the area was declared a natural monument in 2015, these magnificent trees still face threats from further deforestation, rice field runoff, and seasonal fires.
+> 挪威的尤通黑门山国家公园便是自然景观保护的典范之一。公园成立于1980年，面积超过400平方英里，拥有高山、冰川与深谷等多样的地貌特征。园内坐落着挪威最高的山峰群，包括北欧第一高峰加尔赫峰，海拔8100英尺。“尤通黑门山”意为“巨人的家园”，象征着其壮观的地貌及与北欧神话的深厚联系。公园内栖息着赤狐、北极狐、旅鼠和马鹿等动物，植物则包括多种能够适应极端环境的耐寒高山物种。著名的延德湖穿越园区，湖水因富含冰川沉积物而呈现醒目的绿色。该湖长约11英里，最宽处不足1英里，海拔约3280英尺。延德湖亦是著名的贝瑟根徒步路线的起点，这条路线每年吸引数千名游客，并因亨里克·易卜生的戏剧《培尔·金特》而闻名。
 > 
 > 
 
 </details>
 
-| ![International Day for Biological Diversity](https://cn.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biological Diversity](https://cn.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![欧洲公园日](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![欧洲公园日](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_1080x1920.jpg) |
+
+### 20250523
+
+> 停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔 (© Westend61/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 今天是世界海龟日成立的25周年纪念日。海龟和陆龟在多种环境中生存，被人们视为智慧与坚韧的象征。所有的陆龟都是海龟，但并非所有海龟都是陆龟。海龟体型较小，适合水中生活，而陆龟体型较大、较重，适应陆地生活。美国龟类救援组织（ATR）在每年5月23日设立世界海龟日，旨在提高公众保护龟类的意识。该组织已帮助约4000只海龟和陆龟进行康复、救助和重新安置，同时致力于保护它们及其逐渐消失的栖息地。
+> 
+> 今日图片展现的是亚马逊地区一幅迷人的现象：在厄瓜多尔亚马逊河区域，一只朱莉娅蝴蝶停在黄斑河龟鼻尖上。亚马逊地区的蝴蝶以饮用龟类眼泪而闻名，因为龟泪中富含蝴蝶稀缺的钠元素。黄斑河龟是南美洲最大的河龟之一。尽管这些河龟适应河流水域环境，但它们仍面临着来自人类、鸟类、蛇类、大型鱼类、蛙类和哺乳动物的种种威胁。在1960年代，它们曾大量被捕获用于美国宠物贸易，导致后来进口被严格限制。如今，美国存在人工繁殖的、可持续的黄斑河龟种群，有些在圈养条件下寿命可超过30年。
+> 
+> 
+
+</details>
+
+| ![世界海龟日](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界海龟日](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_1080x1920.jpg) |
+
+### 20250522
+
+> 日落时分的猴面包树，猴面包树大道，马达加斯加 (© Framalicious/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> 从微小的细菌到高大的树木，地球上的生命彼此相互关联。国际生物多样性日旨在庆祝这一维系地球繁荣的生命之网。生物多样性与日常生活息息相关，涵盖可持续农业、清洁用水、气候行动以及灾害防范等诸多领域。生物多样性的减少会增加动物传染病传播的风险（包括动物传染给人类的疾病）。相反，保护生物多样性则有助于增强我们预防和应对大流行病等健康危机的能力。联合国深知生物多样性对当前和未来世代的重要意义，因此每年都设立这个纪念日，提高公众意识并推动保护行动。
+> 
+> 今日图片展示的是马达加斯加的猴面包树大道。在马达加斯加西部梅纳贝地区，格兰迪迪埃猴面包树排列在未铺设的8号公路两侧，它们也被称为大猴面包树，是马达加斯加八种猴面包树中最大、最著名的品种。在当地，这些树木被称为“伦纳拉”或“伦尼亚拉”，意为“森林之母”。它们是这座岛国曾经茂密热带森林的遗迹，如今却因为广泛的森林砍伐而孤立地存活着。虽然该地区在2015年被宣布为自然保护区，但这些宏伟的树木依然面临着持续砍伐、稻田排水和季节性火灾等威胁。
+> 
+> 
+
+</details>
+
+| ![猴面包树大道](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![猴面包树大道](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_1080x1920.jpg) |
 
 ### 20250521
 
-> Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)
+> 杨家塘村茶园，松阳县，中国 (© feng xu/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Legend says that it began with a single leaf drifting into a pot of boiling water in ancient China. Centuries later, tea is the second-most consumed drink in the world (after water). Today is International Tea Day, a global nod to this timeless beverage, established by the United Nations to recognize tea's role in reducing poverty and supporting sustainable development. It's a day to honor both the drink and the people who are part of this industry.
+> 传说中，茶的故事始于中国古代：一片树叶偶然落入沸水中，开启了这段芳香之旅。几个世纪之后，茶已成为全球消费量第二的饮品（仅次于水）。今天是国际茶日，这是由联合国设立的全球性节日，旨在肯定茶在消除贫困和促进可持续发展方面的重要作用，也向茶产业中的劳动者们致以敬意。
 > 
-> Tea harvesting is a delicate craft, rooted in tradition and influenced by geography. From the misty hills of Zhejiang province in China, pictured here, to the rolling estates of Assam in India, the process differs. Green tea leaves are sun-dried or steamed to preserve their freshness, while oolong and black teas undergo oxidation to develop complex, bold flavors. The result is a rich spectrum of taste, color, and aroma. China, India, Kenya, and Sri Lanka lead global tea production. Each country offers its own signature style: China with pu-erh and green teas, India with robust black blends, Kenya with CTC teas, and Sri Lanka with floral Ceylon. In every cup, you can taste the story of its origin, shaped by the land's soil, altitude, and climate.
+> 茶叶采摘是一项精细的手艺，扎根于传统技艺，同时受到地理环境的深刻影响。从今日图片中所示的浙江省烟雾缭绕的丘陵，到印度阿萨姆邦起伏的茶园，每个产区的采摘与制作方式各不相同。绿茶通常通过晒干或蒸汽处理来保留其鲜嫩风味；而乌龙茶与红茶则经过部分或完全氧化，发展出更加复杂而浓郁的香气与口感。茶的颜色、香气与滋味，因此呈现出令人着迷的多样性。全球茶叶生产的领先国家包括中国、印度、肯尼亚和斯里兰卡，每个国家都有其代表性的茶类风格：中国以普洱和绿茶闻名，印度盛产浓厚的红茶拼配，肯尼亚主产CTC红茶，斯里兰卡则以花香型锡兰茶广受欢迎。每一杯茶都蕴含着其产地的故事，由当地的土壤、海拔和气候共同塑造而成。
 > 
 > 
 
 </details>
 
-| ![International Tea Day](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Tea Day](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![国际茶日](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际茶日](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1080x1920.jpg) |
 
 ### 20250520
 
-> Honey bee on lavender flowers (© Anthony Brown/Alamy)
+> 薰衣草上的蜜蜂 (© Anthony Brown/Alamy Stock Photo)
 
 <details>
 <summary>Description</summary>
 
-> Honey bees may be small, but without them, your grocery list would be a lot shorter. No more berries, avocados, or even coffee. Alongside butterflies, bats, and hummingbirds, bees pollinate nearly 90% of the world's wild flowering plants and over 35% of the food crops we rely on. World Bee Day, marked every May 20, honors these vital pollinators and celebrates Anton Janša, a pioneer of modern beekeeping. Janša saw bees as the noblest of insects, an idea now backed by science.
+> 蜜蜂身躯虽小，但没有它们，你的购物清单可能会少很多。不再有莓果、牛油果，甚至咖啡。蜜蜂与蝴蝶、蝙蝠和蜂鸟一起，为全球近 90% 的野生开花植物和超过 35% 的我们所依赖的农作物授粉。每年5月20日的世界蜜蜂日，正是为了向这些至关重要的传粉者致敬，并纪念现代养蜂业先驱安东·扬沙。扬沙曾称蜜蜂为“最高贵的昆虫”，这一观点如今也得到了科学的证实。
 > 
-> Unfortunately, bee populations are in danger. Pesticide exposure, habitat loss, and climate change are driving their numbers down, threatening both global food security and biodiversity. The good news is that small actions can make a big difference. Support local beekeepers, plant pollinator-friendly flowers, and avoid chemical pesticides. And the next time you stir honey into your tea, remember the tiny worker behind that golden spoonful and why protecting this buzzing species matters more than ever.
+> 遗憾的是，蜜蜂的数量正在减少。农药污染、栖息地流失和气候变化导致蜜蜂数量急剧减少，威胁全球的粮食安全与生物多样性。但好消息是，我们每个人的小小行动也能带来巨大的改变。你可以支持当地的养蜂人，种植对传粉者友好的植物，避免使用化学农药。当你下一次往茶里加蜂蜜时，请记得那勺金黄甜蜜背后辛勤工作的小小身影，并记得保护这种嗡嗡作响的物种，如今比以往任何时候都更加重要。
 > 
 > 
 
 </details>
 
-| ![World Bee Day](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bee Day](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![世界蜜蜂日](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界蜜蜂日](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_1080x1920.jpg) |
 
 ### 20250519
 
-> Mount Hamilton, near San Jose, California (© Jeffrey Lewis/TANDEM Stills + Motion)
+> 汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国 (© Jeffrey Lewis/TANDEM Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> Drive up Mount Hamilton just east of San Jose, California, and immerse yourself in stunning views and rich history. The 19-mile Mount Hamilton Road is loved by cyclists and motorcyclists for its long climbs and sparse traffic. Built in 1875-76, the road was designed to transport materials to the Lick Observatory, the world's first permanently occupied mountaintop observatory. On a clear day, you can see as far as Yosemite National Park or the Sierra Nevada from the 4,265-foot summit.
+> 驾车驶上加州湾区的汉密尔顿山，游客将沉浸于迷人的自然景观与丰富的历史之中。全长19英里的汉密尔顿山公路，是130号州道的一部分。凭借漫长的爬坡路段和稀少的车流量，该道路深受骑行与摩托车爱好者的喜爱。这条公路建于1875年至1876年，最初旨在为世界首个长期有人驻守的山顶天文台“利克天文台”运送建材而修建。在海拔4265英尺的山顶，天气晴朗时，甚至可以远望至优胜美地国家公园或内华达山脉。
 > 
-> Several rare species are endemic to this area, such as the Hamilton jewelflower and the tule elk. On the slopes of the mountain, you might encounter golden eagle nesting sites. Whether you're drawn to the thrill of the winding road or the views, Mount Hamilton will connect you with nature.
+> 该地区拥有一些特有的珍稀物种，例如汉密尔顿宝石花和图莱麋鹿。在山坡地带，还可能发现金雕的筑巢地。无论是因道路的蜿蜒曲折而吸引，还是为欣赏沿途美景而前往，汉密尔顿山都能使人感受到与自然环境之间的紧密联系。
 > 
 > 
 
 </details>
 
-| ![Mount Hamilton, near San Jose, California](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Hamilton, near San Jose, California](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![汉密尔顿山, 旧金山湾区, 加利福尼亚](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![汉密尔顿山, 旧金山湾区, 加利福尼亚](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_1080x1920.jpg) |
 
 ### 20250518
 
-> 'The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)
+> 加龙河对面的圣皮埃尔桥，图卢兹，法国 (© Image Professionals GmbH/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> This International Museum Day, let's immerse ourselves in Raoul Dufy's 6,460 square-foot fresco. The 'La Fée Electricité' (The Spirit of Electricity) is housed at the Museum of Modern Art in Paris. This stunning artwork was created for the Pavilion of Light and Electricity at the 1937 International Exhibition of Art and Technology in Modern Life. The painting was inspired by the poem 'On the Nature of Things,' written by Roman poet and philosopher Lucretius. Raoul Dufy's work vividly depicts the evolution of electricity through two main themes: the history of electricity and its applications.
+> 夕阳西下，加龙河畔的图卢兹展现出最迷人的景致——圣皮埃尔桥与雄伟的拉格拉夫圆顶倒映在水面上，相映成辉。这座连接粉色之城两岸的桥梁最初建于1849年，后分别在1927年和1987年进行重建，以适应现代需求。
 > 
-> International Museum Day, celebrated annually on May 18, aims to raise awareness about the importance of museums in cultural exchange, enrichment, and mutual understanding. Since its inception in 1977, the event has grown to include over 37,000 museums across 158 countries. This year's theme, 'The Future of Museums in Rapidly Changing Communities,' invites us to reimagine the role of museums as essential connectors and drivers of innovation.
+> 在它的对面，矗立于同名旧医院之上的拉格拉夫圆顶傲然俯瞰整个景观。这座19世纪的建筑杰作是图卢兹的象征，从远处就能看到它巍峨的轮廓。拉格拉夫医院曾是救治病患与贫困者的庇护所，见证了这座城市悠久的医学历史，而如今，它仍然是医学研究与创新的重要中心。
 > 
-> 
+> 图卢兹以其独特的文化遗产与鲜明的色彩，完美融合了历史与现代的韵律。只需一眼便能领略这片壮丽景致，理解为何加龙河始终是这座古城跳动的心脏。
 
 </details>
 
-| ![International Museum Day](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Museum Day](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![圣皮埃尔桥和拉格拉夫圆顶，图卢兹](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![圣皮埃尔桥和拉格拉夫圆顶，图卢兹](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_1080x1920.jpg) |
-
-### 20250517
-
-> A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)
-
-<details>
-<summary>Description</summary>
-
-> Pictured here is a spectacular view of a delta in the Venetian Lagoon, Italy. Spanning over 212 square miles, this lagoon is a rich mosaic of islands, mudflats, canals, and marshes, and it's one of the largest wetlands in the entire Mediterranean Basin. The lagoon isn't just a scenic wonder—it's a place steeped in history and innovation. Formed after the last Ice Age, it became a refuge for people fleeing invasions around the time of the fall of the Western Roman Empire in 476. In the centuries that followed, those early settlers began building what would eventually become the iconic city of Venice.
-> 
-> Today, the lagoon is still central to local life, supporting fishing, tourism, and even sustainable aquaculture. It's connected to the Adriatic Sea by three inlets and is famous for acqua alta, or 'high water,' when tides flood parts of Venice. From ancient refuge to modern marvel, the Venetian Lagoon is a reflection of how people and nature can shape a place together.
-> 
-> 
-
-</details>
-
-| ![A delta in the Venetian Lagoon, Italy](https://cn.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A delta in the Venetian Lagoon, Italy](https://cn.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_1080x1920.jpg) |
-
-### 20250516
-
-> Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Each year on the third Friday of May, people worldwide recognize Endangered Species Day—a day to celebrate, learn about, and act on behalf of at-risk wildlife. First launched in 2006 by the Endangered Species Coalition and conservationist David Robinson, this event inspires local and global efforts to protect threatened animals and their habitats.
-> 
-> The stunning bird featured in today's image is a great green macaw. Native to the tropical forests of Central and South America, this colorful parrot is critically endangered, with fewer than 1,000 individuals estimated to remain in the wild. These intelligent, social birds depend heavily on old-growth forests, particularly in places like Costa Rica, where they nest in almendro trees. Deforestation and habitat fragmentation remain their greatest threats. On May 16, let's join wildlife refuges, schools, and conservation groups in celebrating and supporting biodiversity. Every voice counts in protecting species that still have a fighting chance.
-> 
-> 
-
-</details>
-
-| ![Endangered Species Day](https://cn.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Day](https://cn.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_1080x1920.jpg) |.SardiniaFlavia_EN-US6889153804_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_1080x1920.jpg) |48961_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Torres del Paine National Park in Patagonia, Chile](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_1080x1920.jpg) |ing.com/th?id=OHR.IrisGarden_EN-US6778843108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_1080x1920.jpg) |ng.com/th?id=OHR.TorresChile_EN-US6814348961_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_1080x1920.jpg) |ing.com/th?id=OHR.IrisGarden_EN-US6778843108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
