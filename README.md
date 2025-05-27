@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250525
+
+> Butchart Gardens in Brentwood Bay, British Columbia, Canada (© 2009fotofriends/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> What was a depleted quarry over a century ago now transforms into a living color wheel each spring. Butchart Gardens in Brentwood Bay, British Columbia, knows how to put on a bloom show. In spring, roses scent the air, tulips line the paths, and something new blooms around every turn. But it didn't always look this way. In the early 1900s, Robert Pim Butchart operated a limestone quarry here. His wife, Jennie, saw potential in the depleted pit and began planting flowers in 1904. Now spread across 55 acres, the garden is home to more than 900 plant species—and each spring, almost 300,000 bulbs bloom.
+> 
+> While visiting the Butchart Gardens, take a stroll through the Sunken Garden, site of the former quarry, and explore the Japanese Garden, designed in 1906 by landscape architect Isaburo Kishida. If you stop by the Rose Garden, be sure to check out the Italian Garden—it replaced the family's tennis courts. There's more: ride the Rose Carousel, which comprises 30 hand-carved wooden animals. You'll also find quiet swings and bronze statues like the Three Sturgeons Fountain. Wrap it up with seasonal dishes or afternoon tea at the on-site dining room.
+> 
+> 
+
+</details>
+
+| ![Butchart Gardens in Brentwood Bay, British Columbia, Canada](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Butchart Gardens in Brentwood Bay, British Columbia, Canada](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_1080x1920.jpg) |
+
 ### 20250524
 
 > Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Mount Hamilton, near San Jose, California](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Hamilton, near San Jose, California](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_1080x1920.jpg) |
-
-### 20250518
-
-> 'The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This International Museum Day, let's immerse ourselves in Raoul Dufy's 6,460 square-foot fresco. The 'La Fée Electricité' (The Spirit of Electricity) is housed at the Museum of Modern Art in Paris. This stunning artwork was created for the Pavilion of Light and Electricity at the 1937 International Exhibition of Art and Technology in Modern Life. The painting was inspired by the poem 'On the Nature of Things,' written by Roman poet and philosopher Lucretius. Raoul Dufy's work vividly depicts the evolution of electricity through two main themes: the history of electricity and its applications.
-> 
-> International Museum Day, celebrated annually on May 18, aims to raise awareness about the importance of museums in cultural exchange, enrichment, and mutual understanding. Since its inception in 1977, the event has grown to include over 37,000 museums across 158 countries. This year's theme, 'The Future of Museums in Rapidly Changing Communities,' invites us to reimagine the role of museums as essential connectors and drivers of innovation.
-> 
-> 
-
-</details>
-
-| ![International Museum Day](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Museum Day](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_1080x1920.jpg) |jpg) |ng.com/th?id=OHR.TorresChile_EN-US6814348961_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_1080x1920.jpg) |ing.com/th?id=OHR.IrisGarden_EN-US6778843108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_1080x1920.jpg) |N-US6778843108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
