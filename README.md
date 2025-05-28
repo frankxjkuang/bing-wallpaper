@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250526
+
+> Arlington National Cemetery in Virginia (© Dennis Govoni/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today we're honoring Americans who gave their lives in military service. Originally known as Decoration Day, the tradition began in the late 1860s after the American Civil War. Communities held springtime tributes by decorating the graves of fallen Union soldiers with flowers. Over time, it expanded to commemorate all US military personnel who died in wars. Locals observe the day with ceremonies and parades across the country.
+> 
+> One of the most powerful symbols of this remembrance is Arlington National Cemetery in Virginia. The cemetery was established during the American Civil War on the grounds of Confederate General Robert E. Lee's former estate. The Union Army started burying its dead at Arlington in 1864, turning the land into a national cemetery. Currently more than 400,000 veterans and eligible family members are buried here. One of the most-visited sites in the cemetery is the Tomb of the Unknown Soldier, guarded 24/7 since 1937. It honors three unidentified service members with a solemn changing of the guard ceremony. Notable graves in the cemetery include former presidents William Howard Taft and John F. Kennedy. Spanning over 600 acres, it continues to hold funeral services every weekday.
+> 
+> 
+
+</details>
+
+| ![Memorial Day](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Memorial Day](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_1080x1920.jpg) |
+
 ### 20250525
 
 > Butchart Gardens in Brentwood Bay, British Columbia, Canada (© 2009fotofriends/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![World Bee Day](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bee Day](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1080x1920.jpg) |
-
-### 20250519
-
-> Mount Hamilton, near San Jose, California (© Jeffrey Lewis/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Drive up Mount Hamilton just east of San Jose, California, and immerse yourself in stunning views and rich history. The 19-mile Mount Hamilton Road is loved by cyclists and motorcyclists for its long climbs and sparse traffic. Built in 1875-76, the road was designed to transport materials to the Lick Observatory, the world's first permanently occupied mountaintop observatory. On a clear day, you can see as far as Yosemite National Park or the Sierra Nevada from the 4,265-foot summit.
-> 
-> Several rare species are endemic to this area, such as the Hamilton jewelflower and the tule elk. On the slopes of the mountain, you might encounter golden eagle nesting sites. Whether you're drawn to the thrill of the winding road or the views, Mount Hamilton will connect you with nature.
-> 
-> 
-
-</details>
-
-| ![Mount Hamilton, near San Jose, California](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Hamilton, near San Jose, California](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_1080x1920.jpg) |N-US6778843108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1080x1920.jpg) |) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
