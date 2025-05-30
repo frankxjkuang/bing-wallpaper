@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250528
+
+> Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> They slip through the water like furry torpedoes, roll on riverbanks like children on a playground, and hold hands while they nap. Otters are nature's playful pranksters, but their future isn't all smooth sailing. Many species are threatened by habitat destruction, pollution, and illegal wildlife trade. But it doesn't have to be that way. On World Otter Day—the last Wednesday of May—let's shine a light on the challenges these lovable mammals face and help protect their place in the wild.
+> 
+> Otters belong to the Mustelidae family, a diverse group that includes weasels, badgers, and minks, and are found on every continent except Australia and Antarctica. With 13 species worldwide, including the European otter, giant otter, and sea otter—pictured here—these semi-aquatic animals are adapted for life in water. Their webbed feet, dense fur, and strong tails make them excellent swimmers. Beyond their cuteness, otters play a vital role in ecosystems. As top predators in freshwater and coastal habitats, they help maintain healthy fish populations and keep aquatic environments balanced. Without otters, food chains could become unstable, leading to ecological problems. Whether it's through education, conservation efforts, or simply spreading the word, every action helps keep them afloat.
+> 
+> 
+
+</details>
+
+| ![World Otter Day](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Otter Day](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1080x1920.jpg) |
+
 ### 20250527
 
 > Mona Vale Rockpool, Sydney, Australia (© jamenpercy/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Day for Biological Diversity](https://cn.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biological Diversity](https://cn.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_1080x1920.jpg) |
-
-### 20250521
-
-> Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Legend says that it began with a single leaf drifting into a pot of boiling water in ancient China. Centuries later, tea is the second-most consumed drink in the world (after water). Today is International Tea Day, a global nod to this timeless beverage, established by the United Nations to recognize tea's role in reducing poverty and supporting sustainable development. It's a day to honor both the drink and the people who are part of this industry.
-> 
-> Tea harvesting is a delicate craft, rooted in tradition and influenced by geography. From the misty hills of Zhejiang province in China, pictured here, to the rolling estates of Assam in India, the process differs. Green tea leaves are sun-dried or steamed to preserve their freshness, while oolong and black teas undergo oxidation to develop complex, bold flavors. The result is a rich spectrum of taste, color, and aroma. China, India, Kenya, and Sri Lanka lead global tea production. Each country offers its own signature style: China with pu-erh and green teas, India with robust black blends, Kenya with CTC teas, and Sri Lanka with floral Ceylon. In every cup, you can taste the story of its origin, shaped by the land's soil, altitude, and climate.
-> 
-> 
-
-</details>
-
-| ![International Tea Day](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Tea Day](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1080x1920.jpg) |) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_1080x1920.jpg) |[Download portrait 4K](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1080x1920.jpg) |) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
