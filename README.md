@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250601
+
+> Barrier reef off the island of Grande Terre in the French overseas territory of New Caledonia (© Karsten Wrobel/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 'Life under the sea is better than anything they got up there,' Sebastian the crab once told Ariel. But are we doing enough to protect that underwater world? On June 1, we celebrate World Reef Awareness Day, a time to recognize the beauty—and fragility—of coral reef ecosystems. One magnificent example is the New Caledonian barrier reef, which wraps around Grande Terre, New Caledonia's largest island. At over 930 miles long, it's one of the longest continuous barrier reefs in the world. Its vast 9,300-square-mile lagoon is home to over 2,300 fish species, endangered dugongs, green sea turtles, and migrating humpback whales.
+> 
+> Reefs like this face growing threats—from pollution, mining runoff, rising ocean temperatures, and even harmful chemicals in some sunscreens. Increased tourism can also strain these fragile ecosystems. This World Reef Awareness Day, commit to reef-friendly choices: use reef-safe sunscreen, reduce plastic waste, and support conservation efforts in your community or online.
+> 
+> 
+
+</details>
+
+| ![World Reef Awareness Day](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Reef Awareness Day](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_1080x1920.jpg) |
+
 ### 20250531
 
 > Knuthöjdsmossen, a nature reserve in Sweden (© Sven Halling/DEEPOL/plainpicture)
@@ -112,26 +131,7 @@
 
 | ![Memorial Day](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Memorial Day](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_1080x1920.jpg) |
-
-### 20250525
-
-> Butchart Gardens in Brentwood Bay, British Columbia, Canada (© 2009fotofriends/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> What was a depleted quarry over a century ago now transforms into a living color wheel each spring. Butchart Gardens in Brentwood Bay, British Columbia, knows how to put on a bloom show. In spring, roses scent the air, tulips line the paths, and something new blooms around every turn. But it didn't always look this way. In the early 1900s, Robert Pim Butchart operated a limestone quarry here. His wife, Jennie, saw potential in the depleted pit and began planting flowers in 1904. Now spread across 55 acres, the garden is home to more than 900 plant species—and each spring, almost 300,000 bulbs bloom.
-> 
-> While visiting the Butchart Gardens, take a stroll through the Sunken Garden, site of the former quarry, and explore the Japanese Garden, designed in 1906 by landscape architect Isaburo Kishida. If you stop by the Rose Garden, be sure to check out the Italian Garden—it replaced the family's tennis courts. There's more: ride the Rose Carousel, which comprises 30 hand-carved wooden animals. You'll also find quiet swings and bronze statues like the Three Sturgeons Fountain. Wrap it up with seasonal dishes or afternoon tea at the on-site dining room.
-> 
-> 
-
-</details>
-
-| ![Butchart Gardens in Brentwood Bay, British Columbia, Canada](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Butchart Gardens in Brentwood Bay, British Columbia, Canada](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_1080x1920.jpg) |year—made famous by Henrik Ibsen's play 'Peer Gynt.'
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_1080x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_1080x1920.jpg) |year—made famous by Henrik Ibsen's play 'Peer Gynt.'
 > 
 > 
 
