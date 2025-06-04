@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250602
+
+> Skipper butterfly on a coneflower, Rockefeller State Park Preserve, New York (© Marianne A. Campolongo/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> This year, the first week of June marks National Garden Week—a time to celebrate the joy of gardening and the beauty it brings to our lives. Gardening not only connects us to nature but also boosts our mental health and physical well-being. Just spending time outdoors provides Vitamin D from the sun, which helps our bones stay strong and supports a healthy immune system.
+> 
+> Pictured here is a skipper butterfly taking a break from its quick, darting flight on a coneflower in New York's Rockefeller State Park Preserve. Native to North America, coneflowers and other members of the Echinacea genus are loved by both gardeners and pollinators for their hardy blooms and spiky centers. Whether you plant a few flowers or create a whole garden, this week is a perfect opportunity to get your hands in the dirt and enjoy the simple pleasures of nature.
+> 
+> 
+
+</details>
+
+| ![National Garden Week begins today](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Garden Week begins today](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_1080x1920.jpg) |
+
 ### 20250601
 
 > Barrier reef off the island of Grande Terre in the French overseas territory of New Caledonia (© Karsten Wrobel/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Mona Vale Rockpool, Sydney, Australia](https://cn.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mona Vale Rockpool, Sydney, Australia](https://cn.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_1080x1920.jpg) |
-
-### 20250526
-
-> Arlington National Cemetery in Virginia (© Dennis Govoni/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today we're honoring Americans who gave their lives in military service. Originally known as Decoration Day, the tradition began in the late 1860s after the American Civil War. Communities held springtime tributes by decorating the graves of fallen Union soldiers with flowers. Over time, it expanded to commemorate all US military personnel who died in wars. Locals observe the day with ceremonies and parades across the country.
-> 
-> One of the most powerful symbols of this remembrance is Arlington National Cemetery in Virginia. The cemetery was established during the American Civil War on the grounds of Confederate General Robert E. Lee's former estate. The Union Army started burying its dead at Arlington in 1864, turning the land into a national cemetery. Currently more than 400,000 veterans and eligible family members are buried here. One of the most-visited sites in the cemetery is the Tomb of the Unknown Soldier, guarded 24/7 since 1937. It honors three unidentified service members with a solemn changing of the guard ceremony. Notable graves in the cemetery include former presidents William Howard Taft and John F. Kennedy. Spanning over 600 acres, it continues to hold funeral services every weekday.
-> 
-> 
-
-</details>
-
-| ![Memorial Day](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Memorial Day](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_1080x1920.jpg) |075_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_1080x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_1080x1920.jpg) |year—made famous by Henrik Ibsen's play 'Peer Gynt.'
 > 
