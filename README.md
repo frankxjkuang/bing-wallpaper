@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250603
+
+> Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> If there's one place that brings the cycling spirit to life, it's the Netherlands. For World Bicycle Day, today's image captures bicycles lined up on a bridge in the Dutch city of Utrecht. More than half the journeys around the city happen on bikes, surpassing cars and other modes of travel. Nearly everyone lives within 15 minutes of essentials—and over 90% of residents can reach key places in just 10 minutes. This wasn't always the case. It was only in the 1970s, sparked by an oil crisis, rising car-related issues, and strong social movements, that the Netherlands started prioritizing bikes over cars. Since then, cities have embraced bike-friendly streets, dedicated lanes, and traffic lights for cyclists. And thanks to the famously flat landscape, cycling here feels as natural as walking.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![World Bicycle Day](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bicycle Day](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_1080x1920.jpg) |
+
 ### 20250602
 
 > Skipper butterfly on a coneflower, Rockefeller State Park Preserve, New York (© Marianne A. Campolongo/Alamy)
@@ -112,26 +131,7 @@
 
 | ![World Otter Day](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Otter Day](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1080x1920.jpg) |
-
-### 20250527
-
-> Mona Vale Rockpool, Sydney, Australia (© jamenpercy/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Ever wanted to swim in the ocean without accidentally drinking half of it? Enter Mona Vale Rockpool in Sydney, Australia—a watery paradox where the ocean is wild beyond the walls and well-behaved within its calm, contained edges. Perched in Sydney's Northern Beaches area—this rock pool feels more like a natural wonder than a human-made one. Built in the 1930s during the Depression, it was carved out of a natural rock shelf as part of an unemployment relief scheme. Upgraded over time, the pool is nearly 100 feet long and flanked by a smaller children's pool. The pools are free, open year-round, and cleaned regularly by both council crews and the ocean itself. So next time you are in Sydney, make a splash where the waves meet the wall. It's a shore thing.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Mona Vale Rockpool, Sydney, Australia](https://cn.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mona Vale Rockpool, Sydney, Australia](https://cn.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_1080x1920.jpg) |075_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_1080x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_1080x1920.jpg) |year—made famous by Henrik Ibsen's play 'Peer Gynt.'
 > 
