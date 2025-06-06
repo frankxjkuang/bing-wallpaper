@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250604
+
+> The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The island of Sardinia in Italy, with its rugged cliffs, secret beaches, and endless shades of blue, is undeniably a Mediterranean treasure. On the island's eastern coast lies Cala Luna, featured here—a beach in the Gulf of Orosei. Rising at the mouth of Rio Illune, this beach is at the end of the Codula di Luna canyon. It is a haven of golden sand, surrounded by white cliffs that rise more than 950 feet into the sky—perfect for rock climbing.
+> 
+> Here, the waters are shallow at first, before deepening into clear depths ideal for snorkeling, diving, and fishing. In the local Nuoro dialect, the word for 'luna,' Italian for 'moon', is rendered as 'elune,' a name that perfectly captures the essence of the beach's crescent shape.
+> 
+> 
+
+</details>
+
+| ![The beach at Cala Luna, Sardinia, Italy](https://cn.bing.com/th?id=OHR.CalaLuna_EN-US8760708047_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The beach at Cala Luna, Sardinia, Italy](https://cn.bing.com/th?id=OHR.CalaLuna_EN-US8760708047_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CalaLuna_EN-US8760708047_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CalaLuna_EN-US8760708047_1080x1920.jpg) |
+
 ### 20250603
 
 > Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)
@@ -112,18 +131,7 @@
 
 | ![Miravet, Catalonia, Spain](https://cn.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Miravet, Catalonia, Spain](https://cn.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_1080x1920.jpg) |
-
-### 20250528
-
-> Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> They slip through the water like furry torpedoes, roll on riverbanks like children on a playground, and hold hands while they nap. Otters are nature's playful pranksters, but their future isn't all smooth sailing. Many species are threatened by habitat destruction, pollution, and illegal wildlife trade. But it doesn't have to be that way. On World Otter Day—the last Wednesday of May—let's shine a light on the challenges these lovable mammals face and help protect their place in the wild.
-> 
-> Otters belong to the Mustelidae family, a diverse group that includes weasels, badgers, and minks, and are found on every continent except Australia and Antarctica. With 13 species worldwide, including the European otter, giant otter, and sea otter—pictured here—these semi-aquatic animals are adapted for life in water. Their webbed feet, dense fur, and strong tails make them excellent swimmers. Beyond their cuteness, otters play a vital role in ecosystems. As top predators in freshwater and coastal habitats, they help maintain healthy fish populations and keep aquatic environments balanced. Without otters, food chains could become unstable, leading to ecological problems. Whether it's through education, conservation efforts, or simply spreading the word, every action helps keep them afloat.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_1080x1920.jpg) |ion, conservation efforts, or simply spreading the word, every action helps keep them afloat.
 > 
 > 
 
