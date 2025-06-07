@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250605
+
+> Bottle-cap mural made by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> A global shoutout to the planet we all call home. On World Environment Day, the world hits pause to reflect and act for a greener future. Led by the United Nations Environment Programme, this day has been observed annually on June 5 since 1973. This year, hosted by the Republic of Korea, the event focuses on ending plastic pollution. Plastic contamination has crept into every part of the world—from oceans and forests to our own bodies in the form of microplastics. This year's campaign aims to spark change at every level of society.
+> 
+> And that brings us to today's image, a mural that's turning heads and making a difference in Guatire, Venezuela. Local artist Oscar Olivares created one of the world's largest eco-murals, made entirely from plastic bottle caps. The over 4,000-square-foot artwork is made of 400,000 bottle caps and depicts two blue macaws spreading their wings across a once-plain cement wall. Children, seniors, and everyone in between rolled up their sleeves to glue caps, piece by piece, converting waste into something meaningful. Through this project, Olivares not only crafted something beautiful, but also sparked conversations about sustainability and showed people the power of collective action. Because sometimes, a big change starts with something as small as a bottle cap.
+> 
+> 
+
+</details>
+
+| ![World Environment Day](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Environment Day](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_1080x1920.jpg) |
+
 ### 20250604
 
 > The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Little Pigeon River, Great Smoky Mountains, Tennessee](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Little Pigeon River, Great Smoky Mountains, Tennessee](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_1080x1920.jpg) |
-
-### 20250529
-
-> Miravet on the Ebro River, Tarragona, Catalonia, Spain (© Eloi_Omella/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Some towns live in the present. Miravet in Spain politely declined. Clinging to a cliff above the River Ebro, this Catalan village offers a living glimpse into the Middle Ages. A castle keeps its perch, potters spin like it's the 1300s, and the local ferry still refuses to join the motor age. Welcome to the village where even the river seems too relaxed to rush. As Spain's longest river, the Ebro winds through tales of Iberians, Romans, Moors, and Knights Templar. Locals once relied on its waters for trade, transport, and even defense. Today, you'll spot kayakers, ferry boats, and visitors drifting through the same currents where Crusaders once crossed.
-> 
-> Perched above the village, the Miravet Castle dates to the 12th century. Built by the Moors and later fortified by the French military order Knights Templar, this fortress was made to last. Thick walls, strategic towers, and a commanding view of the river made sure of that. With a population of less than 700, the village is a quiet maze of stone houses and narrow lanes, built to confuse invaders and, coincidentally, modern tourists. There's a former Jewish quarter, viewpoints that deliver postcard-worthy angles, and plenty of silence—broken only by birds, bells, and the occasional clay jug clinking into place.
-> 
-> 
-
-</details>
-
-| ![Miravet, Catalonia, Spain](https://cn.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Miravet, Catalonia, Spain](https://cn.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_1080x1920.jpg) |ion, conservation efforts, or simply spreading the word, every action helps keep them afloat.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_1080x1920.jpg) |ading the word, every action helps keep them afloat.
 > 
 > 
 
