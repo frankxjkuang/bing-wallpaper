@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250606
+
+> Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, on the anniversary of D-Day, we reflect on one of the most defining moments in modern history. On June 6, 1944, over 156,000 Allied troops landed on the beaches of Normandy, France, launching Operation Overlord, also known as D-Day. This complex assault, involving coordinated air, sea, and land forces, marked the beginning of the campaign to liberate Western Europe from Nazi control.
+> 
+> One of the key sites was Arromanches-les-Bains, pictured here. Though not among the initial landing beaches, this quiet coastal town became vital in the days that followed. It was here that the Allies built Mulberry harbor B, a massive, temporary port assembled in record time to offload troops, vehicles, and supplies. In the months after D-Day, more than 2.5 million men and 500,000 vehicles landed at Arromanches. Remnants of the harbor still lie offshore, a symbol of the ingenuity and planning behind the operation. Arromanches is also home to the Musée du Débarquement, the first museum dedicated to D-Day and the Battle of Normandy, a place where history lives on through stories of courage and resilience.
+> 
+> 
+
+</details>
+
+| ![Arromanches-les-Bains for the 81st anniversary of D-Day](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arromanches-les-Bains for the 81st anniversary of D-Day](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_1080x1920.jpg) |
+
 ### 20250605
 
 > Bottle-cap mural made by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Knuthöjdsmossen, a nature reserve in Sweden](https://cn.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Knuthöjdsmossen, a nature reserve in Sweden](https://cn.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_1080x1920.jpg) |
-
-### 20250530
-
-> Little Pigeon River, Great Smoky Mountains National Park, Tennessee (© GreenStock/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> You'll hear it before you see it. The steady ripple, the splash of trout, the distant laughter of hikers. That's the Little Pigeon River, threading its way through Great Smoky Mountains National Park in Tennessee. Long before tourists tubed it and fly fishers angled in it, this river was how people stayed afloat. The Cherokee tribe fished in it. Settlers built grist mills along it. Towns like Gatlinburg and Pigeon Forge grew up next to it. Even the river's name is a nod to the past—the passenger pigeon, once common in the area, vanished by the early 1900s.
-> 
-> The West, Middle, and East Prongs of the Little Pigeon come together to form a system that cuts through the Smokies and flows into the Pigeon River. Trails like the Gatlinburg Trail run alongside the river, offering flat paths with water views and shady rest spots. Some hikes, like the Ramsey Cascades trail, follow the river deeper into the park and reward you with impressive waterfalls. Black bears, salamanders, kingfishers, and the occasional river otter treat the Little Pigeon like their favorite watering hole. So, next time you're in the Smokies, don't just look up at the peaks, listen to the water below.
-> 
-> 
-
-</details>
-
-| ![Little Pigeon River, Great Smoky Mountains, Tennessee](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Little Pigeon River, Great Smoky Mountains, Tennessee](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_1080x1920.jpg) |ading the word, every action helps keep them afloat.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_1080x1920.jpg) |pg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_1080x1920.jpg) |ading the word, every action helps keep them afloat.
 > 
 > 
 
