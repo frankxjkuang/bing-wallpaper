@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250607
+
+> Summit of Pine Mountain, Angeles National Forest, California (© Matthew Kuhns/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Today, we celebrate the paths that connect us with nature and adventure. Angeles National Forest in Southern California is home to towering pines and rugged ridgelines, and hosts a stretch of the legendary Pacific Crest Trail (PCT). Winding over about 2,650 miles from Mexico to Canada, the PCT is the ultimate thru-hiking dream. Designated a National Scenic Trail in 1968, it traverses seven national parks, 25 national forests, and provides a unique lens through which to experience the dramatic landscapes of the American West. But you don't need to go the distance to enjoy its magic. In Southern California, portions of the trail through the San Gabriel Mountains offer great views and rewarding day hikes.
+> 
+> This year, National Trails Day isn't just about adventure, it's also about stewardship. These trails need our love and care to stay wild and walkable. So, bring a trash bag, join a cleanup drive, or just spread the word about keeping trails pristine and thriving for generations to come.
+> 
+> 
+
+</details>
+
+| ![National Trails Day](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Trails Day](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_1080x1920.jpg) |
+
 ### 20250606
 
 > Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)
@@ -112,32 +131,7 @@
 
 | ![World Reef Awareness Day](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Reef Awareness Day](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_1080x1920.jpg) |
-
-### 20250531
-
-> Knuthöjdsmossen, a nature reserve in Sweden (© Sven Halling/DEEPOL/plainpicture)
-
-<details>
-<summary>Description</summary>
-
-> Discover Knuthöjdsmossen, a nature reserve that covers almost 250 acres near the city of Hällefors, Sweden. This tranquil haven features a boardwalk that meanders through a bog, showcasing several small lakes, sand dunes, marshes, and pines.
-> 
-> The landscape is shaped by the last inland ice that melted around 10,000 years ago, leaving behind moraine and glacial river sand. The reserve's largest sand dune is the 33-foot-tall Stora Hälleforsdynen. The sand dunes are home to many unique insects. A particularly rare gray ant, Formica cinerea, is present in this area. Birdwatchers will be delighted by the diverse avian population, including the red-throated diver, northern lapwing, green sandpiper, and common goldeneye.
-> 
-> 
-
-</details>
-
-| ![Knuthöjdsmossen, a nature reserve in Sweden](https://cn.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Knuthöjdsmossen, a nature reserve in Sweden](https://cn.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_1080x1920.jpg) |pg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_1080x1920.jpg) |ading the word, every action helps keep them afloat.
-> 
-> 
-
-</details>
-
-| ![World Otter Day](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Otter Day](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_1080x1920.jpg) |.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Otter Day](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
