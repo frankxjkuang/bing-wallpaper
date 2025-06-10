@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250608
+
+> Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> You can't talk about life on Earth without talking about the ocean. This year, World Oceans Day is being celebrated in Nice, France, just ahead of the UN Ocean Conference starting tomorrow. Officially recognized by the United Nations since 2008, it began as an idea at the 1992 Global Forum, a parallel event at the United Nations Conference on Environment and Development. This year's theme is 'WONDER: Sustaining What Sustains Us.' It highlights how the ocean supports life as we know it—influencing weather, food chains, and economies.
+> 
+> Off the coast of Vancouver Island in Canada, Steller sea lions glide through chilly waters, as seen in today's image. These marine mammals are heavy—females average 580 pounds, while males are around 1,200 pounds. Males are noticeably larger than females and are known for their loud roars, thick necks, and flatter snouts. Their deep vocalizations include belching, growling, and snorting to warn others and communicate underwater. Males get loud to defend turf, while moms and pups use unique calls to find each other in a crowded rookery. Despite their size, they're preyed on by orcas and large sharks. These sea lions are considered near-threatened, with populations declining in parts of Alaska. Ocean conservation keeps them—and countless other mammals—afloat.
+> 
+> 
+
+</details>
+
+| ![World Oceans Day](https://cn.bing.com/th?id=OHR.StellarSeaLions_EN-US8941740506_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Oceans Day](https://cn.bing.com/th?id=OHR.StellarSeaLions_EN-US8941740506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StellarSeaLions_EN-US8941740506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StellarSeaLions_EN-US8941740506_1080x1920.jpg) |
+
 ### 20250607
 
 > Summit of Pine Mountain, Angeles National Forest, California (© Matthew Kuhns/TANDEM Stills + Motion)
@@ -112,28 +131,7 @@
 
 | ![National Garden Week begins today](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Garden Week begins today](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_1080x1920.jpg) |
-
-### 20250601
-
-> Barrier reef off the island of Grande Terre in the French overseas territory of New Caledonia (© Karsten Wrobel/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 'Life under the sea is better than anything they got up there,' Sebastian the crab once told Ariel. But are we doing enough to protect that underwater world? On June 1, we celebrate World Reef Awareness Day, a time to recognize the beauty—and fragility—of coral reef ecosystems. One magnificent example is the New Caledonian barrier reef, which wraps around Grande Terre, New Caledonia's largest island. At over 930 miles long, it's one of the longest continuous barrier reefs in the world. Its vast 9,300-square-mile lagoon is home to over 2,300 fish species, endangered dugongs, green sea turtles, and migrating humpback whales.
-> 
-> Reefs like this face growing threats—from pollution, mining runoff, rising ocean temperatures, and even harmful chemicals in some sunscreens. Increased tourism can also strain these fragile ecosystems. This World Reef Awareness Day, commit to reef-friendly choices: use reef-safe sunscreen, reduce plastic waste, and support conservation efforts in your community or online.
-> 
-> 
-
-</details>
-
-| ![World Reef Awareness Day](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Reef Awareness Day](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_1080x1920.jpg) |.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Otter Day](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_1080x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_1080x1920.jpg) |year—made famous by Henrik Ibsen's play 'Peer Gynt.'
 > 
