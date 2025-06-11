@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250609
+
+> Old City of Dubrovnik in Dalmatia, Croatia (© bluejayphoto/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> There is something mesmerizing about cities that wear their history on their sleeves—and Dubrovnik, Croatia, is one of them. Once known as the independent Republic of Ragusa, this city was a major maritime power and trading hub from the 14th to the 19th century. Situated in southern Dalmatia along the Adriatic Sea, its success was built on diplomacy and seafaring. The Walls of Dubrovnik, built between the 13th and 17th centuries, stretch for over 1.2 miles, with towers, forts, and bastions still standing strong. The current layout of the walls follows a city plan from 1292, when Dubrovnik was rebuilt after a fire under Venetian rule.
+> 
+> Inside these walls is the Old City—a compact grid of polished limestone streets, baroque churches, and centuries-old residences. Everything here, including the 15th-century Rector's Palace, Sponza Palace, and the Church of St. Blaise, reflects the city's independent past. The Franciscan Monastery, Europe's oldest still operating pharmacy, adds another layer of charm to this vintage place. Dubrovnik might seem familiar. That's because it has represented the cities of King's Landing and Qarth in 'Game of Thrones,' putting it on the pop culture map. It's not just a touristy location—it's a city that has been writing its own script for over a thousand years.
+> 
+> 
+
+</details>
+
+| ![Old City of Dubrovnik in Dalmatia, Croatia](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Old City of Dubrovnik in Dalmatia, Croatia](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_1080x1920.jpg) |
+
 ### 20250608
 
 > Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![World Bicycle Day](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bicycle Day](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_1080x1920.jpg) |
-
-### 20250602
-
-> Skipper butterfly on a coneflower, Rockefeller State Park Preserve, New York (© Marianne A. Campolongo/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> This year, the first week of June marks National Garden Week—a time to celebrate the joy of gardening and the beauty it brings to our lives. Gardening not only connects us to nature but also boosts our mental health and physical well-being. Just spending time outdoors provides Vitamin D from the sun, which helps our bones stay strong and supports a healthy immune system.
-> 
-> Pictured here is a skipper butterfly taking a break from its quick, darting flight on a coneflower in New York's Rockefeller State Park Preserve. Native to North America, coneflowers and other members of the Echinacea genus are loved by both gardeners and pollinators for their hardy blooms and spiky centers. Whether you plant a few flowers or create a whole garden, this week is a perfect opportunity to get your hands in the dirt and enjoy the simple pleasures of nature.
-> 
-> 
-
-</details>
-
-| ![National Garden Week begins today](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Garden Week begins today](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_1080x1920.jpg) | landscape 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_1080x1920.jpg) |year—made famous by Henrik Ibsen's play 'Peer Gynt.'
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_1080x1920.jpg) |year—made famous by Henrik Ibsen's play 'Peer Gynt.'
 > 
 > 
 
