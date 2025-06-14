@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250612
+
+> Chisos Mountains, Big Bend National Park, Texas (© Dean Fikar/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> They say everything's bigger in Texas—and Big Bend National Park has been living up to the slogan since forever. Efforts to preserve this 801,163-acre area of West Texas began in the 1930s and culminated in its official designation as a park on June 12, 1944. Big Bend remains one of the most remote and least-visited national parks in the country. It's not just one landscape, it's three: the Chihuahuan Desert, the Chisos Mountains (pictured here), and the Rio Grande. Big Bend sits on the US–Mexico border, and its history reflects that blend. Indigenous peoples, Spanish explorers, ranchers, miners, and modern travelers have all left their footprints. Petroglyphs, ruins, and old trails show the land's story began long before it became a park.
+> 
+> The park is home to over 1,200 species of plants, more than 450 species of birds, and a wide variety of mammals, reptiles, and amphibians. You might spot a roadrunner zipping across the dirt, or a bobcat silently slipping through the underbrush. Additionally, it has been designated as one of the best dark-sky parks in America, offering views of the Milky Way, planets, and constellations.
+> 
+> 
+
+</details>
+
+| ![Big Bend National Park in Texas turns 81](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Big Bend National Park in Texas turns 81](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_1080x1920.jpg) |
+
 ### 20250611
 
 > Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Arromanches-les-Bains for the 81st anniversary of D-Day](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arromanches-les-Bains for the 81st anniversary of D-Day](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_1080x1920.jpg) |
-
-### 20250605
-
-> Bottle-cap mural made by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> A global shoutout to the planet we all call home. On World Environment Day, the world hits pause to reflect and act for a greener future. Led by the United Nations Environment Programme, this day has been observed annually on June 5 since 1973. This year, hosted by the Republic of Korea, the event focuses on ending plastic pollution. Plastic contamination has crept into every part of the world—from oceans and forests to our own bodies in the form of microplastics. This year's campaign aims to spark change at every level of society.
-> 
-> And that brings us to today's image, a mural that's turning heads and making a difference in Guatire, Venezuela. Local artist Oscar Olivares created one of the world's largest eco-murals, made entirely from plastic bottle caps. The over 4,000-square-foot artwork is made of 400,000 bottle caps and depicts two blue macaws spreading their wings across a once-plain cement wall. Children, seniors, and everyone in between rolled up their sleeves to glue caps, piece by piece, converting waste into something meaningful. Through this project, Olivares not only crafted something beautiful, but also sparked conversations about sustainability and showed people the power of collective action. Because sometimes, a big change starts with something as small as a bottle cap.
-> 
-> 
-
-</details>
-
-| ![World Environment Day](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Environment Day](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_1080x1920.jpg) |N-US4200824377_1080x1920.jpg) | |) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_1080x1920.jpg) |m/th?id=OHR.OlivaresMural_EN-US8824492734_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_1080x1920.jpg) |N-US4200824377_1080x1920.jpg) | |) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
