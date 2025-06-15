@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250613
+
+> Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Not far from São Miguel Island in the Azores archipelago of Portugal, you'll find Vila Franca Islet. This uninhabited green islet sits quietly just south of the town of Vila Franca do Campo. Beneath its serene surface, this gem holds a lively past. First documented in 1537, around the time when settlers from São Miguel began expanding westward, Vila Franca Islet has played many roles throughout its history. It has served as a military fort, a port, a vineyard site, and even a lookout for whale-watching.
+> 
+> Once a volcanic crater, this islet is now a protected nature reserve teeming with unique marine life, including bird species like Bulwer's petrel, little egret, and sooty tern. The unique shape of this tiny island, sculpted by nature, makes it truly special. At its heart lies an almost perfectly circular lagoon, linked to the sea by a narrow channel called Boquete. Since the opening faces north toward São Miguel, it shields the lagoon from ocean waves and forms a calm natural harbor with a sandy beach. It's no wonder the spot is a favorite for swimmers: from June to October, ferries run daily between the town and the islet. Access is limited to 400 visitors a day—do you want to be one of them?
+> 
+> 
+
+</details>
+
+| ![Vila Franca Islet, São Miguel Island, Azores, Portugal](https://cn.bing.com/th?id=OHR.SanMiguelAzores_EN-US2785372768_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vila Franca Islet, São Miguel Island, Azores, Portugal](https://cn.bing.com/th?id=OHR.SanMiguelAzores_EN-US2785372768_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SanMiguelAzores_EN-US2785372768_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SanMiguelAzores_EN-US2785372768_1080x1920.jpg) |
+
 ### 20250612
 
 > Chisos Mountains, Big Bend National Park, Texas (© Dean Fikar/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Trails Day](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Trails Day](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_1080x1920.jpg) |
-
-### 20250606
-
-> Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, on the anniversary of D-Day, we reflect on one of the most defining moments in modern history. On June 6, 1944, over 156,000 Allied troops landed on the beaches of Normandy, France, launching Operation Overlord, also known as D-Day. This complex assault, involving coordinated air, sea, and land forces, marked the beginning of the campaign to liberate Western Europe from Nazi control.
-> 
-> One of the key sites was Arromanches-les-Bains, pictured here. Though not among the initial landing beaches, this quiet coastal town became vital in the days that followed. It was here that the Allies built Mulberry harbor B, a massive, temporary port assembled in record time to offload troops, vehicles, and supplies. In the months after D-Day, more than 2.5 million men and 500,000 vehicles landed at Arromanches. Remnants of the harbor still lie offshore, a symbol of the ingenuity and planning behind the operation. Arromanches is also home to the Musée du Débarquement, the first museum dedicated to D-Day and the Battle of Normandy, a place where history lives on through stories of courage and resilience.
-> 
-> 
-
-</details>
-
-| ![Arromanches-les-Bains for the 81st anniversary of D-Day](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arromanches-les-Bains for the 81st anniversary of D-Day](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_1080x1920.jpg) |m/th?id=OHR.OlivaresMural_EN-US8824492734_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_1080x1920.jpg) |N-US4200824377_1080x1920.jpg) | |) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_1080x1920.jpg) |US8824492734_1080x1920.jpg) |N-US4200824377_1080x1920.jpg) | |) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
