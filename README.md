@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250614
+
+> Flag display at the US Capitol, Washington, DC (© kmiragaya/Adobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> Every June 14, we celebrate national pride and the fabric that unites us—the American flag. It was only when Congress passed the Flag Resolution on June 14, 1777, that the Stars and Stripes design was adopted as the official flag of the United States. To commemorate this historic milestone, then-president Woodrow Wilson proclaimed June 14 as Flag Day in 1916—a tribute to the banner that came to represent America's identity, values, and unity.
+> 
+> The current 50-star design wasn't created by a professional, but by Robert Heft, a high school student in Lancaster, Ohio. He came up with the design for a high school history project where students had to update the national flag to recognize the new states of Alaska and Hawaii. Heft only got a B-minus on his creation. But after it was sent off to Washington, DC, and selected by President Eisenhower as the new national flag in 1959, he got that grade up to an A.
+> 
+> 
+
+</details>
+
+| ![Flag Day](https://cn.bing.com/th?id=OHR.FlagCapitolDC_EN-US1553861171_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Flag Day](https://cn.bing.com/th?id=OHR.FlagCapitolDC_EN-US1553861171_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlagCapitolDC_EN-US1553861171_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlagCapitolDC_EN-US1553861171_1080x1920.jpg) |
+
 ### 20250613
 
 > Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Oceans Day](https://cn.bing.com/th?id=OHR.StellarSeaLions_EN-US8941740506_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Oceans Day](https://cn.bing.com/th?id=OHR.StellarSeaLions_EN-US8941740506_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StellarSeaLions_EN-US8941740506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StellarSeaLions_EN-US8941740506_1080x1920.jpg) |
-
-### 20250607
-
-> Summit of Pine Mountain, Angeles National Forest, California (© Matthew Kuhns/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Today, we celebrate the paths that connect us with nature and adventure. Angeles National Forest in Southern California is home to towering pines and rugged ridgelines, and hosts a stretch of the legendary Pacific Crest Trail (PCT). Winding over about 2,650 miles from Mexico to Canada, the PCT is the ultimate thru-hiking dream. Designated a National Scenic Trail in 1968, it traverses seven national parks, 25 national forests, and provides a unique lens through which to experience the dramatic landscapes of the American West. But you don't need to go the distance to enjoy its magic. In Southern California, portions of the trail through the San Gabriel Mountains offer great views and rewarding day hikes.
-> 
-> This year, National Trails Day isn't just about adventure, it's also about stewardship. These trails need our love and care to stay wild and walkable. So, bring a trash bag, join a cleanup drive, or just spread the word about keeping trails pristine and thriving for generations to come.
-> 
-> 
-
-</details>
-
-| ![National Trails Day](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Trails Day](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_1080x1920.jpg) |US8824492734_1080x1920.jpg) |N-US4200824377_1080x1920.jpg) | |) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StellarSeaLions_EN-US8941740506_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StellarSeaLions_EN-US8941740506_1080x1920.jpg) |PacificCrestTrail_EN-US8903844619_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_1080x1920.jpg) |US8824492734_1080x1920.jpg) |N-US4200824377_1080x1920.jpg) | |) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
