@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250615
+
+> Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> For Father's Day, we're featuring a male lesser rhea (aka Darwin's rhea) with his chicks in Torres del Paine National Park, Patagonia, Chile. From the moment the chicks hatch, the male lesser rhea takes full charge—guiding them through the brush, communicating with gentle whistles, and sheltering them under his wings in times of danger or cold. Remarkably, he often adopts lost chicks, raising a mixed-age brood. For nearly 6 months, this bird father teaches and protects the chicks, with many staying close until maturity. Talk about going above and beyond for your kids!
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_1080x1920.jpg) |
+
 ### 20250614
 
 > Flag display at the US Capitol, Washington, DC (© kmiragaya/Adobe Stock)
@@ -112,18 +131,7 @@
 
 | ![Old City of Dubrovnik in Dalmatia, Croatia](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Old City of Dubrovnik in Dalmatia, Croatia](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_1080x1920.jpg) |
-
-### 20250608
-
-> Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> You can't talk about life on Earth without talking about the ocean. This year, World Oceans Day is being celebrated in Nice, France, just ahead of the UN Ocean Conference starting tomorrow. Officially recognized by the United Nations since 2008, it began as an idea at the 1992 Global Forum, a parallel event at the United Nations Conference on Environment and Development. This year's theme is 'WONDER: Sustaining What Sustains Us.' It highlights how the ocean supports life as we know it—influencing weather, food chains, and economies.
-> 
-> Off the coast of Vancouver Island in Canada, Steller sea lions glide through chilly waters, as seen in today's image. These marine mammals are heavy—females average 580 pounds, while males are around 1,200 pounds. Males are noticeably larger than females and are known for their loud roars, thick necks, and flatter snouts. Their deep vocalizations include belching, growling, and snorting to warn others and communicate underwater. Males get loud to defend turf, while moms and pups use unique calls to find each other in a crowded rookery. Despite their size, they're preyed on by orcas and large sharks. These sea lions are considered near-threatened, with populations declining in parts of Alaska. Ocean conservation keeps them—and countless other mammals—afloat.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_1080x1920.jpg) |n a crowded rookery. Despite their size, they're preyed on by orcas and large sharks. These sea lions are considered near-threatened, with populations declining in parts of Alaska. Ocean conservation keeps them—and countless other mammals—afloat.
 > 
 > 
 
