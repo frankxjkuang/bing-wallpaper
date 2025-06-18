@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250616
+
+> Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> They've got built-in helmets, a slow-and-steady vibe, and zero interest in your deadlines. Sea turtles, like this one photographed in Fernando de Noronha, Brazil, have been cruising Earth's oceans since before T-rex was a thing. Today, World Sea Turtle Day, is about recognizing these ancient navigators and the role they play in keeping our oceans in balance. Why June 16? The date marks the birthday of American conservationist Archie Carr, known as the father of sea turtle conservation. His work laid the foundation for understanding turtle behavior and fighting for their protection.
+> 
+> There are seven species of sea turtles gliding through the world's oceans: green, loggerhead, hawksbill, leatherback, Kemp's ridley, olive ridley, and flatback. Most of them are either endangered or vulnerable. These creatures often mistake floating plastic for jellyfish and eat it; fishing nets unintentionally trap and drown them; and rising temperatures are making most hatchlings female, which has a negative impact on biodiversity. So today, lend a hand to a turtle—or better yet, keep plastic out of the ocean. They've carried the weight of history on their backs; the least we can do is shoulder our share of the responsibility.
+> 
+> 
+
+</details>
+
+| ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |
+
 ### 20250615
 
 > Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Everglades National Park, Florida](https://cn.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Everglades National Park, Florida](https://cn.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_1080x1920.jpg) |
-
-### 20250609
-
-> Old City of Dubrovnik in Dalmatia, Croatia (© bluejayphoto/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> There is something mesmerizing about cities that wear their history on their sleeves—and Dubrovnik, Croatia, is one of them. Once known as the independent Republic of Ragusa, this city was a major maritime power and trading hub from the 14th to the 19th century. Situated in southern Dalmatia along the Adriatic Sea, its success was built on diplomacy and seafaring. The Walls of Dubrovnik, built between the 13th and 17th centuries, stretch for over 1.2 miles, with towers, forts, and bastions still standing strong. The current layout of the walls follows a city plan from 1292, when Dubrovnik was rebuilt after a fire under Venetian rule.
-> 
-> Inside these walls is the Old City—a compact grid of polished limestone streets, baroque churches, and centuries-old residences. Everything here, including the 15th-century Rector's Palace, Sponza Palace, and the Church of St. Blaise, reflects the city's independent past. The Franciscan Monastery, Europe's oldest still operating pharmacy, adds another layer of charm to this vintage place. Dubrovnik might seem familiar. That's because it has represented the cities of King's Landing and Qarth in 'Game of Thrones,' putting it on the pop culture map. It's not just a touristy location—it's a city that has been writing its own script for over a thousand years.
-> 
-> 
-
-</details>
-
-| ![Old City of Dubrovnik in Dalmatia, Croatia](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Old City of Dubrovnik in Dalmatia, Croatia](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_1080x1920.jpg) |n a crowded rookery. Despite their size, they're preyed on by orcas and large sharks. These sea lions are considered near-threatened, with populations declining in parts of Alaska. Ocean conservation keeps them—and countless other mammals—afloat.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_1080x1920.jpg) |wilight_EN-US9005720216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_1080x1920.jpg) |n a crowded rookery. Despite their size, they're preyed on by orcas and large sharks. These sea lions are considered near-threatened, with populations declining in parts of Alaska. Ocean conservation keeps them—and countless other mammals—afloat.
 > 
 > 
 
