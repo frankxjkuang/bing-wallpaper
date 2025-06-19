@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250617
+
+> Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Before you hit the beach, you'll hear it—the rustle of leaves in salty air, the creak of twisted trunks, the hush of an old world. Welcome to the maritime forest of Cumberland Island National Seashore on the southernmost stretch of Georgia's Atlantic coast. Salt spray, sandy soil, hurricanes? The trees here stand their ground. Live oaks bend but don't break. Saw palmettos crowd the ground like leafy bodyguards, while Spanish moss hangs from branches like nature's fringe. This maritime forest is one of the best remaining examples of this rare habitat in the United States. Thanks to its national seashore status, the island has been spared from the concrete creep seen on other coastlines.
+> 
+> What you see here is the forest as it's been for centuries—a few ruins from the days of Scottish American industrialist Thomas Carnegie and the occasional feral horses grazing through. The horses are descendants of animals left by settlers long gone, and they're now unofficial mascots of the area. Alongside them, you might spot armadillos digging through the undergrowth, woodpeckers hammering tree trunks, or raccoons engaging in tiny heists. Trails like the South End Trail or the Parallel Trail weave through dense foliage, sometimes giving glimpses of marshes or hidden historic sites. So next time you think of the coast, remember: the real drama isn't always on the shore. Sometimes, it's rooted just beyond the dunes.
+> 
+> 
+
+</details>
+
+| ![Maritime forest in Cumberland Island National Seashore, Georgia](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Maritime forest in Cumberland Island National Seashore, Georgia](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1080x1920.jpg) |
+
 ### 20250616
 
 > Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Greater flamingos, Lüderitz, Namibia](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Greater flamingos, Lüderitz, Namibia](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_1080x1920.jpg) |
-
-### 20250610
-
-> Aerial view of Everglades National Park, Florida (© Robert DelVecchio - OcuDrone/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Wouldn't it be great to see our reflection from above in this vast expanse of water? Everglades National Park, located in Florida, is the largest tropical wilderness in the United States, spanning more than 1.5 million acres. It protects the southern 20% of the original Everglades and is home to numerous rare and endangered species, including the Florida panther, American crocodile, and West Indian manatee. Often referred to as 'River of Grass,' the park's unique ecosystem, fed by a slow-moving river from Lake Okeechobee to Florida Bay, is a significant breeding ground for tropical wading birds. Everglades National Park is not only a national treasure but also an international one, recognized as a World Heritage Site, an International Biosphere Reserve, and a Wetland of International Importance.
-> 
-> The park also plays a crucial role in water conservation and flood control, as its wetlands serve as natural filters and buffers against storms. Efforts to preserve and restore the Everglades are ongoing, with numerous initiatives aimed at combating invasive species, improving water quality, and protecting wildlife habitats.
-> 
-> 
-
-</details>
-
-| ![Everglades National Park, Florida](https://cn.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Everglades National Park, Florida](https://cn.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_1080x1920.jpg) |wilight_EN-US9005720216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_1080x1920.jpg) |n a crowded rookery. Despite their size, they're preyed on by orcas and large sharks. These sea lions are considered near-threatened, with populations declining in parts of Alaska. Ocean conservation keeps them—and countless other mammals—afloat.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_1080x1920.jpg) |nd countless other mammals—afloat.
 > 
 > 
 
