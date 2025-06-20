@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250618
+
+> Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Pollinator Week is in full bloom! This year's celebration takes place from June 16 to 22. It shines a spotlight on the birds, bats, bees, butterflies, beetles, and other animals that help pollinate nearly 90% of flowering plants—including many of the fruits, vegetables, and nuts we love. Featured here is the Asian swallowtail, captured on a red spider lily. Found across Northeast Asia and even parts of Hawaii, this striking butterfly uses its keen color vision to find flowers, especially those from citrus families. While it is common and not currently threatened, its role as a pollinator is no less important.
+> 
+> This year's theme, 'Pollinators Weave Connections,' reminds us how pollinators shape both ecosystems and culture. Join in by planting pollinator-friendly flowers, avoiding pesticides, and helping protect these vital creatures to ensure a healthy future for both people and the planet.
+> 
+> 
+
+</details>
+
+| ![Pollinator Week](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pollinator Week](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1080x1920.jpg) |
+
 ### 20250617
 
 > Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Big Bend National Park in Texas turns 81](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Big Bend National Park in Texas turns 81](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_1080x1920.jpg) |
-
-### 20250611
-
-> Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> In Lüderitz, Namibia, these birds aren't just passing through—they're standing their ground. Literally. On one leg. These long-legged locals, the greater flamingos, bring a splash of pink to Namibia's windswept Atlantic coast. These birds are the largest of their kind, and they're not shy about showing off. Towering up to 59 inches tall with spoon-shaped bills and stilt-like legs, they're easy to spot.
-> 
-> That bubblegum pink hue? That's all diet. Flamingos feed on algae, crustaceans, and tiny invertebrates packed with carotenoids—the same pigments that make carrots orange. The more they eat, the pinker they get. In other words, they're what they eat, right down to the blush. In the air, flamingos are sleek flyers, cruising long distances in a V-formation. Their migration habits are still being studied, but it's clear they go where the wetlands flow—from inland salt pans to coastal sanctuaries, always in search of food and safe nesting zones.
-> 
-> 
-
-</details>
-
-| ![Greater flamingos, Lüderitz, Namibia](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Greater flamingos, Lüderitz, Namibia](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_1080x1920.jpg) |nd countless other mammals—afloat.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_1080x1920.jpg) |nd countless other mammals—afloat.
 > 
 > 
 
