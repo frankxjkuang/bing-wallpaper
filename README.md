@@ -2,128 +2,136 @@
 
 ### 20250621
 
-> 雾中莲花，中国佛山 (© huoguangliang/Getty Images)
+> Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 夏至既是二十四节气之一，“夏至”是盛夏的起点，这个季节也是荷花盛开的季节。今天图片中的美景位于广东佛山地区的盛开的荷花。晨曦在水面上织就一层丝丝薄纱。漫步岸边，仿佛置身于云雾缭绕的仙境，每一次呼吸都模糊了虚实的界限。这便是“朦胧”的精髓——这种诗意的朦胧感曾深深触动过中国古代文人，激发出无数颂扬莲花空灵之美的诗句。
+> World Giraffe Day, celebrated on June 21, is a perfect opportunity to learn about the Serengeti and its iconic Masai giraffes. This annual event, organized by the Giraffe Conservation Foundation, raises awareness about the declining giraffe population, which has decreased by nearly 30% over the past 35 years.
 > 
-> 
+> Masai giraffes, known for their distinctive, jagged blotches, are native to East Africa. Besides Kenya and Uganda, they roam the vast plains of Tanzania's Serengeti, a name derived from the Maasai word 'seringit,' meaning 'endless plains.' Today's image captures a tender moment between a Masai giraffe mother and her calf in this stunning landscape. With only approximately 117,000 giraffes remaining in the wild, the time to act is now. By supporting World Giraffe Day, you can help ensure the survival of these incredible creatures and contribute to conservation efforts that protect their natural habitat. Join the celebration and make a difference for the tallest land animal on Earth.
 > 
 > 
 
 </details>
 
-| ![莲花，佛山，中国](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![莲花，佛山，中国](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Giraffe Day](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Giraffe Day](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1080x1920.jpg) |
 
 ### 20250620
 
-> 一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚 (© Alberto Cassani/Getty Images)
+> Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)
 
 <details>
 <summary>Description</summary>
 
-> 今天我们介绍的是生活于塞伦盖蒂地区的马赛长颈鹿。它们以独特的锯齿状斑点而闻名，是东非的本土物种。除了肯尼亚和乌干达，马赛长颈鹿还广泛分布于坦桑尼亚辽阔的塞伦盖蒂平原。“塞伦盖蒂”一词源自马赛语“seringit”，意为“无边无际的平原”。如今日图片所示，一对母子马赛长颈鹿在这片壮阔的景色中彼此依偎，画面温馨动人。据估计，目前全球野生长颈鹿仅存约117000头，现在正是采取行动的关键时刻。通过支持“世界长颈鹿日”， 你可以为保护这些奇特生物及其自然栖息地贡献力量。加入这一年度庆祝活动，为地球上最高的陆生动物带来切实的改变。
+> Experience the magic of the summer solstice at Seljalandsfoss waterfall in Iceland. Today, the Northern Hemisphere celebrates the longest day of the year, when the sun reaches its highest point in the sky. Seljalandsfoss, located along Iceland's South Coast, offers a stunning backdrop for this astronomical event.
 > 
-> 
+> The 197-foot waterfall drops from cliffs that once marked the country's coastline. The cascading water is part of the Seljalandsa River, originating from the volcanic glacier Eyjafjallajökull. The volcano under the icecap last erupted in 2010, causing disruption for locals and air traffic. Visitors can walk behind the falls into a small cave, offering a unique perspective and making it a favorite spot for photographers. Floodlights illuminate the waterfall at night, creating a magical scene. If you are planning a vacation during the summer solstice, Seljalandsfoss is worth adding to your travel bucket list. Whether you're a nature enthusiast or a photography lover, this experience promises unforgettable memories.
 > 
 > 
 
 </details>
 
-| ![马赛长颈鹿，塞伦盖蒂，坦桑尼亚](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![马赛长颈鹿，塞伦盖蒂，坦桑尼亚](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Summer solstice](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Summer solstice](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_1080x1920.jpg) |
 
 ### 20250619
 
-> 圣卡塔琳娜州的海滩, 巴西 (© CaioCarvalhoPhotography/Getty Images)
+> Texas State Capitol in Austin (© joe daniel price/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 圣卡塔琳娜州位于巴西南部，其海岸线沿大西洋延展超过560公里，是一处汇聚历史演进与人类活动的多元文化地带。在欧洲航海者首次抵达前，图皮瓜拉尼族等原住民族群已在此定居，依赖捕鱼与农业生计，并与自然环境建立了密切联系。1529年，随着航海探险的发展，该地区被绘入地图，“圣卡塔琳娜”一名首次出现在世界地理文献中。
+> Every year on June 19, the United States marks Juneteenth National Independence Day, a federal holiday commemorating the end of slavery. On this day in 1865—two and a half years after the Emancipation Proclamation was issued—Union Major General Gordon Granger arrived in Galveston, Texas, with news that over 250,000 enslaved people were finally free. Texas was the last Confederate state to enforce freedom, making Juneteenth a powerful symbol of delayed justice and ultimate liberation.
 > 
-> 圣卡塔琳娜海岸的自然景观同样引人注目。这里拥有广阔沙滩、嶙峋海崖、静谧潟湖，以及绵延至海岸的大西洋沿岸森林生态系统。宽吻海豚在波浪间嬉戏，候鸟群体停驻于河口湿地，而海龟则每年按时回到保护区域筑巢产卵。在这片土地上，古老文化的遗迹与原生态自然共存，共同构成一个兼具历史厚度与生态多样性的独特区域。
+> Celebrations began in Texas as early as 1866, often centered around churches and community gatherings. Over time, Juneteenth grew to include parades, food festivals, and reflections on African American history and culture. In recognition of its historical and cultural significance, Juneteenth was officially recognized as a federal holiday in 2021, making it the first new federal holiday since Martin Luther King Jr. Day in 1983. Today, Juneteenth serves as a time to honor the resilience of those who endured slavery and to reflect on the ongoing journey toward equality.
 > 
-> 圣卡塔琳娜海岸的自然景观同样引人注目。这里拥有广阔沙滩、嶙峋海崖、静谧潟湖，以及绵延至海岸的大西洋沿岸森林生态系统。宽吻海豚在波浪间嬉戏，候鸟群体停驻于河口湿地，而海龟则每年按时回到保护区域筑巢产卵。在这片土地上，古老文化的遗迹与原生态自然共存，共同构成一个兼具历史厚度与生态多样性的独特区域。
+> 
 
 </details>
 
-| ![圣卡塔琳娜州的海滩, 巴西](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![圣卡塔琳娜州的海滩, 巴西](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Happy Juneteenth!](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Juneteenth!](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_1080x1920.jpg) |
 
 ### 20250618
 
-> 红花石蒜上的柑橘凤蝶 (© lzh/Getty Images)
+> Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 传粉者周正在如火如荼地展开！今年的庆祝时间为6月16日至22日，旨在关注那些为近90%开花植物完成授粉过程的重要传粉者，包括我们日常喜爱的水果、蔬菜和坚果等作物的“幕后功臣”。今日图片展示的是一只亚洲凤蝶，它正优雅地停驻在一朵鲜红的彼岸花上。亚洲凤蝶广泛分布于东北亚地区，甚至扩展至夏威夷部分区域。这类蝴蝶具有敏锐的色觉，擅长寻找花朵，尤其偏爱柑橘类植物。尽管该物种当前种群稳定、不被列为受威胁物种，它在自然授粉过程中的作用仍不可或缺。
+> Pollinator Week is in full bloom! This year's celebration takes place from June 16 to 22. It shines a spotlight on the birds, bats, bees, butterflies, beetles, and other animals that help pollinate nearly 90% of flowering plants—including many of the fruits, vegetables, and nuts we love. Featured here is the Asian swallowtail, captured on a red spider lily. Found across Northeast Asia and even parts of Hawaii, this striking butterfly uses its keen color vision to find flowers, especially those from citrus families. While it is common and not currently threatened, its role as a pollinator is no less important.
 > 
-> 今年授粉周的主题是“授粉者编织连接”。提醒我们：授粉者不仅塑造生态系统，也与人类文化息息相关。我们可以通过种植对授粉者友好的花卉、避免使用杀虫剂、保护这些重要的生命体，来加入这一行动，共同守护人类与地球的健康未来。
+> This year's theme, 'Pollinators Weave Connections,' reminds us how pollinators shape both ecosystems and culture. Join in by planting pollinator-friendly flowers, avoiding pesticides, and helping protect these vital creatures to ensure a healthy future for both people and the planet.
 > 
 > 
 
 </details>
 
-| ![传粉者](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![传粉者](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Pollinator Week](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pollinator Week](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1080x1920.jpg) |
 
 ### 20250617
 
-> 坎伯兰岛国家海岸的海滨森林，乔治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)
+> Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 在你踏上沙滩之前，便能听见海风中树叶的沙沙声、扭曲树干的嘎吱响，以及仿佛来自古老世界的低语。欢迎来到乔治亚州大西洋海岸最南端坎伯兰岛国家海岸的海滨森林。面对盐雾、沙土与飓风的挑战，这里的树木依旧坚定屹立。南方红橡树弯而不折，锯叶棕榈如同绿叶护卫般贴地而生，西班牙苔藓则似大自然的流苏垂挂于树枝之上。这片海洋森林是美国现存最完整的此类稀有生态系统之一。得益于坎伯兰岛被划定为国家海岸，其生态得以避免其他海岸地区常见的城市化侵蚀。
+> Before you hit the beach, you'll hear it—the rustle of leaves in salty air, the creak of twisted trunks, the hush of an old world. Welcome to the maritime forest of Cumberland Island National Seashore on the southernmost stretch of Georgia's Atlantic coast. Salt spray, sandy soil, hurricanes? The trees here stand their ground. Live oaks bend but don't break. Saw palmettos crowd the ground like leafy bodyguards, while Spanish moss hangs from branches like nature's fringe. This maritime forest is one of the best remaining examples of this rare habitat in the United States. Thanks to its national seashore status, the island has been spared from the concrete creep seen on other coastlines.
 > 
-> 你眼前所见的，正是数百年来始终如一的森林景貌，仅留下苏格兰裔美籍工业家托马斯·卡内基当年的遗迹，以及偶尔穿行林间的野马。这些马匹是早期定居者留下的家畜后代，如今已成为岛上的“非官方吉祥物”。 除了野马之外，这片森林中还栖息着丰富的野生动物，例如在灌木丛中挖掘的犰狳、在树干上啄击的啄木鸟，以及在林下活动的浣熊。沿着南端步道或平行步道等小径穿行于茂密的植被之中，行进途中不时可见沼泽地貌或隐藏的历史遗迹。所以，下次当你想到海岸时，请记住：真正的故事未必发生在海浪边，有时，它就深藏在沙丘之后。
+> What you see here is the forest as it's been for centuries—a few ruins from the days of Scottish American industrialist Thomas Carnegie and the occasional feral horses grazing through. The horses are descendants of animals left by settlers long gone, and they're now unofficial mascots of the area. Alongside them, you might spot armadillos digging through the undergrowth, woodpeckers hammering tree trunks, or raccoons engaging in tiny heists. Trails like the South End Trail or the Parallel Trail weave through dense foliage, sometimes giving glimpses of marshes or hidden historic sites. So next time you think of the coast, remember: the real drama isn't always on the shore. Sometimes, it's rooted just beyond the dunes.
 > 
 > 
 
 </details>
 
-| ![坎伯兰岛国家海岸的海滨森林，乔治亚州，美国](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![坎伯兰岛国家海岸的海滨森林，乔治亚州，美国](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Maritime forest in Cumberland Island National Seashore, Georgia](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Maritime forest in Cumberland Island National Seashore, Georgia](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1080x1920.jpg) |
 
 ### 20250616
 
-> 海龟，费尔南多·迪诺罗尼亚群岛，巴西 (© João Vianna/Getty Images)
+> Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 它们天生“头戴钢盔”，以从容节奏穿梭海洋，丝毫不受人类时间表的影响。以今日图片中拍摄于巴西费尔南多·迪诺罗尼亚群岛的海龟为例：这类生物早在霸王龙出现之前就已在地球的海洋中悠游。6月16日是“世界海龟日”，旨在唤起人们对这一古老物种及其在维持海洋生态平衡中所发挥作用的关注。该日期之所以被选定，是为纪念被誉为“海龟保护之父”的美国自然保护主义者阿奇·卡尔的生日。他的研究与倡导为现代海龟行为学研究和保护实践奠定了坚实基础。
+> They've got built-in helmets, a slow-and-steady vibe, and zero interest in your deadlines. Sea turtles, like this one photographed in Fernando de Noronha, Brazil, have been cruising Earth's oceans since before T-rex was a thing. Today, World Sea Turtle Day, is about recognizing these ancient navigators and the role they play in keeping our oceans in balance. Why June 16? The date marks the birthday of American conservationist Archie Carr, known as the father of sea turtle conservation. His work laid the foundation for understanding turtle behavior and fighting for their protection.
 > 
-> 目前，全球海洋中栖息着七种海龟：绿海龟、红海龟、玳瑁、棱皮龟、肯氏龟、欖蠵龟和平背龟。多数种群已处于濒危或易危状态。它们常将海中漂浮的塑料误认作水母吞食，导致胃肠道堵塞；亦时常被渔网意外缠绕致溺；同时，气候变暖也对其种群结构产生影响，高温会导致孵化出的幼龟几乎全部为雌性，从而威胁遗传多样性与繁殖稳定性。因此，今天，请为海龟尽一份力，请避免让塑料进入海洋。它们承载着亿万年的演化历史，而我们，至少应肩负起守护它们未来的一份责任。
+> There are seven species of sea turtles gliding through the world's oceans: green, loggerhead, hawksbill, leatherback, Kemp's ridley, olive ridley, and flatback. Most of them are either endangered or vulnerable. These creatures often mistake floating plastic for jellyfish and eat it; fishing nets unintentionally trap and drown them; and rising temperatures are making most hatchlings female, which has a negative impact on biodiversity. So today, lend a hand to a turtle—or better yet, keep plastic out of the ocean. They've carried the weight of history on their backs; the least we can do is shoulder our share of the responsibility.
 > 
 > 
 
 </details>
 
-| ![世界海龟日](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界海龟日](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |
 
 ### 20250615
 
-> 雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利 (© Ignacio Yufera/Minden Pictures)
+> Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 早在领带和贺卡成为父亲节的象征之前，这一节日的诞生源于一位女儿的悼念之情与不懈坚持。1907年，格雷斯·克莱顿因父亲在蒙农加哈矿难中遇难，提议举行一次纪念仪式，以缅怀事故中逝去的众多父亲。虽然当时并未广泛引起共鸣，但在1909年，索诺拉·斯马特·多德在华盛顿州斯波坎重新点燃了这一提议的火种。她希望纪念自己的父亲，一位在南北战争后独自抚养六个孩子的退伍军人。她的努力最终促成了我们今日所熟知的父亲节传统。
+> For Father's Day, we're featuring a male lesser rhea (aka Darwin's rhea) with his chicks in Torres del Paine National Park, Patagonia, Chile. From the moment the chicks hatch, the male lesser rhea takes full charge—guiding them through the brush, communicating with gentle whistles, and sheltering them under his wings in times of danger or cold. Remarkably, he often adopts lost chicks, raising a mixed-age brood. For nearly 6 months, this bird father teaches and protects the chicks, with many staying close until maturity. Talk about going above and beyond for your kids!
 > 
-> 为庆祝父亲节，今日图像呈现的是一只照顾雏鸟的小美洲鸵雄性，又称达尔文美洲鸵，它们分布于智利巴塔哥尼亚的托雷斯·德尔潘恩国家公园。小美洲鸵的繁殖方式独具特色：雄鸟与多只雌鸟交配后，带领它们在一个共同巢穴中轮流产卵。待雌鸟们完成产卵后离去，雄鸟则承担起全部育雏责任。雏鸟孵化后，雄鸟会带领它们穿越植被密布的灌木丛，以温柔的哨音引导其行动，并在天气寒冷或遭遇威胁时，用身体将它们庇护于羽翼之下。更令人惊讶的是，它们还会收养与自己无血缘关系、走失的雏鸟，并一同抚养。这些“子女”常常年幼不一，却在同一个“爸爸”的精心照料下茁壮成长。在长达近六个月的时间里，这位雄鸟“超级奶爸”将持续守护和教导这些幼鸟，直至它们成长为独立的个体。
+> 
+> 
+> 
+
+</details>
+
+| ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_1080x1920.jpg) |�奶爸”将持续守护和教导这些幼鸟，直至它们成长为独立的个体。
 > 
 > 
 
