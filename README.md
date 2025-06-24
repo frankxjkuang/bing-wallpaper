@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250622
+
+> Amazon rainforest, Ecuador (© Mark Fox/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> World Rainforest Day is not just a calendar event—it's a call to action. Established in 2017 by Rainforest Partnership—a nonprofit environmental organization—the day raises awareness about the importance of rainforests and mobilizes efforts to protect them. In the US, the occasion is marked with community tree plantings, school projects, and social media campaigns that highlight conservation successes. Many botanical gardens host special exhibits, while environmental groups run fundraising challenges to support on-the-ground protection efforts.
+> 
+> One notable region of the Amazon rainforest is in Ecuador. Although smaller than Brazil's share, it's considered one of the most biologically dense areas on Earth. It also shelters an extraordinary range of life—jaguars, macaws, black caimans, electric eels, and medicinal plants, many still unknown to science. This part of the rainforest is home to Indigenous groups, including uncontacted tribes whose territories are legally protected. But their way of life is increasingly threatened by industrial activities, especially oil drilling. World Rainforest Day reminds us that the protection of rainforests is possible through personal choices and collective action. From reducing paper use to supporting rainforest-friendly products, people can make tangible impacts that reach Ecuador's Amazon and beyond.
+> 
+> 
+
+</details>
+
+| ![World Rainforest Day](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rainforest Day](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1080x1920.jpg) |
+
 ### 20250621
 
 > Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)
@@ -112,40 +131,7 @@
 
 | ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |
-
-### 20250615
-
-> Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> For Father's Day, we're featuring a male lesser rhea (aka Darwin's rhea) with his chicks in Torres del Paine National Park, Patagonia, Chile. From the moment the chicks hatch, the male lesser rhea takes full charge—guiding them through the brush, communicating with gentle whistles, and sheltering them under his wings in times of danger or cold. Remarkably, he often adopts lost chicks, raising a mixed-age brood. For nearly 6 months, this bird father teaches and protects the chicks, with many staying close until maturity. Talk about going above and beyond for your kids!
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_1080x1920.jpg) |�奶爸”将持续守护和教导这些幼鸟，直至它们成长为独立的个体。
-> 
-> 
-
-</details>
-
-| ![父亲节快乐](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![父亲节快乐](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_1080x1920.jpg) |�机。在这里，时间仿佛放慢了脚步，灵魂得以舒展，而自然之美则以沉稳而恒久的姿态，讲述着群山间的故事。
-> 
-> 
-
-</details>
-
-| ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |�，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
