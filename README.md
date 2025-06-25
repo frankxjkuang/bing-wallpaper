@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250623
+
+> The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Berlin gets the buzz, Munich brings the beer, but what about Dresden, in eastern Germany? Dresden brings the story. The city, once called 'the Florence on the Elbe,' was nearly wiped off the map in 1945 during World War II. Since then, it has rebuilt itself into a place where modern museums, Baroque buildings, and riverside views share the same frame. Much of the city's oldest architecture can be found in the boroughs of Altstadt (Old Town) and Neustadt (New Town).
+> 
+> While you're here, consider strolling through Zwinger—a palatial complex—for a glimpse of royal history, or attending a performance at the Semperoper, where opera and architecture meet. The Old Masters Picture Gallery and the Green Vault are must-sees for art and history fans. The Elbe, stretching about 724 miles, flows through it all—wide, steady, and quietly powerful.
+> 
+> 
+
+</details>
+
+| ![The Elbe in Dresden, Germany](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Elbe in Dresden, Germany](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_1080x1920.jpg) |
+
 ### 20250622
 
 > Amazon rainforest, Ecuador (© Mark Fox/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Maritime forest in Cumberland Island National Seashore, Georgia](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Maritime forest in Cumberland Island National Seashore, Georgia](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1080x1920.jpg) |
-
-### 20250616
-
-> Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> They've got built-in helmets, a slow-and-steady vibe, and zero interest in your deadlines. Sea turtles, like this one photographed in Fernando de Noronha, Brazil, have been cruising Earth's oceans since before T-rex was a thing. Today, World Sea Turtle Day, is about recognizing these ancient navigators and the role they play in keeping our oceans in balance. Why June 16? The date marks the birthday of American conservationist Archie Carr, known as the father of sea turtle conservation. His work laid the foundation for understanding turtle behavior and fighting for their protection.
-> 
-> There are seven species of sea turtles gliding through the world's oceans: green, loggerhead, hawksbill, leatherback, Kemp's ridley, olive ridley, and flatback. Most of them are either endangered or vulnerable. These creatures often mistake floating plastic for jellyfish and eat it; fishing nets unintentionally trap and drown them; and rising temperatures are making most hatchlings female, which has a negative impact on biodiversity. So today, lend a hand to a turtle—or better yet, keep plastic out of the ocean. They've carried the weight of history on their backs; the least we can do is shoulder our share of the responsibility.
-> 
-> 
-
-</details>
-
-| ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1080x1920.jpg) |pg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |�，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
