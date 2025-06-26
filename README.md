@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250624
+
+> Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> This place wasn't built overnight—nature took its time to craft this masterpiece. What you see at Arches National Park, Utah, is the result of over 300 million years of erosion, uplift, and weathering. These arches were formed when salt beds were left behind by ancient seas. Over time, layers of sandstone cracked, shifted, and slowly wore away, revealing more than 2,000 natural arches. These formations are made mostly of Entrada and Navajo sandstone. The park was recognized as a national monument in 1929 and was later upgraded to national park status in 1971.
+> 
+> Delicate Arch, in Arches National Park, is one of the most recognizable natural arches in the American Southwest. Originally known by several other names—including 'the Chaps' and 'Salt Wash Arch'—it wasn't officially called Delicate Arch until the 1930s, after a scientific expedition described it as 'delicate-looking.' It is Utah's unofficial mascot, appearing on everything from state license plates to a United States postage stamp issued in 1996 to mark 100 years of Utah statehood. The arch is accessible via a moderately difficult hike that climbs over slickrock and skirts steep drop-offs. Whether you're a geology enthusiast or simply looking for a view worth the effort, Delicate Arch delivers.
+> 
+> 
+
+</details>
+
+| ![Delicate Arch, Arches National Park, Utah](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Delicate Arch, Arches National Park, Utah](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_1080x1920.jpg) |
+
 ### 20250623
 
 > The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Pollinator Week](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pollinator Week](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1080x1920.jpg) |
-
-### 20250617
-
-> Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Before you hit the beach, you'll hear it—the rustle of leaves in salty air, the creak of twisted trunks, the hush of an old world. Welcome to the maritime forest of Cumberland Island National Seashore on the southernmost stretch of Georgia's Atlantic coast. Salt spray, sandy soil, hurricanes? The trees here stand their ground. Live oaks bend but don't break. Saw palmettos crowd the ground like leafy bodyguards, while Spanish moss hangs from branches like nature's fringe. This maritime forest is one of the best remaining examples of this rare habitat in the United States. Thanks to its national seashore status, the island has been spared from the concrete creep seen on other coastlines.
-> 
-> What you see here is the forest as it's been for centuries—a few ruins from the days of Scottish American industrialist Thomas Carnegie and the occasional feral horses grazing through. The horses are descendants of animals left by settlers long gone, and they're now unofficial mascots of the area. Alongside them, you might spot armadillos digging through the undergrowth, woodpeckers hammering tree trunks, or raccoons engaging in tiny heists. Trails like the South End Trail or the Parallel Trail weave through dense foliage, sometimes giving glimpses of marshes or hidden historic sites. So next time you think of the coast, remember: the real drama isn't always on the shore. Sometimes, it's rooted just beyond the dunes.
-> 
-> 
-
-</details>
-
-| ![Maritime forest in Cumberland Island National Seashore, Georgia](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Maritime forest in Cumberland Island National Seashore, Georgia](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1080x1920.jpg) |&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1080x1920.jpg) |pg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
