@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250625
+
+> St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As the sun rises over the hills in Somerset, Glastonbury Festival comes alive, transforming a quiet part of South West England into one of the world's most famous music destinations. Since its humble beginnings in 1970, when tickets cost just one British pound, Glastonbury has grown into a cultural powerhouse, attracting over 200,000 fans each year. The festival is deeply rooted in the ideals of the hippie movement, the 1960s counterculture, and the free festival spirit that sparked its early days. From David Bowie and Elton John to Metallica and Billie Eilish, Glastonbury's stages have hosted performances that have defined generations. This year's festival runs from today through June 29, with The 1975, Neil Young, and Olivia Rodrigo topping the bill. Overlooking the event is Glastonbury Tor, pictured here, a hill crowned by the 14th-century St. Michael's Church Tower. The Tor is steeped in myth and legend, from ties to King Arthur's Avalon to ancient spiritual lore.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Glastonbury Festival begins](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Glastonbury Festival begins](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_1080x1920.jpg) |
+
 ### 20250624
 
 > Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Happy Juneteenth!](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Juneteenth!](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_1080x1920.jpg) |
-
-### 20250618
-
-> Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Pollinator Week is in full bloom! This year's celebration takes place from June 16 to 22. It shines a spotlight on the birds, bats, bees, butterflies, beetles, and other animals that help pollinate nearly 90% of flowering plants—including many of the fruits, vegetables, and nuts we love. Featured here is the Asian swallowtail, captured on a red spider lily. Found across Northeast Asia and even parts of Hawaii, this striking butterfly uses its keen color vision to find flowers, especially those from citrus families. While it is common and not currently threatened, its role as a pollinator is no less important.
-> 
-> This year's theme, 'Pollinators Weave Connections,' reminds us how pollinators shape both ecosystems and culture. Join in by planting pollinator-friendly flowers, avoiding pesticides, and helping protect these vital creatures to ensure a healthy future for both people and the planet.
-> 
-> 
-
-</details>
-
-| ![Pollinator Week](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pollinator Week](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1080x1920.jpg) |&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1080x1920.jpg) |pg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1080x1920.jpg) |pg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |�，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
