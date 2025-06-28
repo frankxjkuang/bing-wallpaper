@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250626
+
+> The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> You can lead a horse to water, but you can't make it drink—unless, of course, you're talking about Horse Head Rock, perched off the Sapphire Coast near Bermagui in New South Wales, Australia. This ancient formation, pictured here, seems as if nature itself has sculpted a mythical creature forever poised to drink from the sea. Estimated to be 500 million years old, the rock's uncanny resemblance to a horse bending its neck is the result of wind and wave erosion. As one of the region's oldest and most iconic landmarks, it attracts hikers, photographers, and nature lovers year-round. The best views are from the elevated track between Camel Rock and Murunna Point, while the more daring can scramble around from Camel Rock Surf Beach, though only safely at low tide.
+> 
+> Bermagui, about 240 miles south of Sydney, sits under Gulaga, also known as Mount Dromedary. Gulaga is a sacred mountain for the Yuin peoples, an Australian Aboriginal group, who call it Mother Mountain. This area is also home to other highlights, like Camel Rock, Wallaga Lake, the Bermagui Blue Pool, or Mimosa Rocks National Park. Wildlife is abundant too—keep an eye out for migrating whales, playful dolphins, and soaring sea eagles as you explore the coastline.
+> 
+> 
+
+</details>
+
+| ![Horse Head Rock, New South Wales, Australia](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Horse Head Rock, New South Wales, Australia](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1080x1920.jpg) |
+
 ### 20250625
 
 > St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Summer solstice](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Summer solstice](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_1080x1920.jpg) |
-
-### 20250619
-
-> Texas State Capitol in Austin (© joe daniel price/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Every year on June 19, the United States marks Juneteenth National Independence Day, a federal holiday commemorating the end of slavery. On this day in 1865—two and a half years after the Emancipation Proclamation was issued—Union Major General Gordon Granger arrived in Galveston, Texas, with news that over 250,000 enslaved people were finally free. Texas was the last Confederate state to enforce freedom, making Juneteenth a powerful symbol of delayed justice and ultimate liberation.
-> 
-> Celebrations began in Texas as early as 1866, often centered around churches and community gatherings. Over time, Juneteenth grew to include parades, food festivals, and reflections on African American history and culture. In recognition of its historical and cultural significance, Juneteenth was officially recognized as a federal holiday in 2021, making it the first new federal holiday since Martin Luther King Jr. Day in 1983. Today, Juneteenth serves as a time to honor the resilience of those who endured slavery and to reflect on the ongoing journey toward equality.
-> 
-> 
-
-</details>
-
-| ![Happy Juneteenth!](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Juneteenth!](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1080x1920.jpg) |pg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |�，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
