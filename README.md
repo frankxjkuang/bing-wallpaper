@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250627
+
+> Splendid leaf frog (© Jan Stria/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Don't let the name fool you—this frog isn't just leafing around. The splendid leaf frog (aka splendid tree frog) is a rainforest resident with a flair for the dramatic: neon legs, sticky feet, and a disappearing act. One minute it's a humble green leaf, the next it's a flash of color mid-leap, startling predators. This frog lives high in the canopies of Central and South America, especially in Costa Rica, Panama, and parts of Ecuador and Colombia. It spends its days snoozing on leaves and its nights foraging for insects. With vertical pupils and a golden glow, oversized eyes help this frog spot prey in the dark. Thanks to sticky toe pads and strong limbs, it can cling to branches and leaves like a pro, even in the canopy's slippery heights.
+> 
+> Females lay their eggs on leaves overhanging small pools or puddles. Once the eggs hatch, the tadpoles drop into the water below—no parental supervision required. With a dash of color, a splash of stealth, and a leap of faith, this species knows how to keep things un-frog-ettable.
+> 
+> 
+
+</details>
+
+| ![Splendid leaf frog](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Splendid leaf frog](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1080x1920.jpg) |
+
 ### 20250626
 
 > The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Giraffe Day](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Giraffe Day](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1080x1920.jpg) |
-
-### 20250620
-
-> Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)
-
-<details>
-<summary>Description</summary>
-
-> Experience the magic of the summer solstice at Seljalandsfoss waterfall in Iceland. Today, the Northern Hemisphere celebrates the longest day of the year, when the sun reaches its highest point in the sky. Seljalandsfoss, located along Iceland's South Coast, offers a stunning backdrop for this astronomical event.
-> 
-> The 197-foot waterfall drops from cliffs that once marked the country's coastline. The cascading water is part of the Seljalandsa River, originating from the volcanic glacier Eyjafjallajökull. The volcano under the icecap last erupted in 2010, causing disruption for locals and air traffic. Visitors can walk behind the falls into a small cave, offering a unique perspective and making it a favorite spot for photographers. Floodlights illuminate the waterfall at night, creating a magical scene. If you are planning a vacation during the summer solstice, Seljalandsfoss is worth adding to your travel bucket list. Whether you're a nature enthusiast or a photography lover, this experience promises unforgettable memories.
-> 
-> 
-
-</details>
-
-| ![Summer solstice](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Summer solstice](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_1080x1920.jpg) |---:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1080x1920.jpg) |stice_EN-US2057542769_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |�，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
