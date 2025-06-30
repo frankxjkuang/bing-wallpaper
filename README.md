@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250628
+
+> Rainbow flags at New York Pride (© Alan Schein/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In the early hours of June 28, 1969, a police raid at the Stonewall Inn in New York's Greenwich Village met unexpected resistance. Fed up with years of harassment, LGBTQIA+ patrons fought back. What followed was six days of unrest—and the start of a movement. Led in part by trans activists like Marsha P. Johnson and Sylvia Rivera, the uprising challenged not only police brutality but society's silence. Stonewall wasn't the beginning of queer existence, but it was the moment people said 'no more' loud enough to be heard worldwide. The first Pride marches came the next year, not as parties, but as protests. Thousands marched in New York City, Los Angeles, and Chicago to mark the anniversary of Stonewall. Holding signs and chanting for liberation, they demanded visibility, rights, and justice.
+> 
+> Our photo today, of course, is of the now-iconic rainbow flag that symbolizes LGBTQIA+ Pride. It's a lively, hopeful statement that promotes inclusivity and acceptance. Long may it wave.
+> 
+> 
+
+</details>
+
+| ![Pride 2025](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride 2025](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1080x1920.jpg) |
+
 ### 20250627
 
 > Splendid leaf frog (© Jan Stria/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![World Rainforest Day](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rainforest Day](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1080x1920.jpg) |
-
-### 20250621
-
-> Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> World Giraffe Day, celebrated on June 21, is a perfect opportunity to learn about the Serengeti and its iconic Masai giraffes. This annual event, organized by the Giraffe Conservation Foundation, raises awareness about the declining giraffe population, which has decreased by nearly 30% over the past 35 years.
-> 
-> Masai giraffes, known for their distinctive, jagged blotches, are native to East Africa. Besides Kenya and Uganda, they roam the vast plains of Tanzania's Serengeti, a name derived from the Maasai word 'seringit,' meaning 'endless plains.' Today's image captures a tender moment between a Masai giraffe mother and her calf in this stunning landscape. With only approximately 117,000 giraffes remaining in the wild, the time to act is now. By supporting World Giraffe Day, you can help ensure the survival of these incredible creatures and contribute to conservation efforts that protect their natural habitat. Join the celebration and make a difference for the tallest land animal on Earth.
-> 
-> 
-
-</details>
-
-| ![World Giraffe Day](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Giraffe Day](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1080x1920.jpg) |stice_EN-US2057542769_1080x1920.jpg) |---:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1080x1920.jpg) |stice_EN-US2057542769_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |�，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
