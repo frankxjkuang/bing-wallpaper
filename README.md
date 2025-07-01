@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250629
+
+> Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Every June 29, the International Day of the Tropics shines a light on the equator-hugging zone where the sun sticks around, and climate conversations get real. The tropics span a broad region between the Tropic of Cancer and the Tropic of Capricorn, including parts of Asia, Africa, Oceania, Central America, and South America. Nearly 40% of the global population lives in this band, which also hosts 80% of the world's biodiversity. It's rich in culture, nature, and history—but also under pressure from rising temperatures, deforestation, and fast-paced urban growth.
+> 
+> For a tropical tale with extra flavor, look no further than Pulau Ay, photographed here. Nutmeg was once one of the world's most sought-after commodities—and this tiny island in Indonesia's Banda Islands played a key role in its global trade. It once sparked global rivalries and deadly sea battles, influencing the geopolitical boundaries of the modern world. Today, Pulau Ay is a place where reefs shine, nutmeg continues to thrive, and history lingers in moss-covered forts. Visitors can snorkel along coral gardens, wander through spice groves, or sit with locals drying mace under the sun. So, today's mission? Celebrate, sure—but also reflect, learn, and act.
+> 
+> 
+
+</details>
+
+| ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_1080x1920.jpg) |
+
 ### 20250628
 
 > Rainbow flags at New York Pride (© Alan Schein/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![The Elbe in Dresden, Germany](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Elbe in Dresden, Germany](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_1080x1920.jpg) |
-
-### 20250622
-
-> Amazon rainforest, Ecuador (© Mark Fox/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> World Rainforest Day is not just a calendar event—it's a call to action. Established in 2017 by Rainforest Partnership—a nonprofit environmental organization—the day raises awareness about the importance of rainforests and mobilizes efforts to protect them. In the US, the occasion is marked with community tree plantings, school projects, and social media campaigns that highlight conservation successes. Many botanical gardens host special exhibits, while environmental groups run fundraising challenges to support on-the-ground protection efforts.
-> 
-> One notable region of the Amazon rainforest is in Ecuador. Although smaller than Brazil's share, it's considered one of the most biologically dense areas on Earth. It also shelters an extraordinary range of life—jaguars, macaws, black caimans, electric eels, and medicinal plants, many still unknown to science. This part of the rainforest is home to Indigenous groups, including uncontacted tribes whose territories are legally protected. But their way of life is increasingly threatened by industrial activities, especially oil drilling. World Rainforest Day reminds us that the protection of rainforests is possible through personal choices and collective action. From reducing paper use to supporting rainforest-friendly products, people can make tangible impacts that reach Ecuador's Amazon and beyond.
-> 
-> 
-
-</details>
-
-| ![World Rainforest Day](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rainforest Day](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1080x1920.jpg) |stice_EN-US2057542769_1080x1920.jpg) |---:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1080x1920.jpg) |stice_EN-US2057542769_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |�，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
