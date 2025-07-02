@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250630
+
+> Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Each scar on Earth from a meteorite impact tells a story—from the asteroid that wiped out the dinosaurs to the lesser-known craters that dot the planet. Asteroid Day highlights ongoing research into asteroids and the potential threats they pose. Started in 2015 and backed by the United Nations, this day marks the anniversary of the Tunguska event—a massive explosion that occurred in Siberia on June 30, 1908. This explosion flattened over 800 square miles of Siberian forest near the Tunguska River. The blast released energy equal to 10–15 megatons of TNT, a standard measure of explosive force. Since then, craters like Arizona's Barringer, Quebec's Manicouagan, and others have helped scientists study what happens when space rocks hit Earth.
+> 
+> Wolfe Creek Crater in Western Australia, pictured here, was created by a meteorite estimated to have weighed over 14,000 tons. The crater is about 2,871 feet in diameter and sits within Wolfe Creek Meteorite Crater National Park, a remote protected area. The park's flat plains and desert grasslands make the crater's rim especially visible. Today, visitors can walk along the rim and learn about its significance to both science and local Indigenous communities.
+> 
+> 
+
+</details>
+
+| ![Asteroid Day](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Asteroid Day](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_1080x1920.jpg) |
+
 ### 20250629
 
 > Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)
@@ -112,27 +131,7 @@
 
 | ![Delicate Arch, Arches National Park, Utah](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Delicate Arch, Arches National Park, Utah](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_1080x1920.jpg) |
-
-### 20250623
-
-> The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Berlin gets the buzz, Munich brings the beer, but what about Dresden, in eastern Germany? Dresden brings the story. The city, once called 'the Florence on the Elbe,' was nearly wiped off the map in 1945 during World War II. Since then, it has rebuilt itself into a place where modern museums, Baroque buildings, and riverside views share the same frame. Much of the city's oldest architecture can be found in the boroughs of Altstadt (Old Town) and Neustadt (New Town).
-> 
-> While you're here, consider strolling through Zwinger—a palatial complex—for a glimpse of royal history, or attending a performance at the Semperoper, where opera and architecture meet. The Old Masters Picture Gallery and the Green Vault are must-sees for art and history fans. The Elbe, stretching about 724 miles, flows through it all—wide, steady, and quietly powerful.
-> 
-> 
-
-</details>
-
-| ![The Elbe in Dresden, Germany](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Elbe in Dresden, Germany](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1080x1920.jpg) |stice_EN-US2057542769_1080x1920.jpg) |---:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |�，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |�，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
