@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250701
+
+> Fishing village of Tilting, Fogo Island, Newfoundland and Labrador, Canada (© FedevPhoto/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, Canada turns another year older. Canada Day is a nod to the moment when the country officially came together in 1867. What began as a confederation of Ontario, Quebec, New Brunswick, and Nova Scotia has grown into a nation of 10 provinces and 3 territories. Originally called Dominion Day, the name was changed to Canada Day in 1982—the same year the Constitution Act was signed, granting the country full control over its constitution. While Canada Day is not the country's 'Independence Day,' it's the closest thing to it. Canadians celebrate this holiday with fireworks, parades, concerts, and community events. Ottawa, the country's capital, hosts one of the biggest celebrations, featuring music and speeches on Parliament Hill.
+> 
+> On this day, it is hard to miss how the red and white houses in Tilting mirror the colors of the Canadian flag. Tilting, a village on Fogo Island in Newfoundland and Labrador, was settled by Irish immigrants in the 18th century. It remains a unique example of an Irish outport community that has preserved its cultural identity. The bright fishing sheds and homes weren't painted just for aesthetics; the hues once made buildings easier to spot during heavy fog or snowfall. These vivid colors also reflect the practical, resourceful life of the people who settled here.
+> 
+> 
+
+</details>
+
+| ![Happy Canada Day!](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Canada Day!](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1080x1920.jpg) |
+
 ### 20250630
 
 > Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Glastonbury Festival begins](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Glastonbury Festival begins](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_1080x1920.jpg) |
-
-### 20250624
-
-> Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This place wasn't built overnight—nature took its time to craft this masterpiece. What you see at Arches National Park, Utah, is the result of over 300 million years of erosion, uplift, and weathering. These arches were formed when salt beds were left behind by ancient seas. Over time, layers of sandstone cracked, shifted, and slowly wore away, revealing more than 2,000 natural arches. These formations are made mostly of Entrada and Navajo sandstone. The park was recognized as a national monument in 1929 and was later upgraded to national park status in 1971.
-> 
-> Delicate Arch, in Arches National Park, is one of the most recognizable natural arches in the American Southwest. Originally known by several other names—including 'the Chaps' and 'Salt Wash Arch'—it wasn't officially called Delicate Arch until the 1930s, after a scientific expedition described it as 'delicate-looking.' It is Utah's unofficial mascot, appearing on everything from state license plates to a United States postage stamp issued in 1996 to mark 100 years of Utah statehood. The arch is accessible via a moderately difficult hike that climbs over slickrock and skirts steep drop-offs. Whether you're a geology enthusiast or simply looking for a view worth the effort, Delicate Arch delivers.
-> 
-> 
-
-</details>
-
-| ![Delicate Arch, Arches National Park, Utah](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Delicate Arch, Arches National Park, Utah](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |�，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_1080x1920.jpg) |HR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |�，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
