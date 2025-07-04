@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250702
+
+> Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> That bright fish hiding in the anemone? That's the spine-cheeked anemonefish, or the maroon clownfish, and it is not just a cute creature. Native to the Indo-Pacific, from western Indonesia to Taiwan and the Great Barrier Reef, this species lives on the edges of coral reefs. It is easily distinguished by the spine extending from each cheek—hence the name. Groups of spine-cheeked anemonefish form around a single dominant female, and if she disappears, the top male steps up—literally changing sex to take her place. Spine-cheeked anemonefish thrive in warm, shallow waters and stick close to their chosen sea anemone.
+> 
+> The closest marine companion of a spine-cheeked anemonefish is the bubble-tip anemone, as seen in the image. These anemones don't all look alike—their appearances often vary with age, depth, and whether they host anemonefish. This species offers the perfect mix of cover and protection. In return, the fish defend the anemone from threats and remove debris from its surface. It's a stable, symbiotic bond that benefits both partners and keeps them closely tied to the same patch of reef.
+> 
+> 
+
+</details>
+
+| ![Spine-cheeked anemonefish in Milne Bay, Papua New Guinea](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spine-cheeked anemonefish in Milne Bay, Papua New Guinea](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_1080x1920.jpg) |
+
 ### 20250701
 
 > Fishing village of Tilting, Fogo Island, Newfoundland and Labrador, Canada (© FedevPhoto/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Horse Head Rock, New South Wales, Australia](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Horse Head Rock, New South Wales, Australia](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1080x1920.jpg) |
-
-### 20250625
-
-> St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As the sun rises over the hills in Somerset, Glastonbury Festival comes alive, transforming a quiet part of South West England into one of the world's most famous music destinations. Since its humble beginnings in 1970, when tickets cost just one British pound, Glastonbury has grown into a cultural powerhouse, attracting over 200,000 fans each year. The festival is deeply rooted in the ideals of the hippie movement, the 1960s counterculture, and the free festival spirit that sparked its early days. From David Bowie and Elton John to Metallica and Billie Eilish, Glastonbury's stages have hosted performances that have defined generations. This year's festival runs from today through June 29, with The 1975, Neil Young, and Olivia Rodrigo topping the bill. Overlooking the event is Glastonbury Tor, pictured here, a hill crowned by the 14th-century St. Michael's Church Tower. The Tor is steeped in myth and legend, from ties to King Arthur's Avalon to ancient spiritual lore.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Glastonbury Festival begins](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Glastonbury Festival begins](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_1080x1920.jpg) |HR.SeaTurtleBrazil_EN-US1789042400_1080x1920.jpg) |�，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![多洛米蒂山脉五塔峰，意大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1080x1920.jpg) |大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
