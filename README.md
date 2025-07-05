@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250703
+
+> Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Nestled in the northern Gulf Coast of Florida, is Rainbow Springs State Park. This area has served as a natural resource for humans and animals for centuries, with the Rainbow River—flowing through the park—playing a major role. The gently winding waterway is fed by Rainbow Springs, one of Florida's largest springs. The water that bubbles up here comes from a 770-square-mile area and eventually flows into the Withlacoochee River.
+> 
+> The Rainbow River's transparent waters are perfect for swimming and snorkeling, and they maintain a constant temperature of 72°F year-round. The park's history dates to the late 1880s, when hard rock phosphate was discovered in the area, leading to a boomtown era. This period saw the rapid growth of a small community called Juliette near the springs, driven by the phosphate mining industry. During the 1960s, the park emerged as a popular tourist destination, featuring glass-bottom boat rides, a monorail system, and even a rodeo. Today, visitors can explore the ornamental gardens, waterfalls, and walking paths, and enjoy the diverse wildlife that calls Rainbow Springs home.
+> 
+> 
+
+</details>
+
+| ![Rainbow River, Rainbow Springs State Park, Florida](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rainbow River, Rainbow Springs State Park, Florida](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_1080x1920.jpg) |
+
 ### 20250702
 
 > Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Splendid leaf frog](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Splendid leaf frog](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1080x1920.jpg) |
-
-### 20250626
-
-> The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> You can lead a horse to water, but you can't make it drink—unless, of course, you're talking about Horse Head Rock, perched off the Sapphire Coast near Bermagui in New South Wales, Australia. This ancient formation, pictured here, seems as if nature itself has sculpted a mythical creature forever poised to drink from the sea. Estimated to be 500 million years old, the rock's uncanny resemblance to a horse bending its neck is the result of wind and wave erosion. As one of the region's oldest and most iconic landmarks, it attracts hikers, photographers, and nature lovers year-round. The best views are from the elevated track between Camel Rock and Murunna Point, while the more daring can scramble around from Camel Rock Surf Beach, though only safely at low tide.
-> 
-> Bermagui, about 240 miles south of Sydney, sits under Gulaga, also known as Mount Dromedary. Gulaga is a sacred mountain for the Yuin peoples, an Australian Aboriginal group, who call it Mother Mountain. This area is also home to other highlights, like Camel Rock, Wallaga Lake, the Bermagui Blue Pool, or Mimosa Rocks National Park. Wildlife is abundant too—keep an eye out for migrating whales, playful dolphins, and soaring sea eagles as you explore the coastline.
-> 
-> 
-
-</details>
-
-| ![Horse Head Rock, New South Wales, Australia](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Horse Head Rock, New South Wales, Australia](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1080x1920.jpg) |大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1080x1920.jpg) |S2494437641_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1080x1920.jpg) |大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
