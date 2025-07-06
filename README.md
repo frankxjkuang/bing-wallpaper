@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250704
+
+> Fourth of July fireworks over Lake Union in Seattle (© Dixin Yan)
+
+<details>
+<summary>Description</summary>
+
+> Every year on July 4, Americans come together to celebrate the birth of our nation. It marks the day in 1776 when the Declaration of Independence was adopted, proclaiming the original 13 colonies' freedom from British rule. From coast to coast, we celebrate with fireworks, BBQs, parades, and patriotic music—and Seattle hosts one of the most dazzling displays in the country.
+> 
+> Set against the backdrop of Lake Union, Seattle's fireworks light up the night sky, reflecting the city's vibrant mix of history, diversity, and innovation. The most populous city in the Pacific Northwest, Seattle has deep roots—from its Indigenous heritage to its role as the birthplace of grunge to its importance as a technology center. This Fourth of July, whether you're watching with the crowds at Gas Works Park or friends on a rooftop deck, take a moment to reflect on our shared past—and the freedom to honor it together.
+> 
+> 
+
+</details>
+
+| ![Happy Fourth of July!](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Fourth of July!](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_1080x1920.jpg) |
+
 ### 20250703
 
 > Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Pride 2025](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride 2025](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1080x1920.jpg) |
-
-### 20250627
-
-> Splendid leaf frog (© Jan Stria/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Don't let the name fool you—this frog isn't just leafing around. The splendid leaf frog (aka splendid tree frog) is a rainforest resident with a flair for the dramatic: neon legs, sticky feet, and a disappearing act. One minute it's a humble green leaf, the next it's a flash of color mid-leap, startling predators. This frog lives high in the canopies of Central and South America, especially in Costa Rica, Panama, and parts of Ecuador and Colombia. It spends its days snoozing on leaves and its nights foraging for insects. With vertical pupils and a golden glow, oversized eyes help this frog spot prey in the dark. Thanks to sticky toe pads and strong limbs, it can cling to branches and leaves like a pro, even in the canopy's slippery heights.
-> 
-> Females lay their eggs on leaves overhanging small pools or puddles. Once the eggs hatch, the tadpoles drop into the water below—no parental supervision required. With a dash of color, a splash of stealth, and a leap of faith, this species knows how to keep things un-frog-ettable.
-> 
-> 
-
-</details>
-
-| ![Splendid leaf frog](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Splendid leaf frog](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1080x1920.jpg) |S2494437641_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1080x1920.jpg) |大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1080x1920.jpg) |t 4K](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1080x1920.jpg) |S2494437641_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1080x1920.jpg) |大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
