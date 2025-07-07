@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250705
+
+> Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Every summer, the world's best cyclists take on one of the most grueling athletic events in modern sports—the Tour de France. Beginning this year on July 5, the 2025 race will span 21 stages and over 2,000 miles across France. First held in 1903 to boost newspaper sales, the Tour has grown into cycling's most iconic race. Riders compete in mountain climbs, sprints, and time trials, with the race traditionally ending in Paris.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Tour de France begins](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tour de France begins](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_1080x1920.jpg) |
+
 ### 20250704
 
 > Fourth of July fireworks over Lake Union in Seattle (© Dixin Yan)
@@ -113,17 +132,6 @@
 | ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_1080x1920.jpg) |
-
-### 20250628
-
-> Rainbow flags at New York Pride (© Alan Schein/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In the early hours of June 28, 1969, a police raid at the Stonewall Inn in New York's Greenwich Village met unexpected resistance. Fed up with years of harassment, LGBTQIA+ patrons fought back. What followed was six days of unrest—and the start of a movement. Led in part by trans activists like Marsha P. Johnson and Sylvia Rivera, the uprising challenged not only police brutality but society's silence. Stonewall wasn't the beginning of queer existence, but it was the moment people said 'no more' loud enough to be heard worldwide. The first Pride marches came the next year, not as parties, but as protests. Thousands marched in New York City, Los Angeles, and Chicago to mark the anniversary of Stonewall. Holding signs and chanting for liberation, they demanded visibility, rights, and justice.
-> 
-> Our photo today, of course, is of the now-iconic rainbow flag that symbolizes LGBTQIA+ Pride. It's a lively, hopeful statement that promotes inclusivity and acceptance. Long may it wave.
 > 
 > 
 
