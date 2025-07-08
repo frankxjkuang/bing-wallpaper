@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250706
+
+> Mesquite Flat Sand Dunes in Death Valley National Park, California (© Bryan Jolley/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> The Mesquite Flat Sand Dunes, located near Stovepipe Wells Village in Death Valley National Park, are the most accessible and iconic dunes in the park. They are formed by a combination of eroding mountains to the north that supply sand, prevailing winds that move it, and surrounding mountains that trap it from the south—creating a stunning landscape of rippling sand hills. Named after the resilient mesquite trees that grow here, the dunes offer breathtaking views at sunrise and sunset, as well as exceptional stargazing opportunities.
+> 
+> Death Valley National Park, spanning more than 3.4 million acres, is the largest national park in the contiguous United States. It is known for its extreme temperatures, vast desert landscapes, and geological diversity. More than 93% of the park is designated wilderness, offering opportunities for backcountry exploration, though visitors must be cautious of hazards like extreme heat, flash floods, and wildlife. Despite its harsh environment, the park is rich in natural beauty and cultural history, including its deep ties to the Timbisha Shoshone people, who have lived in the region for generations.
+> 
+> 
+
+</details>
+
+| ![Mesquite Flat Sand Dunes in Death Valley National Park, California](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mesquite Flat Sand Dunes in Death Valley National Park, California](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_1080x1920.jpg) |
+
 ### 20250705
 
 > Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)
@@ -112,30 +131,7 @@
 
 | ![Asteroid Day](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Asteroid Day](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_1080x1920.jpg) |
-
-### 20250629
-
-> Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Every June 29, the International Day of the Tropics shines a light on the equator-hugging zone where the sun sticks around, and climate conversations get real. The tropics span a broad region between the Tropic of Cancer and the Tropic of Capricorn, including parts of Asia, Africa, Oceania, Central America, and South America. Nearly 40% of the global population lives in this band, which also hosts 80% of the world's biodiversity. It's rich in culture, nature, and history—but also under pressure from rising temperatures, deforestation, and fast-paced urban growth.
-> 
-> For a tropical tale with extra flavor, look no further than Pulau Ay, photographed here. Nutmeg was once one of the world's most sought-after commodities—and this tiny island in Indonesia's Banda Islands played a key role in its global trade. It once sparked global rivalries and deadly sea battles, influencing the geopolitical boundaries of the modern world. Today, Pulau Ay is a place where reefs shine, nutmeg continues to thrive, and history lingers in moss-covered forts. Visitors can snorkel along coral gardens, wander through spice groves, or sit with locals drying mace under the sun. So, today's mission? Celebrate, sure—but also reflect, learn, and act.
-> 
-> 
-
-</details>
-
-| ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_1080x1920.jpg) |
-> 
-> 
-
-</details>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_1080x1920.jpg) |ls>
 
 | ![Pride 2025](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride 2025](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
