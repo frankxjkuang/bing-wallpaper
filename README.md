@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250707
+
+> Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Graceful, powerful, and impossible to miss—the northern gannet is the largest seabird on the waters of the North Atlantic. It spends most of its time gliding over open seas and returning to land only to breed. These seabirds, known for their vast and noisy breeding colonies, called gannetries, nest on steep cliffs, remote rocky islands, and sea stacks that rise from the ocean.
+> 
+> Few birds hunt as dramatically as the northern gannet, which dives straight into the sea, as seen in today's image. Spotting prey from heights of up to 100 feet, the bird folds its wings and hits the water at speeds of over 60 mph. Its streamlined body, reinforced skull, and built-in shock absorbers, such as spongy bone plates and air sacs beneath the skin, make these high-impact dives both powerful and safe. Once underwater, the gannet uses its wings and webbed feet to swim after fish, diving as deep as 70 feet and staying submerged for up to 30 seconds. Its forward-facing eyes provide excellent depth perception, while hidden nostrils prevent water from rushing in during those lightning-fast descents.
+> 
+> 
+
+</details>
+
+| ![Northern gannets, Shetland Islands, Scotland](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Northern gannets, Shetland Islands, Scotland](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_1080x1920.jpg) |
+
 ### 20250706
 
 > Mesquite Flat Sand Dunes in Death Valley National Park, California (© Bryan Jolley/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Happy Canada Day!](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Canada Day!](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1080x1920.jpg) |
-
-### 20250630
-
-> Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Each scar on Earth from a meteorite impact tells a story—from the asteroid that wiped out the dinosaurs to the lesser-known craters that dot the planet. Asteroid Day highlights ongoing research into asteroids and the potential threats they pose. Started in 2015 and backed by the United Nations, this day marks the anniversary of the Tunguska event—a massive explosion that occurred in Siberia on June 30, 1908. This explosion flattened over 800 square miles of Siberian forest near the Tunguska River. The blast released energy equal to 10–15 megatons of TNT, a standard measure of explosive force. Since then, craters like Arizona's Barringer, Quebec's Manicouagan, and others have helped scientists study what happens when space rocks hit Earth.
-> 
-> Wolfe Creek Crater in Western Australia, pictured here, was created by a meteorite estimated to have weighed over 14,000 tons. The crater is about 2,871 feet in diameter and sits within Wolfe Creek Meteorite Crater National Park, a remote protected area. The park's flat plains and desert grasslands make the crater's rim especially visible. Today, visitors can walk along the rim and learn about its significance to both science and local Indigenous communities.
-> 
-> 
-
-</details>
-
-| ![Asteroid Day](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Asteroid Day](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_1080x1920.jpg) |ls>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1080x1920.jpg) |x1920.jpg) |ls>
 
 | ![Pride 2025](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride 2025](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
