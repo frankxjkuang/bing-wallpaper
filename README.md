@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250708
+
+> Seceda, a peak in the Dolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> Italy's Dolomites don't just tower; they enchant, turning every trail into a story. Fondly known as the 'Pale Mountains,' the Dolomites derive their name from dolomite—a carbonate mineral. Set in the northern Italian Alps, the range spans over 345,000 acres and boasts 18 soaring peaks that rise above 9,500 feet. These mountains feature sheer cliffs, lofty walls, and a maze of narrow, winding valleys.
+> 
+> Amid the dramatic landscape of the Dolomites lies one of its most spectacular peaks, Seceda, featured in today's image. With a height of around 8,200 feet, it offers the highest panoramic viewpoint in Val Gardena, a scenic valley in the province of South Tyrol. A short cable car ride takes you to the summit, bypassing what would otherwise be a strenuous hike. Once at the top, you're greeted by a stunning sweep of the Dolomites' iconic jagged ridgelines. On a clear day, you might even spot Austria's tallest mountain, the Großglockner, located more than 90 miles away.
+> 
+> 
+
+</details>
+
+| ![Seceda, Dolomites, South Tyrol, Italy](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Seceda, Dolomites, South Tyrol, Italy](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_1080x1920.jpg) |
+
 ### 20250707
 
 > Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)
@@ -112,24 +131,7 @@
 
 | ![Spine-cheeked anemonefish in Milne Bay, Papua New Guinea](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spine-cheeked anemonefish in Milne Bay, Papua New Guinea](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_1080x1920.jpg) |
-
-### 20250701
-
-> Fishing village of Tilting, Fogo Island, Newfoundland and Labrador, Canada (© FedevPhoto/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, Canada turns another year older. Canada Day is a nod to the moment when the country officially came together in 1867. What began as a confederation of Ontario, Quebec, New Brunswick, and Nova Scotia has grown into a nation of 10 provinces and 3 territories. Originally called Dominion Day, the name was changed to Canada Day in 1982—the same year the Constitution Act was signed, granting the country full control over its constitution. While Canada Day is not the country's 'Independence Day,' it's the closest thing to it. Canadians celebrate this holiday with fireworks, parades, concerts, and community events. Ottawa, the country's capital, hosts one of the biggest celebrations, featuring music and speeches on Parliament Hill.
-> 
-> On this day, it is hard to miss how the red and white houses in Tilting mirror the colors of the Canadian flag. Tilting, a village on Fogo Island in Newfoundland and Labrador, was settled by Irish immigrants in the 18th century. It remains a unique example of an Irish outport community that has preserved its cultural identity. The bright fishing sheds and homes weren't painted just for aesthetics; the hues once made buildings easier to spot during heavy fog or snowfall. These vivid colors also reflect the practical, resourceful life of the people who settled here.
-> 
-> 
-
-</details>
-
-| ![Happy Canada Day!](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Canada Day!](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_1080x1920.jpg) |ay!](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1080x1920.jpg) |x1920.jpg) |ls>
 
