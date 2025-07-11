@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250709
+
+> Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Argentina, a nation of sweeping pampas, rich culture, and a bold identity, celebrates its Independence Day today. This pivotal date marks the moment in 1816 when delegates from across the region gathered in the city of San Miguel de Tucumán to declare freedom from Spanish colonial rule. The road to independence was not easy; it followed years of internal struggles and revolutions influenced by global movements, including the American and French revolutions. But the resolve of the Argentine people prevailed.
+> 
+> Since gaining independence, Argentina has taken important steps in shaping its national identity. The drafting of its first constitution in 1853 established a framework for democratic governance that continues to influence its political system. The country has also made notable contributions to global culture and sports. It has offered the world literary figures like Jorge Luis Borges, a rich culinary tradition centered on asado (a traditional barbecue), and legendary athletes such as Diego Maradona and Lionel Messi. Constitución railway station in Buenos Aires, pictured here, is a historic hub that reflects Argentina's drive for growth, connectivity, and the spirit of unity that emerged during a transformative era.
+> 
+> 
+
+</details>
+
+| ![Independence Day of the Argentine Republic](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Independence Day of the Argentine Republic](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_1080x1920.jpg) |
+
 ### 20250708
 
 > Seceda, a peak in the Dolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)
@@ -112,26 +131,7 @@
 
 | ![Rainbow River, Rainbow Springs State Park, Florida](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rainbow River, Rainbow Springs State Park, Florida](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_1080x1920.jpg) |
-
-### 20250702
-
-> Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> That bright fish hiding in the anemone? That's the spine-cheeked anemonefish, or the maroon clownfish, and it is not just a cute creature. Native to the Indo-Pacific, from western Indonesia to Taiwan and the Great Barrier Reef, this species lives on the edges of coral reefs. It is easily distinguished by the spine extending from each cheek—hence the name. Groups of spine-cheeked anemonefish form around a single dominant female, and if she disappears, the top male steps up—literally changing sex to take her place. Spine-cheeked anemonefish thrive in warm, shallow waters and stick close to their chosen sea anemone.
-> 
-> The closest marine companion of a spine-cheeked anemonefish is the bubble-tip anemone, as seen in the image. These anemones don't all look alike—their appearances often vary with age, depth, and whether they host anemonefish. This species offers the perfect mix of cover and protection. In return, the fish defend the anemone from threats and remove debris from its surface. It's a stable, symbiotic bond that benefits both partners and keeps them closely tied to the same patch of reef.
-> 
-> 
-
-</details>
-
-| ![Spine-cheeked anemonefish in Milne Bay, Papua New Guinea](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spine-cheeked anemonefish in Milne Bay, Papua New Guinea](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_1080x1920.jpg) |ay!](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_1080x1920.jpg) |0x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1080x1920.jpg) |x1920.jpg) |ls>
 
