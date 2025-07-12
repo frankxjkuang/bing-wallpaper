@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250710
+
+> Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> The Bahamas comes alive with color, music, and pride today as the nation marks its Independence Day. First recorded by Europeans in 1492 when Christopher Columbus arrived, the islands were initially under Spanish rule. They later came briefly under American control before becoming a British colony. After decades of legal negotiations and a growing push for self-governance, the Bahamas transitioned to full independence on this day in 1973.
+> 
+> In the lead-up to July 10, Bahamians across the archipelago take part in spirited celebrations, including National Pride Day, ecumenical services, and community walks and runs. These events shine a spotlight on the nation's vibrant culture, heritage, and deep sense of patriotism. And what better backdrop for such festivities than the breathtaking turquoise waters that surround the islands? The shallow, white sandbanks reflect sunlight in a way that gives the ocean its signature electric-blue glow, pictured here. Whether you're snorkeling among coral reefs, watching fireworks from a beachfront, or cruising the Exuma Cays under the golden sun, it seems the ocean sparkles just a little brighter on Independence Day.
+> 
+> 
+
+</details>
+
+| ![Independence Day of the Bahamas](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Independence Day of the Bahamas](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_1080x1920.jpg) |
+
 ### 20250709
 
 > Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Happy Fourth of July!](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Fourth of July!](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_1080x1920.jpg) |
-
-### 20250703
-
-> Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Nestled in the northern Gulf Coast of Florida, is Rainbow Springs State Park. This area has served as a natural resource for humans and animals for centuries, with the Rainbow River—flowing through the park—playing a major role. The gently winding waterway is fed by Rainbow Springs, one of Florida's largest springs. The water that bubbles up here comes from a 770-square-mile area and eventually flows into the Withlacoochee River.
-> 
-> The Rainbow River's transparent waters are perfect for swimming and snorkeling, and they maintain a constant temperature of 72°F year-round. The park's history dates to the late 1880s, when hard rock phosphate was discovered in the area, leading to a boomtown era. This period saw the rapid growth of a small community called Juliette near the springs, driven by the phosphate mining industry. During the 1960s, the park emerged as a popular tourist destination, featuring glass-bottom boat rides, a monorail system, and even a rodeo. Today, visitors can explore the ornamental gardens, waterfalls, and walking paths, and enjoy the diverse wildlife that calls Rainbow Springs home.
-> 
-> 
-
-</details>
-
-| ![Rainbow River, Rainbow Springs State Park, Florida](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rainbow River, Rainbow Springs State Park, Florida](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_1080x1920.jpg) |0x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_1080x1920.jpg) |2_1080x1920.jpg) |0x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1080x1920.jpg) |x1920.jpg) |ls>
 
