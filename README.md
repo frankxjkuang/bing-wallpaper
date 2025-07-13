@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250711
+
+> Tokyo at sunrise (© pongnathee kluaythong/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> We are living in a full house, and it is getting fuller. With 8.2 billion people and counting, World Population Day highlights how that growth affects cities, food, and the future. First observed in 1989, the day focuses on how unchecked population growth affects sustainability. The event was inspired by Five Billion Day in 1987, which marked the approximate date when the global population hit that milestone. As cities expand, green spaces shrink, and agriculture competes for limited land and water resources. But there is a way forward—investing in education, improving access to healthcare, and building smarter cities can balance growth with sustainability.
+> 
+> On a global scale, India remains the most populous country in 2025 with over 1.46 billion people, followed by China at 1.41 billion. The United States trails with around 339 million, though its growth is slowing and aging populations are becoming a new challenge. Tokyo, the world's largest city with around 37.2 million people, illustrates the realities of high-density urban life: overcrowded spaces, transport congestion, and rising demand for services. World Population Day is more than a head count—it's a call for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+> 
+> 
+
+</details>
+
+| ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |
+
 ### 20250710
 
 > Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)
@@ -112,30 +131,7 @@
 
 | ![Tour de France begins](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tour de France begins](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_1080x1920.jpg) |
-
-### 20250704
-
-> Fourth of July fireworks over Lake Union in Seattle (© Dixin Yan)
-
-<details>
-<summary>Description</summary>
-
-> Every year on July 4, Americans come together to celebrate the birth of our nation. It marks the day in 1776 when the Declaration of Independence was adopted, proclaiming the original 13 colonies' freedom from British rule. From coast to coast, we celebrate with fireworks, BBQs, parades, and patriotic music—and Seattle hosts one of the most dazzling displays in the country.
-> 
-> Set against the backdrop of Lake Union, Seattle's fireworks light up the night sky, reflecting the city's vibrant mix of history, diversity, and innovation. The most populous city in the Pacific Northwest, Seattle has deep roots—from its Indigenous heritage to its role as the birthplace of grunge to its importance as a technology center. This Fourth of July, whether you're watching with the crowds at Gas Works Park or friends on a rooftop deck, take a moment to reflect on our shared past—and the freedom to honor it together.
-> 
-> 
-
-</details>
-
-| ![Happy Fourth of July!](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Fourth of July!](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_1080x1920.jpg) |2_1080x1920.jpg) |0x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1080x1920.jpg) |x1920.jpg) |ls>
-
-| ![Pride 2025](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride 2025](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_1080x1920.jpg) |9405333794_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride 2025](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1080x1920.jpg) |t 4K](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1080x1920.jpg) |S2494437641_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1080x1920.jpg) |大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
