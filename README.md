@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250712
+
+> Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)
+
+<details>
+<summary>Description</summary>
+
+> There's something about the way animals move through the grasslands of the Maasai Mara, bathed in golden rays, that makes you pause and simply watch. This stretch of savanna in southwestern Kenya teems with wildlife—from elephants stomping through bushes to cheetahs scanning the horizon. Yet sometimes it's the smaller creatures that grab attention—like the Thomson's gazelles featured in today's image.
+> 
+> Known as 'tommies,' Thomson's gazelles are among the fastest animals in Africa, reaching speeds of up to 50 miles per hour. They thrive in the Mara's short grass plains, which provide a clear view of approaching predators. Though adults may seem to be grazing peacefully, their ears are always tuned to nearby movements.
+> 
+> Mating occurs year-round, peaking just before the rainy season. Males hold territories, waiting for females to pass through. After a five- to six-month gestation period, the female gives birth to one fawn, weighing around 4 to 6 pounds. For the first few weeks, the small gazelle stays hidden most of the day with the mother returning briefly to nurse. These early days are crucial as the young learn to run and blend in. Despite their delicate appearance, tommies are tough. Many join the great migration during the dry season, relying on their agility and the awareness of wildebeests and zebras to evade danger in search of greener plains.
+
+</details>
+
+| ![Thomson's gazelles, Maasai Mara, Kenya](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Thomson's gazelles, Maasai Mara, Kenya](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |
+
 ### 20250711
 
 > Tokyo at sunrise (© pongnathee kluaythong/Getty Images)
@@ -112,30 +131,7 @@
 
 | ![Mesquite Flat Sand Dunes in Death Valley National Park, California](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mesquite Flat Sand Dunes in Death Valley National Park, California](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_1080x1920.jpg) |
-
-### 20250705
-
-> Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Every summer, the world's best cyclists take on one of the most grueling athletic events in modern sports—the Tour de France. Beginning this year on July 5, the 2025 race will span 21 stages and over 2,000 miles across France. First held in 1903 to boost newspaper sales, the Tour has grown into cycling's most iconic race. Riders compete in mountain climbs, sprints, and time trials, with the race traditionally ending in Paris.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Tour de France begins](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tour de France begins](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_1080x1920.jpg) |9405333794_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pride 2025](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1080x1920.jpg) |t 4K](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1080x1920.jpg) |S2494437641_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1080x1920.jpg) |大利](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_1080x1920.jpg) |t 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
