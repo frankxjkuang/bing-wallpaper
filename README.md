@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250713
+
+> Basalt columns at Kálfshamarsvík, Skagi Peninsula, Iceland (© Arterra Picture Library/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Do you think rocks are just … well, rocks? These natural mineral combinations have done more than just sit around—they've built the Earth's crust and helped humans shape history. From Stone Age tools to the minerals powering modern civilization, rocks have been essential throughout our journey. International Rock Day celebrates this enduring impact, inviting us to explore the science of rocks, admire their natural beauty, and recognize the rich variety they add to our world.
+> 
+> If you're wondering where to see geology in action, Iceland is a great place to explore. Today's image takes us to Kálfshamarsvík—a secluded cove on the country's remote Skagi Peninsula. Unlike Iceland's famous black sand beaches, this cove's shore is strewn with large, smooth pebbles, while its fiery volcanic past still reveals itself in the towering cliffs. Here, evidence of volcanic activity is on full display in the form of rare hexagonal basalt columns. These sea cliffs are shaped into natural sculptures so symmetrical that they look almost human-made. These striking formations were created around 2 million years ago, when thick basalt lava cooled slowly, contracting and cracking into geometric shapes that form near-perfect hexagons. Though Iceland is full of volcanic marvels, formations like these are rare, making this quiet cove truly remarkable.
+> 
+> 
+
+</details>
+
+| ![Iceland for International Rock Day](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Iceland for International Rock Day](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1080x1920.jpg) |
+
 ### 20250712
 
 > Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)
@@ -112,26 +131,7 @@
 
 | ![Northern gannets, Shetland Islands, Scotland](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Northern gannets, Shetland Islands, Scotland](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_1080x1920.jpg) |
-
-### 20250706
-
-> Mesquite Flat Sand Dunes in Death Valley National Park, California (© Bryan Jolley/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> The Mesquite Flat Sand Dunes, located near Stovepipe Wells Village in Death Valley National Park, are the most accessible and iconic dunes in the park. They are formed by a combination of eroding mountains to the north that supply sand, prevailing winds that move it, and surrounding mountains that trap it from the south—creating a stunning landscape of rippling sand hills. Named after the resilient mesquite trees that grow here, the dunes offer breathtaking views at sunrise and sunset, as well as exceptional stargazing opportunities.
-> 
-> Death Valley National Park, spanning more than 3.4 million acres, is the largest national park in the contiguous United States. It is known for its extreme temperatures, vast desert landscapes, and geological diversity. More than 93% of the park is designated wilderness, offering opportunities for backcountry exploration, though visitors must be cautious of hazards like extreme heat, flash floods, and wildlife. Despite its harsh environment, the park is rich in natural beauty and cultural history, including its deep ties to the Timbisha Shoshone people, who have lived in the region for generations.
-> 
-> 
-
-</details>
-
-| ![Mesquite Flat Sand Dunes in Death Valley National Park, California](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mesquite Flat Sand Dunes in Death Valley National Park, California](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_1080x1920.jpg) |t 4K](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1080x1920.jpg) |&rs=1&c=4) | ![Minnesota State Capitol in St. Paul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_1080x1920.jpg) |ul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
