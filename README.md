@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250714
+
+> Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Sharks have been around for over 400 million years—outlasting dinosaurs, surviving ice ages, and weathering mass extinctions. They are symbols of ocean health, which is why Shark Awareness Day draws attention to these apex predators that help maintain balance in marine ecosystems. Protecting sharks means preserving the health of entire ocean environments—and ultimately, securing a sustainable future for all life. With many shark species facing the threat of extinction, this day is all about appreciating their ancient legacy and learning how we can help keep them off the endangered list.
+> 
+> Take the blue shark, featured here, for example—sleek, wide-ranging, and undeniably captivating. It's the only living member of its genus, and it prefers the deep waters of temperate and tropical oceans. While typically a laid-back swimmer, it's capable of sudden bursts of speed when needed. Blue sharks are famous for their epic migrations—some travel from New England to South America, guided by seasonal changes, food availability, and favorable environmental conditions. They give birth to live young and are known for their large litters—ranging from 25 to over 100 pups. After birth, the young head to special nursery zones, far from adult habitats, where they can grow and learn the ways of the sea.
+> 
+> 
+
+</details>
+
+| ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.YoungShark_EN-US4689572794_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.YoungShark_EN-US4689572794_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YoungShark_EN-US4689572794_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YoungShark_EN-US4689572794_1080x1920.jpg) |
+
 ### 20250713
 
 > Basalt columns at Kálfshamarsvík, Skagi Peninsula, Iceland (© Arterra Picture Library/Alamy)
@@ -112,27 +131,7 @@
 
 | ![Seceda, Dolomites, South Tyrol, Italy](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Seceda, Dolomites, South Tyrol, Italy](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_1080x1920.jpg) |
-
-### 20250707
-
-> Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Graceful, powerful, and impossible to miss—the northern gannet is the largest seabird on the waters of the North Atlantic. It spends most of its time gliding over open seas and returning to land only to breed. These seabirds, known for their vast and noisy breeding colonies, called gannetries, nest on steep cliffs, remote rocky islands, and sea stacks that rise from the ocean.
-> 
-> Few birds hunt as dramatically as the northern gannet, which dives straight into the sea, as seen in today's image. Spotting prey from heights of up to 100 feet, the bird folds its wings and hits the water at speeds of over 60 mph. Its streamlined body, reinforced skull, and built-in shock absorbers, such as spongy bone plates and air sacs beneath the skin, make these high-impact dives both powerful and safe. Once underwater, the gannet uses its wings and webbed feet to swim after fish, diving as deep as 70 feet and staying submerged for up to 30 seconds. Its forward-facing eyes provide excellent depth perception, while hidden nostrils prevent water from rushing in during those lightning-fast descents.
-> 
-> 
-
-</details>
-
-| ![Northern gannets, Shetland Islands, Scotland](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Northern gannets, Shetland Islands, Scotland](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_1080x1920.jpg) |ul, Minnesota](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_1080x1920.jpg) |--:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
 > 
