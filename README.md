@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250715
+
+> Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Get ready for one of the most dazzling celestial displays of the year—the Perseid meteor shower. Active from mid-July through late August, this year it reaches its spectacular peak on the night of August 12 and into the early hours of August 13. The Perseids light up the skies when Earth passes through a trail of icy and rocky debris left behind by Comet Swift–Tuttle, which last passed close to our planet in 1992. These meteors are called the Perseids because they appear to streak from the direction of the constellation Perseus.
+> 
+> For those hoping to catch a glimpse of this breathtaking show, the Perseid meteor shower is best viewed from the Northern Hemisphere, extending down to the mid-southern latitudes. One such vantage point is Great Basin National Park in Nevada, seen in today's image, where ancient bristlecone pines stand beneath a sky ablaze with shooting stars. These remarkable trees are the oldest non-clonal species on Earth. Shaped by relentless wind, snow, and rain, they've endured for millennia—witnessing ice ages, volcanic eruptions, and the rise and fall of civilizations.
+> 
+> 
+
+</details>
+
+| ![Perseid meteor shower over Nevada](https://cn.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Perseid meteor shower over Nevada](https://cn.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_1080x1920.jpg) |
+
 ### 20250714
 
 > Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Independence Day of the Argentine Republic](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Independence Day of the Argentine Republic](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_1080x1920.jpg) |
-
-### 20250708
-
-> Seceda, a peak in the Dolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> Italy's Dolomites don't just tower; they enchant, turning every trail into a story. Fondly known as the 'Pale Mountains,' the Dolomites derive their name from dolomite—a carbonate mineral. Set in the northern Italian Alps, the range spans over 345,000 acres and boasts 18 soaring peaks that rise above 9,500 feet. These mountains feature sheer cliffs, lofty walls, and a maze of narrow, winding valleys.
-> 
-> Amid the dramatic landscape of the Dolomites lies one of its most spectacular peaks, Seceda, featured in today's image. With a height of around 8,200 feet, it offers the highest panoramic viewpoint in Val Gardena, a scenic valley in the province of South Tyrol. A short cable car ride takes you to the summit, bypassing what would otherwise be a strenuous hike. Once at the top, you're greeted by a stunning sweep of the Dolomites' iconic jagged ridgelines. On a clear day, you might even spot Austria's tallest mountain, the Großglockner, located more than 90 miles away.
-> 
-> 
-
-</details>
-
-| ![Seceda, Dolomites, South Tyrol, Italy](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Seceda, Dolomites, South Tyrol, Italy](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_1080x1920.jpg) |--:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_1080x1920.jpg) |otaRotunda_EN-US6605011856_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
 > 
 
