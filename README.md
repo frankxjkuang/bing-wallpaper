@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250716
+
+> Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The Temple of Philae, often called the Temple of Isis, is one of Egypt's most enchanting ancient sites. Originally built on Philae Island, it was moved to nearby Agilkia Island to save it from flooding. The international rescue effort, launched by UNESCO in the 1960s, required a monumental effort that involved moving more than 40,000 stones. Today, it's a peaceful spot surrounded by the Nile—perfect for a scenic boat ride and a journey into the past.
+> 
+> To enter the temple complex, sightseers step through a grand gateway that leads to a courtyard lined with towering columns. The main temple is dedicated to Isis, the goddess of magic, motherhood, and protection, and its walls are covered in carvings that tell her story. Smaller chapels and shrines tucked around the site, including ones for Osiris (the Egyptian god of the underworld and brother-husband to Isis) and Horus (the sky deity depicted with a falcon head). Visitors can explore this UNESCO World Heritage Site freely or join a guided tour. At night, a sound-and-light show brings ancient myths to life. The temple's intricate carvings and well-preserved structures provide a fascinating glimpse into Egypt's ancient history.
+> 
+> 
+
+</details>
+
+| ![Temple of Philae, Aswan, Egypt](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Temple of Philae, Aswan, Egypt](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1080x1920.jpg) |
+
 ### 20250715
 
 > Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Independence Day of the Bahamas](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Independence Day of the Bahamas](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_1080x1920.jpg) |
-
-### 20250709
-
-> Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Argentina, a nation of sweeping pampas, rich culture, and a bold identity, celebrates its Independence Day today. This pivotal date marks the moment in 1816 when delegates from across the region gathered in the city of San Miguel de Tucumán to declare freedom from Spanish colonial rule. The road to independence was not easy; it followed years of internal struggles and revolutions influenced by global movements, including the American and French revolutions. But the resolve of the Argentine people prevailed.
-> 
-> Since gaining independence, Argentina has taken important steps in shaping its national identity. The drafting of its first constitution in 1853 established a framework for democratic governance that continues to influence its political system. The country has also made notable contributions to global culture and sports. It has offered the world literary figures like Jorge Luis Borges, a rich culinary tradition centered on asado (a traditional barbecue), and legendary athletes such as Diego Maradona and Lionel Messi. Constitución railway station in Buenos Aires, pictured here, is a historic hub that reflects Argentina's drive for growth, connectivity, and the spirit of unity that emerged during a transformative era.
-> 
-> 
-
-</details>
-
-| ![Independence Day of the Argentine Republic](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Independence Day of the Argentine Republic](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_1080x1920.jpg) |otaRotunda_EN-US6605011856_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_1080x1920.jpg) |t 4K](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_1080x1920.jpg) |otaRotunda_EN-US6605011856_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
 > 
 
