@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250717
+
+> Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> If you're looking for a scent-sational summer trip, follow your nose to the Plateau de Valensole in Provence, France. From late June to mid-July, this high plateau transforms into a purple sea of lavender. Situated more than 1,900 feet above sea level and spanning approximately 300 square miles, it is one of the largest areas in France dedicated to lavender cultivation.
+> 
+> Lavender has flourished in Provence for centuries. The ancient Romans brought the plant to southern France, using it for bathing, cooking, and healing. The word itself comes from 'lavare,' Latin for 'to wash.' By the Middle Ages, local monks were cultivating it for medicinal purposes. The real boom came in the 19th century, when the perfume industry in nearby Grasse took off. Over time, lavender fields spread across Provence, especially in high-sun, well-drained areas like Valensole. Today, 1,700 growers tend to around 62,000 acres of these shrubs. They cultivate both traditional lavender—for perfumes and skincare—and lavandin, the longer-stemmed cousin often found in household cleaning products and air fresheners. So don't just leave it to chance—plan ahead, follow the scent trail, and let your summer bloom with lavender memories.
+> 
+> 
+
+</details>
+
+| ![Lavender fields in Plateau de Valensole, France](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lavender fields in Plateau de Valensole, France](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1080x1920.jpg) |
+
 ### 20250716
 
 > Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |
-
-### 20250710
-
-> Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> The Bahamas comes alive with color, music, and pride today as the nation marks its Independence Day. First recorded by Europeans in 1492 when Christopher Columbus arrived, the islands were initially under Spanish rule. They later came briefly under American control before becoming a British colony. After decades of legal negotiations and a growing push for self-governance, the Bahamas transitioned to full independence on this day in 1973.
-> 
-> In the lead-up to July 10, Bahamians across the archipelago take part in spirited celebrations, including National Pride Day, ecumenical services, and community walks and runs. These events shine a spotlight on the nation's vibrant culture, heritage, and deep sense of patriotism. And what better backdrop for such festivities than the breathtaking turquoise waters that surround the islands? The shallow, white sandbanks reflect sunlight in a way that gives the ocean its signature electric-blue glow, pictured here. Whether you're snorkeling among coral reefs, watching fireworks from a beachfront, or cruising the Exuma Cays under the golden sun, it seems the ocean sparkles just a little brighter on Independence Day.
-> 
-> 
-
-</details>
-
-| ![Independence Day of the Bahamas](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Independence Day of the Bahamas](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_1080x1920.jpg) |t 4K](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_1080x1920.jpg) |otaRotunda_EN-US6605011856_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
 > 
 
