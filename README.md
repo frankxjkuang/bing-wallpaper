@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250718
+
+> Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Gulf Islands National Seashore spans the northern Gulf of Mexico along the coasts of Florida and Mississippi, offering recreational activities and preserving natural and historic sites. Established in 1971, it boasts miles of white sand beaches, historic fortifications, and rich wildlife habitats. The seashore includes a 4,080-acre wilderness area on Mississippi's Petit Bois and Horn Islands, protecting their unique ecosystems. Besides being a perfect spot for snorkeling, hiking, and swimming, the seashore is home to a wide range of wildlife including armadillos, dolphins, pelicans, and sea turtles.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Gulf Islands National Seashore, Florida](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gulf Islands National Seashore, Florida](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_1080x1920.jpg) |
+
 ### 20250717
 
 > Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)
@@ -112,18 +131,7 @@
 
 | ![Thomson's gazelles, Maasai Mara, Kenya](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Thomson's gazelles, Maasai Mara, Kenya](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |
-
-### 20250711
-
-> Tokyo at sunrise (© pongnathee kluaythong/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> We are living in a full house, and it is getting fuller. With 8.2 billion people and counting, World Population Day highlights how that growth affects cities, food, and the future. First observed in 1989, the day focuses on how unchecked population growth affects sustainability. The event was inspired by Five Billion Day in 1987, which marked the approximate date when the global population hit that milestone. As cities expand, green spaces shrink, and agriculture competes for limited land and water resources. But there is a way forward—investing in education, improving access to healthcare, and building smarter cities can balance growth with sustainability.
-> 
-> On a global scale, India remains the most populous country in 2025 with over 1.46 billion people, followed by China at 1.41 billion. The United States trails with around 339 million, though its growth is slowing and aging populations are becoming a new challenge. Tokyo, the world's largest city with around 37.2 million people, illustrates the realities of high-density urban life: overcrowded spaces, transport congestion, and rising demand for services. World Population Day is more than a head count—it's a call for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
