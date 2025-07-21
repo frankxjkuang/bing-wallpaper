@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250719
+
+> Luna moth resting on cedar elm, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Every July, nature enthusiasts gather for National Moth Week to celebrate the beauty and diversity of moths. Featured in today's image is the luna moth, a species whose charm rivals that of butterflies. Also known as the American moon moth, this striking insect—with its lime-green wings and white body—can be found across North America. Its caterpillars are also green and known for their impressive size, as well as their ability to emit clicking sounds and regurgitate intestinal contents as a defense mechanism against predators.
+> 
+> National Moth Week, held during the last full week of July, encourages communities to host 'mothing' events, where participants use light or bait to attract moths for observation and data collection. This citizen science initiative began in 2012 in central New Jersey and has since expanded to over 90 countries, engaging people in the fascinating world of moths. With their incredible diversity and ecological importance, moths play crucial roles in pollination and serve as a vital food source for other wildlife.
+> 
+> So the next time you leave a light on during a balmy summer night, keep an eye out—one of these nocturnal visitors might just flutter by.
+
+</details>
+
+| ![National Moth Week](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Moth Week](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_1080x1920.jpg) |
+
 ### 20250718
 
 > Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)
@@ -112,24 +131,7 @@
 
 | ![Iceland for International Rock Day](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Iceland for International Rock Day](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1080x1920.jpg) |
-
-### 20250712
-
-> Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)
-
-<details>
-<summary>Description</summary>
-
-> There's something about the way animals move through the grasslands of the Maasai Mara, bathed in golden rays, that makes you pause and simply watch. This stretch of savanna in southwestern Kenya teems with wildlife—from elephants stomping through bushes to cheetahs scanning the horizon. Yet sometimes it's the smaller creatures that grab attention—like the Thomson's gazelles featured in today's image.
-> 
-> Known as 'tommies,' Thomson's gazelles are among the fastest animals in Africa, reaching speeds of up to 50 miles per hour. They thrive in the Mara's short grass plains, which provide a clear view of approaching predators. Though adults may seem to be grazing peacefully, their ears are always tuned to nearby movements.
-> 
-> Mating occurs year-round, peaking just before the rainy season. Males hold territories, waiting for females to pass through. After a five- to six-month gestation period, the female gives birth to one fawn, weighing around 4 to 6 pounds. For the first few weeks, the small gazelle stays hidden most of the day with the mother returning briefly to nurse. These early days are crucial as the young learn to run and blend in. Despite their delicate appearance, tommies are tough. Many join the great migration during the dry season, relying on their agility and the awareness of wildebeests and zebras to evade danger in search of greener plains.
-
-</details>
-
-| ![Thomson's gazelles, Maasai Mara, Kenya](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Thomson's gazelles, Maasai Mara, Kenya](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1080x1920.jpg) |&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
