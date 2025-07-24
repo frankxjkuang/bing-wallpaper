@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250722
+
+> Sunset over Badlands National Park, South Dakota (© Petr Bednarik/Danita Delimont/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> As the sun sets over Badlands National Park, the landscape transforms into a stunning display of color. The national park, located in southwestern South Dakota, features a dramatic terrain of eroded buttes, pinnacles, and spires carved by millennia of wind and water. Spanning over 379 square miles, the park is divided into three main units: the North Unit, home to the visitor center and scenic Badlands Loop Road; and the Stronghold and Palmer Creek units. The park's dramatic terrain is the result of sedimentary rock layers eroding at a rate of about one inch per year, revealing colorful bands of volcanic ash, silt, and clay. These formations are not only visually striking but also rich in fossils, including remains from the Oligocene Epoch (about 33.9 to 23 million years ago), such as ancient horses, camels, and saber-toothed cats.
+> 
+> Beyond its geology, Badlands National Park protects the largest mixed-grass prairie in the US, supporting wildlife like bison, bighorn sheep, prairie dogs, and the endangered black-footed ferret. Visitors can explore its rugged beauty while also learning about the cultural significance of the land.
+> 
+> 
+
+</details>
+
+| ![Badlands National Park in South Dakota](https://cn.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Badlands National Park in South Dakota](https://cn.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_1080x1920.jpg) |
+
 ### 20250721
 
 > Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Temple of Philae, Aswan, Egypt](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Temple of Philae, Aswan, Egypt](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1080x1920.jpg) |
-
-### 20250715
-
-> Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Get ready for one of the most dazzling celestial displays of the year—the Perseid meteor shower. Active from mid-July through late August, this year it reaches its spectacular peak on the night of August 12 and into the early hours of August 13. The Perseids light up the skies when Earth passes through a trail of icy and rocky debris left behind by Comet Swift–Tuttle, which last passed close to our planet in 1992. These meteors are called the Perseids because they appear to streak from the direction of the constellation Perseus.
-> 
-> For those hoping to catch a glimpse of this breathtaking show, the Perseid meteor shower is best viewed from the Northern Hemisphere, extending down to the mid-southern latitudes. One such vantage point is Great Basin National Park in Nevada, seen in today's image, where ancient bristlecone pines stand beneath a sky ablaze with shooting stars. These remarkable trees are the oldest non-clonal species on Earth. Shaped by relentless wind, snow, and rain, they've endured for millennia—witnessing ice ages, volcanic eruptions, and the rise and fall of civilizations.
-> 
-> 
-
-</details>
-
-| ![Perseid meteor shower over Nevada](https://cn.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Perseid meteor shower over Nevada](https://cn.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_1080x1920.jpg) |elf in the towering cliffs. Here, evidence of volcanic activity is on full display in the form of rare hexagonal basalt columns. These sea cliffs are shaped into natural sculptures so symmetrical that they look almost human-made. These striking formations were created around 2 million years ago, when thick basalt lava cooled slowly, contracting and cracking into geometric shapes that form near-perfect hexagons. Though Iceland is full of volcanic marvels, formations like these are rare, making this quiet cove truly remarkable.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1080x1920.jpg) |g cliffs. Here, evidence of volcanic activity is on full display in the form of rare hexagonal basalt columns. These sea cliffs are shaped into natural sculptures so symmetrical that they look almost human-made. These striking formations were created around 2 million years ago, when thick basalt lava cooled slowly, contracting and cracking into geometric shapes that form near-perfect hexagons. Though Iceland is full of volcanic marvels, formations like these are rare, making this quiet cove truly remarkable.
 > 
 > 
 
