@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250723
+
+> Vatican City with St. Peter's Basilica (© RudyBalasko/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In the middle of Rome, Italy, lies an entire country of its own: Vatican City. At just 121 acres, it's the smallest independent nation in the world, yet its reach spans centuries and continents. Home to the pope and the spiritual center of the Roman Catholic Church, this walled enclave is a blend of art, history, and devotion. At its core stands St. Peter's Basilica. Seen in the distance in today's image, this Renaissance masterpiece is built over what is believed to be the tomb of St. Peter, the first bishop of Rome. With its soaring dome dominating the skyline, the basilica is one of the largest churches in the world. Just beyond the basilica lies St. Peter's Square, where thousands gather for papal blessings. The Vatican Museums and the Sistine Chapel, which houses Michelangelo's famed ceiling, are other must-sees. Despite its size, Vatican City has its own postal service, telephone system, and banking system.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Vatican City with St. Peter's Basilica](https://cn.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vatican City with St. Peter's Basilica](https://cn.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_1080x1920.jpg) |
+
 ### 20250722
 
 > Sunset over Badlands National Park, South Dakota (© Petr Bednarik/Danita Delimont/Alamy)
@@ -112,24 +131,7 @@
 
 | ![Lavender fields in Plateau de Valensole, France](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lavender fields in Plateau de Valensole, France](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1080x1920.jpg) |
-
-### 20250716
-
-> Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The Temple of Philae, often called the Temple of Isis, is one of Egypt's most enchanting ancient sites. Originally built on Philae Island, it was moved to nearby Agilkia Island to save it from flooding. The international rescue effort, launched by UNESCO in the 1960s, required a monumental effort that involved moving more than 40,000 stones. Today, it's a peaceful spot surrounded by the Nile—perfect for a scenic boat ride and a journey into the past.
-> 
-> To enter the temple complex, sightseers step through a grand gateway that leads to a courtyard lined with towering columns. The main temple is dedicated to Isis, the goddess of magic, motherhood, and protection, and its walls are covered in carvings that tell her story. Smaller chapels and shrines tucked around the site, including ones for Osiris (the Egyptian god of the underworld and brother-husband to Isis) and Horus (the sky deity depicted with a falcon head). Visitors can explore this UNESCO World Heritage Site freely or join a guided tour. At night, a sound-and-light show brings ancient myths to life. The temple's intricate carvings and well-preserved structures provide a fascinating glimpse into Egypt's ancient history.
-> 
-> 
-
-</details>
-
-| ![Temple of Philae, Aswan, Egypt](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Temple of Philae, Aswan, Egypt](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1080x1920.jpg) |N-US5062419351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1080x1920.jpg) |g cliffs. Here, evidence of volcanic activity is on full display in the form of rare hexagonal basalt columns. These sea cliffs are shaped into natural sculptures so symmetrical that they look almost human-made. These striking formations were created around 2 million years ago, when thick basalt lava cooled slowly, contracting and cracking into geometric shapes that form near-perfect hexagons. Though Iceland is full of volcanic marvels, formations like these are rare, making this quiet cove truly remarkable.
 > 
