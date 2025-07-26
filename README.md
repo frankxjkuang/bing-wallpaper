@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250724
+
+> Family of ashy woodswallows perched on a branch in Thailand (© Captain Skyhigh/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Remember the cousin who convinced you to climb the tallest tree or the one who helped you sneak an extra slice of cake at the family reunion? Today is a good time to appreciate those childhood partners in crime who made growing up way more exciting. Cousins often land somewhere between sibling and friend, getting into trouble with you, sharing inside jokes, and showing up at every family gathering. In nature, few creatures mirror that kind of togetherness better than the ashy woodswallow, pictured here. Native to South Asia, these birds are rarely seen alone. They gather in tight groups on bare branches or perch atop high places like powerlines. From there, they launch into graceful flights—flapping and gliding as they snatch insects midair.
+> 
+> Cousins Day may not come with gift guides or special sales, but it is a great reason to drop a text, make a call, or laugh over a shared memory. Cousins aren't just relatives; they're the ones who make family feel like fun. And just like these snug little woodswallows, life's a little warmer when they're close.
+> 
+> 
+
+</details>
+
+| ![Happy Cousins Day!](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Cousins Day!](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_1080x1920.jpg) |
+
 ### 20250723
 
 > Vatican City with St. Peter's Basilica (© RudyBalasko/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Gulf Islands National Seashore, Florida](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gulf Islands National Seashore, Florida](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_1080x1920.jpg) |
-
-### 20250717
-
-> Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> If you're looking for a scent-sational summer trip, follow your nose to the Plateau de Valensole in Provence, France. From late June to mid-July, this high plateau transforms into a purple sea of lavender. Situated more than 1,900 feet above sea level and spanning approximately 300 square miles, it is one of the largest areas in France dedicated to lavender cultivation.
-> 
-> Lavender has flourished in Provence for centuries. The ancient Romans brought the plant to southern France, using it for bathing, cooking, and healing. The word itself comes from 'lavare,' Latin for 'to wash.' By the Middle Ages, local monks were cultivating it for medicinal purposes. The real boom came in the 19th century, when the perfume industry in nearby Grasse took off. Over time, lavender fields spread across Provence, especially in high-sun, well-drained areas like Valensole. Today, 1,700 growers tend to around 62,000 acres of these shrubs. They cultivate both traditional lavender—for perfumes and skincare—and lavandin, the longer-stemmed cousin often found in household cleaning products and air fresheners. So don't just leave it to chance—plan ahead, follow the scent trail, and let your summer bloom with lavender memories.
-> 
-> 
-
-</details>
-
-| ![Lavender fields in Plateau de Valensole, France](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lavender fields in Plateau de Valensole, France](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1080x1920.jpg) |N-US5062419351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_1080x1920.jpg) |wnload landscape 4K](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1080x1920.jpg) |N-US5062419351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1080x1920.jpg) |g cliffs. Here, evidence of volcanic activity is on full display in the form of rare hexagonal basalt columns. These sea cliffs are shaped into natural sculptures so symmetrical that they look almost human-made. These striking formations were created around 2 million years ago, when thick basalt lava cooled slowly, contracting and cracking into geometric shapes that form near-perfect hexagons. Though Iceland is full of volcanic marvels, formations like these are rare, making this quiet cove truly remarkable.
 > 
