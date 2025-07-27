@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250725
+
+> Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> If you're eager to explore faraway landscapes this summer, let us take you to Las Palmas de Gran Canaria. This vibrant city is one of the capitals and the most populous city in the Canary Islands, an archipelago belonging to Spain. Located on the northeastern coast of the island of Gran Canaria, Las Palmas is home to over 380,000 people and serves as a major port and commercial hub in the Atlantic. The city's distinctive palette of painted buildings—seen here from above—adds striking color to neighborhoods like Risco de San Juan, where homes are built into the hillsides. Founded in 1478, Las Palmas has a layered history shaped by Spanish colonization, maritime trade, and migration. Today, it is known for its subtropical desert climate—with average temperatures ranging from 60°F in winter to 80°F in summer—and for Las Canteras Beach, one of the best urban beaches in Europe.
+> 
+> Thanks to its proximity to the African continent, this Spanish island offers insight into two cultures: Spanish customs and African traditions combine to form a unique blend in the heart of the volcanic archipelago.
+> 
+> 
+
+</details>
+
+| ![Colorful houses of Las Palmas de Gran Canaria, Spain](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Colorful houses of Las Palmas de Gran Canaria, Spain](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_1080x1920.jpg) |
+
 ### 20250724
 
 > Family of ashy woodswallows perched on a branch in Thailand (© Captain Skyhigh/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![National Moth Week](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Moth Week](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_1080x1920.jpg) |
-
-### 20250718
-
-> Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Gulf Islands National Seashore spans the northern Gulf of Mexico along the coasts of Florida and Mississippi, offering recreational activities and preserving natural and historic sites. Established in 1971, it boasts miles of white sand beaches, historic fortifications, and rich wildlife habitats. The seashore includes a 4,080-acre wilderness area on Mississippi's Petit Bois and Horn Islands, protecting their unique ecosystems. Besides being a perfect spot for snorkeling, hiking, and swimming, the seashore is home to a wide range of wildlife including armadillos, dolphins, pelicans, and sea turtles.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Gulf Islands National Seashore, Florida](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gulf Islands National Seashore, Florida](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_1080x1920.jpg) |wnload landscape 4K](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1080x1920.jpg) |N-US5062419351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1080x1920.jpg) |g cliffs. Here, evidence of volcanic activity is on full display in the form of rare hexagonal basalt columns. These sea cliffs are shaped into natural sculptures so symmetrical that they look almost human-made. These striking formations were created around 2 million years ago, when thick basalt lava cooled slowly, contracting and cracking into geometric shapes that form near-perfect hexagons. Though Iceland is full of volcanic marvels, formations like these are rare, making this quiet cove truly remarkable.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_1080x1920.jpg) |ivity is on full display in the form of rare hexagonal basalt columns. These sea cliffs are shaped into natural sculptures so symmetrical that they look almost human-made. These striking formations were created around 2 million years ago, when thick basalt lava cooled slowly, contracting and cracking into geometric shapes that form near-perfect hexagons. Though Iceland is full of volcanic marvels, formations like these are rare, making this quiet cove truly remarkable.
 > 
 > 
 
