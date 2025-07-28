@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250726
+
+> Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As twilight descends on Walakiri Beach on the island of Sumba, Indonesia, the silhouettes of mangrove trees stand like sentinels in the tide—graceful, resilient, and vital. Today, on International Day for the Conservation of the Mangrove Ecosystem, we honor these extraordinary trees and the critical role they play in sustaining life on our planet.
+> 
+> Mangroves are nature's coastal guardians. With their arching and salt-filtering roots, they thrive where few trees can—anchored in brackish water, enduring tides and shifting sands. They protect shorelines from erosion, buffer communities against storms, and serve as nurseries for countless marine animals. Their tangled root systems not only stabilize sediment but also provide shelter for juvenile fish, crabs, and birds. Mangroves also trap carbon at rates far higher than most forests, making them powerful allies in the fight against climate change. Yet they are disappearing at an alarming rate due to development, pollution, and rising sea levels. Let this day be a call to action. Whether through education, restoration, or advocacy, we all have a role in preserving these vital ecosystems. Because when we protect mangroves, we protect the future.
+> 
+> 
+
+</details>
+
+| ![International Day for the Conservation of the Mangrove Ecosystem](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for the Conservation of the Mangrove Ecosystem](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_1080x1920.jpg) |
+
 ### 20250725
 
 > Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Moon Day](https://cn.bing.com/th?id=OHR.BigMoon_EN-US5436003142_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Moon Day](https://cn.bing.com/th?id=OHR.BigMoon_EN-US5436003142_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BigMoon_EN-US5436003142_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BigMoon_EN-US5436003142_1080x1920.jpg) |
-
-### 20250719
-
-> Luna moth resting on cedar elm, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Every July, nature enthusiasts gather for National Moth Week to celebrate the beauty and diversity of moths. Featured in today's image is the luna moth, a species whose charm rivals that of butterflies. Also known as the American moon moth, this striking insect—with its lime-green wings and white body—can be found across North America. Its caterpillars are also green and known for their impressive size, as well as their ability to emit clicking sounds and regurgitate intestinal contents as a defense mechanism against predators.
-> 
-> National Moth Week, held during the last full week of July, encourages communities to host 'mothing' events, where participants use light or bait to attract moths for observation and data collection. This citizen science initiative began in 2012 in central New Jersey and has since expanded to over 90 countries, engaging people in the fascinating world of moths. With their incredible diversity and ecological importance, moths play crucial roles in pollination and serve as a vital food source for other wildlife.
-> 
-> So the next time you leave a light on during a balmy summer night, keep an eye out—one of these nocturnal visitors might just flutter by.
-
-</details>
-
-| ![National Moth Week](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Moth Week](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_1080x1920.jpg) |ivity is on full display in the form of rare hexagonal basalt columns. These sea cliffs are shaped into natural sculptures so symmetrical that they look almost human-made. These striking formations were created around 2 million years ago, when thick basalt lava cooled slowly, contracting and cracking into geometric shapes that form near-perfect hexagons. Though Iceland is full of volcanic marvels, formations like these are rare, making this quiet cove truly remarkable.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BigMoon_EN-US5436003142_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BigMoon_EN-US5436003142_1080x1920.jpg) |they look almost human-made. These striking formations were created around 2 million years ago, when thick basalt lava cooled slowly, contracting and cracking into geometric shapes that form near-perfect hexagons. Though Iceland is full of volcanic marvels, formations like these are rare, making this quiet cove truly remarkable.
 > 
 > 
 
