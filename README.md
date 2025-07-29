@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250727
+
+> School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Being surrounded by a shimmering spiral of silver—that's what it feels like to encounter a school of blackfin barracuda at Shark Reef in Ras Mohammed National Park, Egypt. These streamlined fish, marked by sharp V-shaped stripes, move in near-perfect unison. Their slow, deliberate spirals aren't random—they're an evolutionary strategy that offers both safety in numbers and an edge in hunting. Blackfin barracudas are found throughout tropical waters, from the Red Sea to the central Pacific. During the day, they gather in tight, coordinated groups near the reef, scattering at dusk to pursue prey.
+> 
+> Ras Mohammed, at the southern tip of Egypt's Sinai Peninsula, is known for much more than striking fish formations. As the country's first marine protected area, it shelters over 1,000 fish species and more than 200 types of coral. The park is considered a living archive of ecological complexity, where even a fleeting school of barracuda reveals a deeper story of life beneath the surface.
+> 
+> 
+
+</details>
+
+| ![Barracudas at Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Barracudas at Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_1080x1920.jpg) |
+
 ### 20250726
 
 > Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)
@@ -112,32 +131,7 @@
 
 | ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_1080x1920.jpg) |
-
-### 20250720
-
-> The moon's surface photographed through a telescope (© Sergey Kuznetsov/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Every July 20, we celebrate National Moon Day, marking the historic moment when Neil Armstrong first stepped onto the moon in 1969. Uttering the iconic words, 'That's one small step for man, one giant leap for mankind,' Armstrong became the first human to walk on the moon, followed by Buzz Aldrin.
-> 
-> The moon landing was the result of President John F. Kennedy's bold 1961 goal to send a man to the moon and return him safely before the decade's end. Apollo 11 launched from Kennedy Space Center on July 16, 1969, reaching lunar orbit by July 19. On July 20, the Eagle lunar module touched down, and the world held its breath as history unfolded.
-> 
-> Moon Day honors not just that first step, but also the science, teamwork, and peaceful international cooperation that made it possible—and continue to drive space exploration today.
-
-</details>
-
-| ![Moon Day](https://cn.bing.com/th?id=OHR.BigMoon_EN-US5436003142_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Moon Day](https://cn.bing.com/th?id=OHR.BigMoon_EN-US5436003142_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BigMoon_EN-US5436003142_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BigMoon_EN-US5436003142_1080x1920.jpg) |they look almost human-made. These striking formations were created around 2 million years ago, when thick basalt lava cooled slowly, contracting and cracking into geometric shapes that form near-perfect hexagons. Though Iceland is full of volcanic marvels, formations like these are rare, making this quiet cove truly remarkable.
-> 
-> 
-
-</details>
-
-| ![Iceland for International Rock Day](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Iceland for International Rock Day](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Iceland for International Rock Day](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1080x1920.jpg) |&c=4) |
 |:---------:|:---------:|
