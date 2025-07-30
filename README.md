@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250728
+
+> Yurts in the grasslands of Mongolia (© Michel Arnault/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Every July 28, World Nature Conservation Day reminds us that protecting nature isn't optional—it's essential. Mongolia's vast grasslands, featured today, are a powerful example. These ecosystems are among the largest intact temperate grasslands on Earth, stretching across millions of acres of open steppe. They support around 200,000 nomadic herder families and provide habitat for rare species like the Mongolian gazelle and snow leopard.
+> 
+> While the day isn't tied to a single founding organization, it aligns with the mission of global conservation leaders like the International Union for Conservation of Nature (IUCN), which has worked to protect biodiversity since 1948. That mission lives on across Mongolia's open steppe, where nomadic herder families still live in traditional white yurts that dot the grasslands like part of the ecosystem itself. Here, nature isn't just a backdrop—it's home. And Mongolia's grasslands show how people and wildlife can thrive together when ecosystems are respected and protected.
+> 
+> 
+
+</details>
+
+| ![World Nature Conservation Day](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Nature Conservation Day](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_1080x1920.jpg) |
+
 ### 20250727
 
 > School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Badlands National Park in South Dakota](https://cn.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Badlands National Park in South Dakota](https://cn.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_1080x1920.jpg) |
-
-### 20250721
-
-> Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Every third week of July, Coral Reef Awareness Week reminds us that beneath the ocean's surface lies a world as rich and complex as any rainforest. Coral reefs—like the staghorn coral pictured here off the coast of Bonaire in the Caribbean Netherlands—are home to roughly 25% of all marine species, despite covering less than 1% of the seafloor. These ecosystems not only support ocean biodiversity but also protect coastlines and drive economies through tourism and fishing.
-> 
-> But coral reefs are in crisis. Warming oceans, pollution, and overfishing have put over 70% of coral reefs at risk—a figure expected to rise in the coming years. Coral Reef Awareness Week encourages everyone to help—whether by choosing reef-safe sunscreen, joining a beach cleanup, or supporting reef conservation organizations. Every little act counts.
-> 
-> 
-
-</details>
-
-| ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Iceland for International Rock Day](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_1080x1920.jpg) |mns_EN-US4476950150_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1080x1920.jpg) |&c=4) |
 |:---------:|:---------:|
