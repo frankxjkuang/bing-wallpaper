@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250730
+
+> 'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> What do giant handshakes painted on the ground have to do with friendship? Quite a lot, actually. Celebrated every July 30, the International Day of Friendship reminds us that tackling global challenges, like poverty, violence, and injustice, starts with something surprisingly simple: human connection. That's exactly what artist Saype had in mind with 'Beyond Walls,' a series of massive, biodegradable land-art murals featuring interlinked hands. Symbolizing unity and solidarity, these works have stretched across five continents. At Expo 2020 Dubai, Saype's 11th installation covered over 16,000 square feet of grass in Al Forsan Park. It formed a striking black-and-white handshake that could only be fully appreciated from above, as seen here. The piece, made with eco-friendly paint, was unveiled on Switzerland's National Day, supported by the Swiss Pavilion.
+> 
+> Proclaimed by the UN in 2011, the International Day of Friendship calls for building bonds across borders, cultures, and generations. It's a vision of peace crafted not just in policy rooms but also on playgrounds, in neighborhoods, and in public spaces—even on the ground itself. So, today, take a cue from Saype: reach out, connect, and be part of a global human chain. Sometimes, the most powerful message begins with a single gesture.
+> 
+> 
+
+</details>
+
+| ![International Day of Friendship](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Friendship](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_1080x1920.jpg) |
+
 ### 20250729
 
 > Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)
@@ -112,30 +131,7 @@
 
 | ![Happy Cousins Day!](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Cousins Day!](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_1080x1920.jpg) |
-
-### 20250723
-
-> Vatican City with St. Peter's Basilica (© RudyBalasko/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In the middle of Rome, Italy, lies an entire country of its own: Vatican City. At just 121 acres, it's the smallest independent nation in the world, yet its reach spans centuries and continents. Home to the pope and the spiritual center of the Roman Catholic Church, this walled enclave is a blend of art, history, and devotion. At its core stands St. Peter's Basilica. Seen in the distance in today's image, this Renaissance masterpiece is built over what is believed to be the tomb of St. Peter, the first bishop of Rome. With its soaring dome dominating the skyline, the basilica is one of the largest churches in the world. Just beyond the basilica lies St. Peter's Square, where thousands gather for papal blessings. The Vatican Museums and the Sistine Chapel, which houses Michelangelo's famed ceiling, are other must-sees. Despite its size, Vatican City has its own postal service, telephone system, and banking system.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Vatican City with St. Peter's Basilica](https://cn.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vatican City with St. Peter's Basilica](https://cn.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_1080x1920.jpg) |ns_EN-US4476950150_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1080x1920.jpg) |&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
