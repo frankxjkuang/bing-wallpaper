@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250731
+
+> Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> It looks like this small creature is playing a game, right? But when a baby ring-tailed lemur wraps its tail around or gives it a tug, it's actually working on crucial skills. The infants spend their early weeks hanging tight to their mom, first clinging to her belly, and later to her back. As they grow, they separate from their mom, and tail-chasing becomes part of how they learn balance, coordination, and group play. These primates use their long tails for communication as well. Raised like flags during group movement, the tails help them stick together in open terrain. Loud, rhythmic calls, scent markings, and 'stink fights' between males add to the social drama.
+> 
+> Ring-tailed lemurs are found only in southern and southwestern Madagascar, where they live in dry forests, spiny thickets, and rocky outcrops. They live in female-dominated groups, sometimes up to 30 individuals. Habitat loss due to slash-and-burn agriculture and charcoal production has pushed them into vulnerable status, despite being one of the most studied lemurs.
+> 
+> 
+
+</details>
+
+| ![Ring-tailed lemur](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ring-tailed lemur](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_1080x1920.jpg) |
+
 ### 20250730
 
 > 'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Colorful houses of Las Palmas de Gran Canaria, Spain](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Colorful houses of Las Palmas de Gran Canaria, Spain](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_1080x1920.jpg) |
-
-### 20250724
-
-> Family of ashy woodswallows perched on a branch in Thailand (© Captain Skyhigh/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Remember the cousin who convinced you to climb the tallest tree or the one who helped you sneak an extra slice of cake at the family reunion? Today is a good time to appreciate those childhood partners in crime who made growing up way more exciting. Cousins often land somewhere between sibling and friend, getting into trouble with you, sharing inside jokes, and showing up at every family gathering. In nature, few creatures mirror that kind of togetherness better than the ashy woodswallow, pictured here. Native to South Asia, these birds are rarely seen alone. They gather in tight groups on bare branches or perch atop high places like powerlines. From there, they launch into graceful flights—flapping and gliding as they snatch insects midair.
-> 
-> Cousins Day may not come with gift guides or special sales, but it is a great reason to drop a text, make a call, or laugh over a shared memory. Cousins aren't just relatives; they're the ones who make family feel like fun. And just like these snug little woodswallows, life's a little warmer when they're close.
-> 
-> 
-
-</details>
-
-| ![Happy Cousins Day!](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Cousins Day!](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_1080x1920.jpg) |swallow_EN-US7005770998_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
