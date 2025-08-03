@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250801
+
+> Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Every August, Edinburgh stops being just a city and starts acting up—literally. From pub basements to park benches, stages appear in the strangest places, and shows pop up on quiet streets. Welcome to the Edinburgh Festival Fringe, or the Fringe. The story began in 1947, when eight theater groups turned up uninvited to the Edinburgh International Festival. They performed anyway. That spirit of rebellion stuck, and the Fringe was born.
+> 
+> Now it's the world's largest arts festival, with thousands of shows crammed into three action-packed weeks. Anyone can perform. If you have an idea and a venue, you're in. Even a shipping container counts—yes, that really happened. Comedy is the unofficial king of the festival, but there's also drama, dance, drag, musicals, magic, mime, spoken word, circus, and acts that defy all categories. One year, a man did an hour-long monologue from inside a fridge. Another year featured a full Shakespeare play in Klingon. Street performers flood the Royal Mile, pictured here, offering sneak peeks, juggling acts, and flyers.  The Edinburgh Festival Fringe is where experimental performances and high-end theater thrive. It has launched careers: think of artists like Phoebe Waller-Bridge and Eddie Izzard.
+> 
+> 
+
+</details>
+
+| ![Edinburgh Festival Fringe](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Edinburgh Festival Fringe](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |
+
 ### 20250731
 
 > Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![International Day for the Conservation of the Mangrove Ecosystem](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for the Conservation of the Mangrove Ecosystem](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_1080x1920.jpg) |
-
-### 20250725
-
-> Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> If you're eager to explore faraway landscapes this summer, let us take you to Las Palmas de Gran Canaria. This vibrant city is one of the capitals and the most populous city in the Canary Islands, an archipelago belonging to Spain. Located on the northeastern coast of the island of Gran Canaria, Las Palmas is home to over 380,000 people and serves as a major port and commercial hub in the Atlantic. The city's distinctive palette of painted buildings—seen here from above—adds striking color to neighborhoods like Risco de San Juan, where homes are built into the hillsides. Founded in 1478, Las Palmas has a layered history shaped by Spanish colonization, maritime trade, and migration. Today, it is known for its subtropical desert climate—with average temperatures ranging from 60°F in winter to 80°F in summer—and for Las Canteras Beach, one of the best urban beaches in Europe.
-> 
-> Thanks to its proximity to the African continent, this Spanish island offers insight into two cultures: Spanish customs and African traditions combine to form a unique blend in the heart of the volcanic archipelago.
-> 
-> 
-
-</details>
-
-| ![Colorful houses of Las Palmas de Gran Canaria, Spain](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Colorful houses of Las Palmas de Gran Canaria, Spain](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_1080x1920.jpg) |swallow_EN-US7005770998_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_1080x1920.jpg) |ing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
