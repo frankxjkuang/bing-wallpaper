@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250802
+
+> Petroglyphs near Fruita in Capitol Reef National Park, Utah (© Nicolas VINCENT/Adobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> There's something timeless about Capitol Reef National Park—a place where red rock cliffs, winding canyons, and ancient stories come together under Utah's desert sky. Designated a national park in 1971, Capitol Reef invites reflection—not just on its vivid geology, but on the ancient narratives and cultural heritage etched into its landscape.
+> 
+> Long before visitors laced up hiking boots and hit the trails at Capitol Reef, the Fremont and Ancestral Puebloan peoples called this place home. Between 300 and 1300 CE, they lived in pit houses and natural rock shelters, weaving farming into their hunter-gatherer lifestyle. Their connection to the land was both spiritual and practical—and they left behind some of the park's most captivating features, including petroglyphs like those found in Fruita, featured in today's image. These rock panels showcase an ancient visual language, featuring human figures adorned with headdresses and jewelry. Alongside them are animals like bighorn sheep and lizards, as well as abstract shapes alluding to ceremonies, migrations, and celestial events. Together, they form a silent archive—a timeless record of the people who lived, moved, and made meaning in this extraordinary landscape.
+> 
+> 
+
+</details>
+
+| ![Petroglyphs near Fruita in Capitol Reef National Park, Utah](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Petroglyphs near Fruita in Capitol Reef National Park, Utah](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1080x1920.jpg) |
+
 ### 20250801
 
 > Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Barracudas at Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Barracudas at Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_1080x1920.jpg) |
-
-### 20250726
-
-> Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As twilight descends on Walakiri Beach on the island of Sumba, Indonesia, the silhouettes of mangrove trees stand like sentinels in the tide—graceful, resilient, and vital. Today, on International Day for the Conservation of the Mangrove Ecosystem, we honor these extraordinary trees and the critical role they play in sustaining life on our planet.
-> 
-> Mangroves are nature's coastal guardians. With their arching and salt-filtering roots, they thrive where few trees can—anchored in brackish water, enduring tides and shifting sands. They protect shorelines from erosion, buffer communities against storms, and serve as nurseries for countless marine animals. Their tangled root systems not only stabilize sediment but also provide shelter for juvenile fish, crabs, and birds. Mangroves also trap carbon at rates far higher than most forests, making them powerful allies in the fight against climate change. Yet they are disappearing at an alarming rate due to development, pollution, and rising sea levels. Let this day be a call to action. Whether through education, restoration, or advocacy, we all have a role in preserving these vital ecosystems. Because when we protect mangroves, we protect the future.
-> 
-> 
-
-</details>
-
-| ![International Day for the Conservation of the Mangrove Ecosystem](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for the Conservation of the Mangrove Ecosystem](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_1080x1920.jpg) |ing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
