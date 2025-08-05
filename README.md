@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250803
+
+> Sunflowers in a field in summer (© Arsgera/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Bright and bold, sunflowers are loved by bees, birds, and just about everyone. The name of their genus, helianthus, comes from the Greek words for sun (helios) and flower (anthos). These annual plants are known for their large, daisy-like flowers and radiant charm. While sunflowers come in shades of red, orange, and maroon, it's the classic yellow blooms with brown centers that are the most common.
+> 
+> Beyond their good looks, sunflowers are grown for their tasty seeds, which are snacked on, pressed for cooking oil, or offered as a treat for birds. Their value isn't a modern discovery—Native Americans cultivated them thousands of years ago. Sunflowers were often planted alongside corn, beans, and squash as a symbolic 'fourth sister,' reflecting their importance long before they became garden icons. The earliest evidence of domestication in the United States comes from Tennessee and dates back to around 2300 BCE. That long-standing legacy continues today, as sunflowers remain a staple in fields and backyards.
+> 
+> 
+
+</details>
+
+| ![Blooming sunflowers](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blooming sunflowers](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_1080x1920.jpg) |
+
 ### 20250802
 
 > Petroglyphs near Fruita in Capitol Reef National Park, Utah (© Nicolas VINCENT/Adobe Stock)
@@ -112,26 +131,7 @@
 
 | ![World Nature Conservation Day](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Nature Conservation Day](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_1080x1920.jpg) |
-
-### 20250727
-
-> School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Being surrounded by a shimmering spiral of silver—that's what it feels like to encounter a school of blackfin barracuda at Shark Reef in Ras Mohammed National Park, Egypt. These streamlined fish, marked by sharp V-shaped stripes, move in near-perfect unison. Their slow, deliberate spirals aren't random—they're an evolutionary strategy that offers both safety in numbers and an edge in hunting. Blackfin barracudas are found throughout tropical waters, from the Red Sea to the central Pacific. During the day, they gather in tight, coordinated groups near the reef, scattering at dusk to pursue prey.
-> 
-> Ras Mohammed, at the southern tip of Egypt's Sinai Peninsula, is known for much more than striking fish formations. As the country's first marine protected area, it shelters over 1,000 fish species and more than 200 types of coral. The park is considered a living archive of ecological complexity, where even a fleeting school of barracuda reveals a deeper story of life beneath the surface.
-> 
-> 
-
-</details>
-
-| ![Barracudas at Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Barracudas at Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
