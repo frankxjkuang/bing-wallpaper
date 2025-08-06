@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250804
+
+> Great gray owls in their nest, Finland (© imageBROKER.com/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Silent hunters of the night sky, owls are among the most intriguing creatures in the animal kingdom. Their ability to turn their heads up to 270 degrees—combined with silent flight and exceptional night vision—showcases their remarkable adaptations. With over 200 species found across the globe, these birds contribute to ecological balance and are deeply woven into cultural traditions. Celebrated annually on August 4, International Owl Awareness Day not only honors their presence in nature but also raises awareness about the threats they face.
+> 
+> Featured here is a nesting pair of great gray owls. Known as the world's largest owl species by length, which ranges from 24 to 33 inches, they span the Northern Hemisphere and are found in both the Eastern and Western Hemispheres. Unlike many birds, they don't build their own nests—instead, they repurpose those left behind by large raptors or settle into broken treetops and hollow trunks. Despite their size and status as apex predators, they are non-aggressive, rarely clashing with rivals or intruders. However, during the fledgling stage, the female fiercely protects her vulnerable and flightless young.
+> 
+> 
+
+</details>
+
+| ![Great gray owls in their nest, Finland](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great gray owls in their nest, Finland](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_1080x1920.jpg) |
+
 ### 20250803
 
 > Sunflowers in a field in summer (© Arsgera/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![International Tiger Day](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Tiger Day](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |
-
-### 20250728
-
-> Yurts in the grasslands of Mongolia (© Michel Arnault/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Every July 28, World Nature Conservation Day reminds us that protecting nature isn't optional—it's essential. Mongolia's vast grasslands, featured today, are a powerful example. These ecosystems are among the largest intact temperate grasslands on Earth, stretching across millions of acres of open steppe. They support around 200,000 nomadic herder families and provide habitat for rare species like the Mongolian gazelle and snow leopard.
-> 
-> While the day isn't tied to a single founding organization, it aligns with the mission of global conservation leaders like the International Union for Conservation of Nature (IUCN), which has worked to protect biodiversity since 1948. That mission lives on across Mongolia's open steppe, where nomadic herder families still live in traditional white yurts that dot the grasslands like part of the ecosystem itself. Here, nature isn't just a backdrop—it's home. And Mongolia's grasslands show how people and wildlife can thrive together when ecosystems are respected and protected.
-> 
-> 
-
-</details>
-
-| ![World Nature Conservation Day](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Nature Conservation Day](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
