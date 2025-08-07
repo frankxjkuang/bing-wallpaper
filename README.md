@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250805
+
+> Tide pools in La Jolla, California (© Andrew Shoemaker/DanitaDelimont.com)
+
+<details>
+<summary>Description</summary>
+
+> Not every science lesson requires a classroom. In La Jolla, California, tide pools teach you about ocean life—right at your feet. Along the rocky shoreline of this San Diego coastal neighborhood, tide pools form during low tide as seawater gets trapped in natural depressions. These shallow pools form naturally along La Jolla's rocky shorelines, especially near Windansea Beach, Shell Beach, South Casa Beach, and Hospital Point. The water that remains trapped in sandstone and reef depressions creates habitats for everything from sea hares to brittle stars. Over time, the tide pools are created through the process of erosion—waves hit the sandstone and limestone coastlines until they carve out pockets that hold water. Twice a day, as the tide moves in and out, these spaces flood and drain, challenging the survival skills of everything inside. Winter months, when tides are lowest during daylight hours, are ideal for observing them.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Tide pools in La Jolla, California](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_EN-US9089576317_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tide pools in La Jolla, California](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_EN-US9089576317_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_EN-US9089576317_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_EN-US9089576317_1080x1920.jpg) |
+
 ### 20250804
 
 > Great gray owls in their nest, Finland (© imageBROKER.com/Alamy)
@@ -112,25 +131,7 @@
 
 | ![International Day of Friendship](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Friendship](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_1080x1920.jpg) |
-
-### 20250729
-
-> Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Think you can hear silence? Try sitting in a jeep in Kanha National Park in the heart of India, waiting for a Bengal tiger to appear. Every year, International Tiger Day draws attention to these powerful yet endangered big cats. Bengal tigers are more than their unmistakable orange coats and black stripes. They are apex predators, essential to the health and balance of the ecosystems they inhabit. By keeping prey populations like deer and wild boar in check, tigers help shape vegetation patterns and support the overall biodiversity of their environments.
-> 
-> One of the best places to see this delicate natural balance in action is Kanha National Park. Among India's oldest protected areas, it was first declared a reserve forest in 1879 and later a national park in 1955. It then became one of the first nine tiger reserves under Project Tiger in 1973, a landmark initiative launched to halt the steep decline in the species. Yet, despite decades of progress, tigers still face threats from habitat fragmentation, poaching, and conflict with humans. That's why landscapes like Kanha remain critical—not just for tigers, but for the future of forests and wildlife conservation across the planet.
-> 
-> 
-
-</details>
-
-| ![International Tiger Day](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Tiger Day](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
