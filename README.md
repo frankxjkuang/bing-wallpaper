@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250806
+
+> Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii (© Russ Bishop/DanitaDelimont.com)
+
+<details>
+<summary>Description</summary>
+
+> No road signs, no souvenir stands—just 11 miles of mud, cliffs, and sweeping views leading to one of Hawaii's most remote beaches. Kalalau Beach, at the end of Kauai's Kalalau Trail, is where tired feet meet a sandy reward. The only land access is the trail itself, a rugged trek through valleys and along coastal cliffs. During summer, some arrive by kayak, but all visitors need permits to stay.
+> 
+> Long before camping permits and composting toilets, this remote stretch supported generations of Native Hawaiians. Thanks to freshwater streams and fertile soil, early Hawaiians farmed taro (a root vegetable widely cultivated in tropical and subtropical regions) in stone terraces. Fishing, farming, and a deep spiritual connection to the land (āina) shaped daily life. Remnants of temples and house sites still lie hidden in the valley's folds. By the 1920s, most residents had left due to disease, Western contact, and shifting land use. In recent decades, off-the-grid seekers sought refuge here until state protections were implemented. Today, Kalalau is both sacred and scenic—a place where history lingers with every crashing wave.
+> 
+> 
+
+</details>
+
+| ![Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg) |
+
 ### 20250805
 
 > Tide pools in La Jolla, California (© Andrew Shoemaker/DanitaDelimont.com)
@@ -112,26 +131,7 @@
 
 | ![Ring-tailed lemur](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ring-tailed lemur](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_1080x1920.jpg) |
-
-### 20250730
-
-> 'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> What do giant handshakes painted on the ground have to do with friendship? Quite a lot, actually. Celebrated every July 30, the International Day of Friendship reminds us that tackling global challenges, like poverty, violence, and injustice, starts with something surprisingly simple: human connection. That's exactly what artist Saype had in mind with 'Beyond Walls,' a series of massive, biodegradable land-art murals featuring interlinked hands. Symbolizing unity and solidarity, these works have stretched across five continents. At Expo 2020 Dubai, Saype's 11th installation covered over 16,000 square feet of grass in Al Forsan Park. It formed a striking black-and-white handshake that could only be fully appreciated from above, as seen here. The piece, made with eco-friendly paint, was unveiled on Switzerland's National Day, supported by the Swiss Pavilion.
-> 
-> Proclaimed by the UN in 2011, the International Day of Friendship calls for building bonds across borders, cultures, and generations. It's a vision of peace crafted not just in policy rooms but also on playgrounds, in neighborhoods, and in public spaces—even on the ground itself. So, today, take a cue from Saype: reach out, connect, and be part of a global human chain. Sometimes, the most powerful message begins with a single gesture.
-> 
-> 
-
-</details>
-
-| ![International Day of Friendship](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Friendship](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_1080x1920.jpg) |pe 4K](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
