@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250807
+
+> Gasparilla Island Rear Range Light, Boca Grande, Florida (© Wiltser/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Before GPS told ships where to go, lighthouses lit the way—each with its own flash pattern so sailors could figure out where they were, even in total darkness. It's National Lighthouse Day, a perfect excuse to give these coastal workhorses some credit. In 1789, Congress passed a law to make sure all lighthouses were taken care of by the federal government. Whether you're a history buff, coastal explorer, or just into old engineering, today is a great day to learn more about lighthouses or visit one with your friends and family.
+> 
+> Like many lighthouses around the world, Florida's Gasparilla Island Lights still hold their ground. The Gasparilla Island Rear Range Light, seen in today's image, has had quite a journey. Originally assembled in Delaware, it found its forever home here in 1927 but was decommissioned by the Coast Guard in 2014. The lighthouse was restored to its former glory in 2017 and was switched on again in 2018. Today, it blinks white every six seconds. Both lights are listed on the National Register of Historic Places. The lighthouse grounds and museum are open to visitors seasonally, offering insights into the area's shipping past.
+> 
+> 
+
+</details>
+
+| ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_1080x1920.jpg) |
+
 ### 20250806
 
 > Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii (© Russ Bishop/DanitaDelimont.com)
@@ -112,26 +131,7 @@
 
 | ![Edinburgh Festival Fringe](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Edinburgh Festival Fringe](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |
-
-### 20250731
-
-> Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> It looks like this small creature is playing a game, right? But when a baby ring-tailed lemur wraps its tail around or gives it a tug, it's actually working on crucial skills. The infants spend their early weeks hanging tight to their mom, first clinging to her belly, and later to her back. As they grow, they separate from their mom, and tail-chasing becomes part of how they learn balance, coordination, and group play. These primates use their long tails for communication as well. Raised like flags during group movement, the tails help them stick together in open terrain. Loud, rhythmic calls, scent markings, and 'stink fights' between males add to the social drama.
-> 
-> Ring-tailed lemurs are found only in southern and southwestern Madagascar, where they live in dry forests, spiny thickets, and rocky outcrops. They live in female-dominated groups, sometimes up to 30 individuals. Habitat loss due to slash-and-burn agriculture and charcoal production has pushed them into vulnerable status, despite being one of the most studied lemurs.
-> 
-> 
-
-</details>
-
-| ![Ring-tailed lemur](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ring-tailed lemur](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_1080x1920.jpg) |pe 4K](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
