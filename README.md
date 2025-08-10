@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250808
+
+> Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> No voice is loud enough to drown out the roar of Iguazú Falls. But it's not just the sound. The sheer presence of this natural wonder is overwhelming as it straddles the border between Argentina and Brazil. This vast waterfall system stretches nearly 2 miles and features more than 270 individual cascades, each offering a unique display of tumbling water and shimmering mist.
+> 
+> Today's image captures one of the spectacular sights on the Argentine side—the Three Musketeers Falls, a trio of powerful streams plunging side by side into the Iguazú River below, framed by lush subtropical rainforest. Interestingly, although the falls are located in Argentina, they are only visible and accessible from the Brazilian side.
+> 
+> The falls are part of Iguazú National Park, a UNESCO World Heritage Site that protects the region's rich biodiversity and offers visitors a network of trails and catwalks for panoramic views and close-up encounters with the thundering water. Open your senses to nature's wonders—and return its generosity. Leave no trace and take only memories with you.
+
+</details>
+
+| ![Three Musketeers Falls at Iguazú Falls, Argentina](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Three Musketeers Falls at Iguazú Falls, Argentina](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_1080x1920.jpg) |
+
 ### 20250807
 
 > Gasparilla Island Rear Range Light, Boca Grande, Florida (© Wiltser/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Petroglyphs near Fruita in Capitol Reef National Park, Utah](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Petroglyphs near Fruita in Capitol Reef National Park, Utah](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1080x1920.jpg) |
-
-### 20250801
-
-> Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Every August, Edinburgh stops being just a city and starts acting up—literally. From pub basements to park benches, stages appear in the strangest places, and shows pop up on quiet streets. Welcome to the Edinburgh Festival Fringe, or the Fringe. The story began in 1947, when eight theater groups turned up uninvited to the Edinburgh International Festival. They performed anyway. That spirit of rebellion stuck, and the Fringe was born.
-> 
-> Now it's the world's largest arts festival, with thousands of shows crammed into three action-packed weeks. Anyone can perform. If you have an idea and a venue, you're in. Even a shipping container counts—yes, that really happened. Comedy is the unofficial king of the festival, but there's also drama, dance, drag, musicals, magic, mime, spoken word, circus, and acts that defy all categories. One year, a man did an hour-long monologue from inside a fridge. Another year featured a full Shakespeare play in Klingon. Street performers flood the Royal Mile, pictured here, offering sneak peeks, juggling acts, and flyers.  The Edinburgh Festival Fringe is where experimental performances and high-end theater thrive. It has launched careers: think of artists like Phoebe Waller-Bridge and Eddie Izzard.
-> 
-> 
-
-</details>
-
-| ![Edinburgh Festival Fringe](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Edinburgh Festival Fringe](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
