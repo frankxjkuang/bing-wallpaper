@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250809
+
+> Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Each year on August 9, the United Nations observes the International Day of the World's Indigenous Peoples—a moment to recognize the resilience, wisdom, and cultural richness of Indigenous communities around the globe. In the US, this day invites reflection on the histories and contributions of Native American nations, while also encouraging solidarity with Indigenous peoples worldwide.
+> 
+> One striking example of Indigenous heritage is found across the Pacific in New Zealand. Carved into the cliffs of Lake Taupō, the Ngātoroirangi Mine Bay Māori Rock Carvings stand as a powerful tribute to Māori ancestors. Created by artist Matahi Whakataka-Brightwell, these towering figures are accessible only by water, symbolizing both reverence and resilience. They remind us that Indigenous cultures are not relics of the past—they are living, evolving, and deeply connected to the land.
+> 
+> As we honor this day, let's commit to listening, learning, and supporting Indigenous rights—both at home and abroad. Whether through education, advocacy, or cultural exchange, every action helps preserve the voices that have long protected our planet.
+
+</details>
+
+| ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_1080x1920.jpg) |
+
 ### 20250808
 
 > Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Blooming sunflowers](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blooming sunflowers](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_1080x1920.jpg) |
-
-### 20250802
-
-> Petroglyphs near Fruita in Capitol Reef National Park, Utah (© Nicolas VINCENT/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> There's something timeless about Capitol Reef National Park—a place where red rock cliffs, winding canyons, and ancient stories come together under Utah's desert sky. Designated a national park in 1971, Capitol Reef invites reflection—not just on its vivid geology, but on the ancient narratives and cultural heritage etched into its landscape.
-> 
-> Long before visitors laced up hiking boots and hit the trails at Capitol Reef, the Fremont and Ancestral Puebloan peoples called this place home. Between 300 and 1300 CE, they lived in pit houses and natural rock shelters, weaving farming into their hunter-gatherer lifestyle. Their connection to the land was both spiritual and practical—and they left behind some of the park's most captivating features, including petroglyphs like those found in Fruita, featured in today's image. These rock panels showcase an ancient visual language, featuring human figures adorned with headdresses and jewelry. Alongside them are animals like bighorn sheep and lizards, as well as abstract shapes alluding to ceremonies, migrations, and celestial events. Together, they form a silent archive—a timeless record of the people who lived, moved, and made meaning in this extraordinary landscape.
-> 
-> 
-
-</details>
-
-| ![Petroglyphs near Fruita in Capitol Reef National Park, Utah](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Petroglyphs near Fruita in Capitol Reef National Park, Utah](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_1080x1920.jpg) |yphs_EN-US8712481828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
