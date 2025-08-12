@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250810
+
+> Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> With a roar that echoes across the plains, lions have long captured the human imagination. On August 10, World Lion Day invites us to celebrate these iconic big cats while raising awareness about their declining numbers and the urgent need for conservation.
+> 
+> One of the best places to witness lions in the wild is Maasai Mara National Reserve in Kenya. Nestled in the heart of East Africa, this vast savanna is home to around 850 to 900 lions. The reserve's rich ecosystem and seasonal wildebeest migration offer a front-row seat to the drama of lion life—from territorial battles to cooperative hunts. But Maasai Mara is more than a wildlife haven; it's a model for community-led conservation. Local Maasai communities work alongside conservationists to protect both lions and their ancestral lands, showing that coexistence is not only possible but powerful. On World Lion Day, let's honor these majestic animals by supporting efforts that ensure their survival—for the health of ecosystems and the heritage of future generations.
+> 
+> 
+
+</details>
+
+| ![World Lion Day](https://cn.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lion Day](https://cn.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_1080x1920.jpg) |
+
 ### 20250809
 
 > Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Great gray owls in their nest, Finland](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great gray owls in their nest, Finland](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_1080x1920.jpg) |
-
-### 20250803
-
-> Sunflowers in a field in summer (© Arsgera/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Bright and bold, sunflowers are loved by bees, birds, and just about everyone. The name of their genus, helianthus, comes from the Greek words for sun (helios) and flower (anthos). These annual plants are known for their large, daisy-like flowers and radiant charm. While sunflowers come in shades of red, orange, and maroon, it's the classic yellow blooms with brown centers that are the most common.
-> 
-> Beyond their good looks, sunflowers are grown for their tasty seeds, which are snacked on, pressed for cooking oil, or offered as a treat for birds. Their value isn't a modern discovery—Native Americans cultivated them thousands of years ago. Sunflowers were often planted alongside corn, beans, and squash as a symbolic 'fourth sister,' reflecting their importance long before they became garden icons. The earliest evidence of domestication in the United States comes from Tennessee and dates back to around 2300 BCE. That long-standing legacy continues today, as sunflowers remain a staple in fields and backyards.
-> 
-> 
-
-</details>
-
-| ![Blooming sunflowers](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blooming sunflowers](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_1080x1920.jpg) |yphs_EN-US8712481828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_1080x1920.jpg) |81828_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
