@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250813
+
+> A man rappels off Corona Arch near Moab, Utah (© Grant Ordelheide/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Just outside Arches National Park in Utah lies a natural wonder that rises like a colossal doorway against the sky, drawing photographers, nature lovers, and hikers. Welcome to Corona Arch, seen in today's image, a towering Navajo sandstone formation that offers big adventure without the big crowds. The Corona Arch Trail starts off easy but packs a punch of scenery: railroad tracks, slickrock scrambles, and even a metal cable assist make it more than just a walk in the desert. After 1.5 miles of walking, the payoff is big: a massive arch that's 140 feet wide and 105 feet high. It's so large that people once swung from it on ropes, until that was banned for safety reasons. Even without the adrenaline stunts, the hike offers beautiful views and unforgettable moments in the heart of Red Rock Country. Also known as Little Rainbow Bridge, it shares visual similarities with the iconic Rainbow Bridge arch near Lake Powell—but Corona Arch holds its own in a more peaceful setting.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Corona Arch near Moab, Utah](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Corona Arch near Moab, Utah](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_1080x1920.jpg) |
+
 ### 20250812
 
 > African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)
@@ -112,25 +131,7 @@
 
 | ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_1080x1920.jpg) |
-
-### 20250806
-
-> Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii (© Russ Bishop/DanitaDelimont.com)
-
-<details>
-<summary>Description</summary>
-
-> No road signs, no souvenir stands—just 11 miles of mud, cliffs, and sweeping views leading to one of Hawaii's most remote beaches. Kalalau Beach, at the end of Kauai's Kalalau Trail, is where tired feet meet a sandy reward. The only land access is the trail itself, a rugged trek through valleys and along coastal cliffs. During summer, some arrive by kayak, but all visitors need permits to stay.
-> 
-> Long before camping permits and composting toilets, this remote stretch supported generations of Native Hawaiians. Thanks to freshwater streams and fertile soil, early Hawaiians farmed taro (a root vegetable widely cultivated in tropical and subtropical regions) in stone terraces. Fishing, farming, and a deep spiritual connection to the land (āina) shaped daily life. Remnants of temples and house sites still lie hidden in the valley's folds. By the 1920s, most residents had left due to disease, Western contact, and shifting land use. In recent decades, off-the-grid seekers sought refuge here until state protections were implemented. Today, Kalalau is both sacred and scenic—a place where history lingers with every crashing wave.
-> 
-> 
-
-</details>
-
-| ![Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_1080x1920.jpg) |--:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg) |920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
