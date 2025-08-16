@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250814
+
+> Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> There's a mountain in Switzerland that's always looking down on you—but don't take it personally. At 10,026 feet, Piz Nair of the Albula Alps keeps an eye over the Engadine valley in Graubünden. Start in St. Moritz: hop on the funicular (a type of cable railway system) to Corviglia, then ride the cable car to the summit. At the top? A viewing platform and that famous ibex (an alpine goat) statue. There's also a restaurant where you can eat inside a glass cube with 360° views.
+> 
+> This alpine peak hosted the 1948 Winter Olympics and still boasts some of the most famous ski runs in the country. The 'Piz Nair Wall' is known for its challenging downhill skiing and events like the 2003 World Championship downhill race. Come summer, the snow clears but the trails stay hot. Hikers and mountain bikers flock here to explore alpine meadows, and soak in a different kind of silence. Guided tours and well-marked paths make it easy to find your footing. So, whether you're chasing snow, sun, or just a break from sea-level boredom, this Swiss giant will lift your spirits—literally.
+> 
+> 
+
+</details>
+
+| ![Cable car station, Graubünden, Switzerland](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cable car station, Graubünden, Switzerland](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |
+
 ### 20250813
 
 > A man rappels off Corona Arch near Moab, Utah (© Grant Ordelheide/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Three Musketeers Falls at Iguazú Falls, Argentina](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Three Musketeers Falls at Iguazú Falls, Argentina](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_1080x1920.jpg) |
-
-### 20250807
-
-> Gasparilla Island Rear Range Light, Boca Grande, Florida (© Wiltser/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Before GPS told ships where to go, lighthouses lit the way—each with its own flash pattern so sailors could figure out where they were, even in total darkness. It's National Lighthouse Day, a perfect excuse to give these coastal workhorses some credit. In 1789, Congress passed a law to make sure all lighthouses were taken care of by the federal government. Whether you're a history buff, coastal explorer, or just into old engineering, today is a great day to learn more about lighthouses or visit one with your friends and family.
-> 
-> Like many lighthouses around the world, Florida's Gasparilla Island Lights still hold their ground. The Gasparilla Island Rear Range Light, seen in today's image, has had quite a journey. Originally assembled in Delaware, it found its forever home here in 1927 but was decommissioned by the Coast Guard in 2014. The lighthouse was restored to its former glory in 2017 and was switched on again in 2018. Today, it blinks white every six seconds. Both lights are listed on the National Register of Historic Places. The lighthouse grounds and museum are open to visitors seasonally, offering insights into the area's shipping past.
-> 
-> 
-
-</details>
-
-| ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_1080x1920.jpg) |--:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_1080x1920.jpg) |GasparillaLight_EN-US0554204214_1080x1920.jpg) |--:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg) |920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
