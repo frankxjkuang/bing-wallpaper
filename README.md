@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250815
+
+> Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> It's a bird, it's a plane, it's … a fish! Gliding through the ocean with flapping fins and polka-dot flair, the spotted eagle ray refuses to blend in. It doesn't crawl along the seabed like its stingray cousins—it flies underwater. The species gets its name from—you guessed it—its protruding snout, which resembles an eagle's beak, and its distinctive spotted back, which is unique to each individual, much like fingerprints. Their wing-like pectoral fins can span up to 10 feet. Near the base of the long tail are venomous spines, in case a predator gets too close. These rays aren't aggressive, but they're not defenseless either.
+> 
+> These creatures are often seen alone, but when they travel in groups, it's a show worth watching. Dozens can glide together in perfect sync, like the ones photographed near San Cristóbal Island in Ecuador. They are also known to leap out of the water, sometimes completely clearing the surface, proving you don't need feathers to fly. Despite their elegance, spotted eagle rays are currently listed as near threatened. Their populations are declining due to various threats, including bycatch and habitat degradation.
+> 
+> 
+
+</details>
+
+| ![Spotted eagle rays in the Galápagos Islands](https://cn.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spotted eagle rays in the Galápagos Islands](https://cn.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_1080x1920.jpg) |
+
 ### 20250814
 
 > Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)
@@ -112,27 +131,7 @@
 
 | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_1080x1920.jpg) |
-
-### 20250808
-
-> Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> No voice is loud enough to drown out the roar of Iguazú Falls. But it's not just the sound. The sheer presence of this natural wonder is overwhelming as it straddles the border between Argentina and Brazil. This vast waterfall system stretches nearly 2 miles and features more than 270 individual cascades, each offering a unique display of tumbling water and shimmering mist.
-> 
-> Today's image captures one of the spectacular sights on the Argentine side—the Three Musketeers Falls, a trio of powerful streams plunging side by side into the Iguazú River below, framed by lush subtropical rainforest. Interestingly, although the falls are located in Argentina, they are only visible and accessible from the Brazilian side.
-> 
-> The falls are part of Iguazú National Park, a UNESCO World Heritage Site that protects the region's rich biodiversity and offers visitors a network of trails and catwalks for panoramic views and close-up encounters with the thundering water. Open your senses to nature's wonders—and return its generosity. Leave no trace and take only memories with you.
-
-</details>
-
-| ![Three Musketeers Falls at Iguazú Falls, Argentina](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Three Musketeers Falls at Iguazú Falls, Argentina](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_1080x1920.jpg) |GasparillaLight_EN-US0554204214_1080x1920.jpg) |--:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg) |920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_1080x1920.jpg) |bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg) |920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
