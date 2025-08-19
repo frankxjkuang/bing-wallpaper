@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250817
+
+> Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Built to brave storms and steer ships to safety, lighthouses now glow as symbols of heritage, wonder, and connection. Each year on the third weekend of August, the International Lighthouse Lightship Weekend brings together people from around the globe to celebrate these coastal icons. The event was launched in 1998 by John Forsyth and Mike Dalrymple of Scotland's Ayr Amateur Radio Group. It aims to raise awareness about preserving lighthouses and lightships while also promoting amateur radio and encouraging international goodwill.
+> 
+> Among the many lighthouses that carry this legacy forward is the Lyngvig Lighthouse in Denmark, featured here. Standing over 120 feet tall, this tower was built in 1906 atop a 55-foot dune along the west coast of Jutland—the country's westernmost region. Made with a concrete foundation and brick walls, and finished with teak-framed windows and doors, the lighthouse originally required a team of three keepers. They maintained its light until 1965. It has been operating automatically ever since. Following a temporary closure in 2024 due to structural concerns, the lighthouse is now open to the public again.
+> 
+> 
+
+</details>
+
+| ![International Lighthouse Lightship Weekend](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Lighthouse Lightship Weekend](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1080x1920.jpg) |
+
 ### 20250816
 
 > Colorful beehives in Italy (© Roberto Caucino/Shutterstock)
@@ -112,27 +131,7 @@
 
 | ![Village of Santa Maddalena, Dolomites, Italy](https://cn.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Santa Maddalena, Dolomites, Italy](https://cn.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_1080x1920.jpg) |
-
-### 20250810
-
-> Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> With a roar that echoes across the plains, lions have long captured the human imagination. On August 10, World Lion Day invites us to celebrate these iconic big cats while raising awareness about their declining numbers and the urgent need for conservation.
-> 
-> One of the best places to witness lions in the wild is Maasai Mara National Reserve in Kenya. Nestled in the heart of East Africa, this vast savanna is home to around 850 to 900 lions. The reserve's rich ecosystem and seasonal wildebeest migration offer a front-row seat to the drama of lion life—from territorial battles to cooperative hunts. But Maasai Mara is more than a wildlife haven; it's a model for community-led conservation. Local Maasai communities work alongside conservationists to protect both lions and their ancestral lands, showing that coexistence is not only possible but powerful. On World Lion Day, let's honor these majestic animals by supporting efforts that ensure their survival—for the health of ecosystems and the heritage of future generations.
-> 
-> 
-
-</details>
-
-| ![World Lion Day](https://cn.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lion Day](https://cn.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_1080x1920.jpg) |---:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_1080x1920.jpg) |bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg) |920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_1080x1920.jpg) |g.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg) |920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
