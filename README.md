@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250818
+
+> Avalanche Lake Trail at Adirondack High Peaks, New York (© Posnov/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> There's no easing into the wild here—the Avalanche Lake Trail carves a bold path through rock scrambles, narrow ledges, and alpine serenity. Tucked away in New York's Adirondack High Peaks, this 9-acre alpine lake sits at nearly 2,900 feet between Mount Colden and Avalanche Mountain. Shaped by ancient glaciers, the lake is framed by dramatic cliffs and rugged terrain that echo its icy origins. Its most striking feature is the Trap Dike—a towering 1,200-foot rock canyon flanked by steep walls, making the lake one of the most awe-inspiring sights in the Adirondacks. Massive avalanches carved these cliffs, leaving behind the dramatic landscape that gave Avalanche Lake its name. The Avalanche Lake Trail begins at the Adirondack Loj, a well-known launch point for adventures in the High Peaks. Spanning about 9.6 miles round trip with a 1,350-foot elevation gain, the hike may seem manageable on paper—but it's the uneven terrain that truly tests your mettle.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Avalanche Lake Trail at Adirondack High Peaks, New York](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Avalanche Lake Trail at Adirondack High Peaks, New York](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_1080x1920.jpg) |
+
 ### 20250817
 
 > Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Elephant Day](https://cn.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Elephant Day](https://cn.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_1080x1920.jpg) |
-
-### 20250811
-
-> Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Tucked into the northern Italian Alps, the village of Santa Maddalena is a postcard-perfect hamlet in South Tyrol's valley of Val di Funes. With its iconic church steeple set against the jagged peaks of the Dolomites—a mountain range in the Alps—it's one of the most photographed spots in the region. The Dolomites themselves—a UNESCO World Heritage Site—rise dramatically behind the village, their pale limestone faces glowing pink at sunset in a phenomenon locals call 'enrosadira.'
-> 
-> Santa Maddalena is small, quiet, and deeply rooted in local Ladin and Tyrolean traditions. Wooden chalets dot the green hills, and cows graze in meadows that seem painted into place. Although it feels remote, the village is a gateway to some of the Dolomites' best hiking, including trails through Puez-Odle Nature Park. In winter, it's a peaceful base for snowshoeing and cross-country skiing. Visitors come not for crowds or nightlife, but for silence, scenery, and a sense of timelessness. Santa Maddalena is where nature and culture meet in harmony—no filter needed.
-> 
-> 
-
-</details>
-
-| ![Village of Santa Maddalena, Dolomites, Italy](https://cn.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Santa Maddalena, Dolomites, Italy](https://cn.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_1080x1920.jpg) |g.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg) |920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_1080x1920.jpg) |g.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg) |920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
