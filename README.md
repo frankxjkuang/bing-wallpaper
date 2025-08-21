@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250819
+
+> Solar Impulse 2 at Kalaeloa Airport, Honolulu, Hawaii (© Solar Impulse/Revillard/Sipa/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Planes, progress, and a whole lot of sky. National Aviation Day gives us a reason to pause and appreciate how aviation has shaped the modern world—and the innovators who dared to dream of flight. The national day was established in 1939 by President Franklin D. Roosevelt to honor Orville Wright's contributions to aviation. Wright, born on this day in 1871, achieved the first powered, controlled flight in 1903 along with his brother Wilbur. The day is recognized as an opportunity to promote the advancement of aviation through public events and educational activities. Many aviation museums offer free or discounted entry, and airfields often hold open houses to engage the community.
+> 
+> The Solar Impulse project is a remarkable milestone in modern aviation. In July 2010, the Solar Impulse prototype completed a 26-hour test flight powered only by the sun. It flew through the day and night without using fuel—a key step in proving solar-powered flight was possible. Building on this, Solar Impulse 2, seen in today's image, successfully completed the first solar-powered flight around the world from 2015 to 2016, covering over 26,000 miles without burning fossil fuels. These flights show how aviation can push forward into cleaner, more sustainable territory.
+> 
+> 
+
+</details>
+
+| ![Solar Impulse 2 in Honolulu](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Solar Impulse 2 in Honolulu](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg) |
+
 ### 20250818
 
 > Avalanche Lake Trail at Adirondack High Peaks, New York (© Posnov/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Corona Arch near Moab, Utah](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Corona Arch near Moab, Utah](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_1080x1920.jpg) |
-
-### 20250812
-
-> African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Big ears, bigger hearts—elephants are more than just icons of the wild. Every year on August 12, we celebrate World Elephant Day—a global movement to raise awareness about the majestic giants that roam places like Amboseli National Park in Kenya, pictured here. What makes elephants so extraordinary isn't just their size; it's their minds. These animals have incredible memories. Matriarchs, the oldest females, can recall the locations of water sources from decades past, and they use that knowledge to lead their herds through tough times. Their social bonds run just as deep. Elephants live in close-knit families, mourn their dead, and have even been observed comforting one another during hard times.
-> 
-> But even in protected spaces like Amboseli, elephants face threats. Habitat loss, climate change, and the illegal ivory trade continue to take a toll. World Elephant Day is more than a celebration; it's a reminder that without our help, even these mighty animals could quietly disappear. So, as you admire this African elephant herd in the image today, remember: each elephant carries a lifetime of memories and a future worth fighting for.
-> 
-> 
-
-</details>
-
-| ![World Elephant Day](https://cn.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Elephant Day](https://cn.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_1080x1920.jpg) |g.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg) |920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_1080x1920.jpg) |ait 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg) |920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
