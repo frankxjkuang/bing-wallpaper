@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250820
+
+> The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Set at Corsica's southern edge, Bonifacio looks out across a narrow strait to Sardinia, its limestone cliffs towering above the waves. Bonifacio didn't begin as a picturesque tourist destination—it was originally established as a coastal fortification and has spent centuries guarding one of the Mediterranean's busiest sea lanes. Established in 828 CE by Boniface II of Tuscany, the commune gradually became a meeting point for traders, soldiers, and sailors—each group contributing to the evolution of the town's structure. Bonifacio is divided into two sections, with the 'vieille ville' (old town)—also known as 'la Haute Ville' (the Upper City)—standing on a high cliff within the original citadel walls. Below, the marine area lines the narrow inlet with harbors, waterfront homes, and a growing valley community.
+> 
+> While here, the Bonifacio Citadel is a must-see. First built in the 9th century and expanded over time, it invites visitors to wander through quiet passageways, old military buildings, and cobblestone streets. Nearby, you can explore the Marine Cemetery, climb the King of Aragon's Stairway, and visit the Bastion de l'Étendard, now home to a small museum.
+> 
+> 
+
+</details>
+
+| ![The citadel in Bonifacio, Southern Corsica, France](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The citadel in Bonifacio, Southern Corsica, France](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1080x1920.jpg) |
+
 ### 20250819
 
 > Solar Impulse 2 at Kalaeloa Airport, Honolulu, Hawaii (© Solar Impulse/Revillard/Sipa/Shutterstock)
@@ -112,27 +131,7 @@
 
 | ![Cable car station, Graubünden, Switzerland](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cable car station, Graubünden, Switzerland](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |
-
-### 20250813
-
-> A man rappels off Corona Arch near Moab, Utah (© Grant Ordelheide/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Just outside Arches National Park in Utah lies a natural wonder that rises like a colossal doorway against the sky, drawing photographers, nature lovers, and hikers. Welcome to Corona Arch, seen in today's image, a towering Navajo sandstone formation that offers big adventure without the big crowds. The Corona Arch Trail starts off easy but packs a punch of scenery: railroad tracks, slickrock scrambles, and even a metal cable assist make it more than just a walk in the desert. After 1.5 miles of walking, the payoff is big: a massive arch that's 140 feet wide and 105 feet high. It's so large that people once swung from it on ropes, until that was banned for safety reasons. Even without the adrenaline stunts, the hike offers beautiful views and unforgettable moments in the heart of Red Rock Country. Also known as Little Rainbow Bridge, it shares visual similarities with the iconic Rainbow Bridge arch near Lake Powell—but Corona Arch holds its own in a more peaceful setting.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Corona Arch near Moab, Utah](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Corona Arch near Moab, Utah](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_1080x1920.jpg) |ait 4K](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1080x1920.jpg) |920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1080x1920.jpg) |i_EN-US5078679271_1080x1920.jpg) |---:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
