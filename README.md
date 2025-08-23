@@ -1,51 +1,89 @@
 ## bing wallpaper
 
-### 20250820
+### 20250822
 
-> The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)
+> 帕卢斯连绵起伏的丘陵，华盛顿州，美国 (© svetlana57/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Set at Corsica's southern edge, Bonifacio looks out across a narrow strait to Sardinia, its limestone cliffs towering above the waves. Bonifacio didn't begin as a picturesque tourist destination—it was originally established as a coastal fortification and has spent centuries guarding one of the Mediterranean's busiest sea lanes. Established in 828 CE by Boniface II of Tuscany, the commune gradually became a meeting point for traders, soldiers, and sailors—each group contributing to the evolution of the town's structure. Bonifacio is divided into two sections, with the 'vieille ville' (old town)—also known as 'la Haute Ville' (the Upper City)—standing on a high cliff within the original citadel walls. Below, the marine area lines the narrow inlet with harbors, waterfront homes, and a growing valley community.
+> 一波又一波的柔软丘陵绵延于帕卢斯地区。这片宁静的区域位于华盛顿州东南部，向爱达荷州和俄勒冈州的边界延伸。覆盖着小麦的坡地随着季节更迭而变换色彩。春季，丘陵呈现出郁郁葱葱的绿色，年轻的小麦和大麦开始生长；夏季则转变为干燥的金黄色，作物即将收割。
 > 
-> While here, the Bonifacio Citadel is a must-see. First built in the 9th century and expanded over time, it invites visitors to wander through quiet passageways, old military buildings, and cobblestone streets. Nearby, you can explore the Marine Cemetery, climb the King of Aragon's Stairway, and visit the Bastion de l'Étendard, now home to a small museum.
+> 常被誉为华盛顿州最宁静的自然奇观之一，帕卢斯地区标志性的起伏山丘源于一段古老而引人入胜的地质故事。这些类似沙丘的山丘并非由河流或地壳运动塑造，而是由来自干旱西南部的风吹尘土和细粒淤泥（即“黄土”）在数千年中逐渐堆积而成。在冰河时代，来自加拿大的冰川将岩石磨成细小的“冰川粉”，这些粉尘流入史前时期的冰川密苏拉湖。当冰坝决堤时，洪水席卷了华盛顿州东部，留下层层淤泥。随后，主导风将这些尘埃带到该地区，沉积成我们今天所见的丘陵。
 > 
 > 
 
 </details>
 
-| ![The citadel in Bonifacio, Southern Corsica, France](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The citadel in Bonifacio, Southern Corsica, France](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![帕卢斯连绵起伏的丘陵，华盛顿州](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![帕卢斯连绵起伏的丘陵，华盛顿州](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_1080x1920.jpg) |
+
+### 20250821
+
+> 穗䳭和盛开的帚石楠，峰区国家公园，英格兰 (© Ben Hall/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> 即便你不是鸟类专家，也不难注意到白尾穗䳭在开阔地面上快速飞奔的身影。这些地栖鸣禽属于水芹属，以直立的姿态和在栖木之间跳跃或奔跑的习性而闻名。尽管名称听起来与谷物有关，白尾穗䳭其实与小麦毫无关系，其名称是“白屁股”这一古老短语的变体，源于该属大多数鸟类所拥有的醒目白色臀部。全球大约有20种白尾穗䳭，但在美国，人们最有可能遇到的是北方穗䳭。这类小鸟体重不足一盎司，却能在阿拉斯加和加拿大北部的夏季栖息地与非洲的越冬地之间往返数千英里。它们的迁徙路线横跨海洋与大陆，是同等体型鸟类中最长的之一。与许多常见的后院鸣禽不同，穗䳭偏爱低矮植被覆盖的开阔地带，在那里它们能够奔跑并迅速扑向昆虫。虽然北美的大多数观鸟者只有在更偏远的北方才能看到它们的身影，但穗䳭在欧洲、亚洲和非洲却分布广泛。
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![穗䳭，峰区国家公园，英格兰](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![穗䳭，峰区国家公园，英格兰](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN3286472001_1080x1920.jpg) |
+
+### 20250820
+
+> 博尼法乔城堡，科西嘉岛南部，法国 (© Marc Dozier/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 位于科西嘉岛南端边缘的博尼法乔，隔着狭窄的海峡遥望撒丁岛，石灰岩峭壁高耸于海浪之上。最初，这里并非风景如画的旅游胜地，而是作为沿海防御工事而建立，在数百年间守护着地中海最繁忙的航道之一。公元828年，托斯卡纳的博尼法斯二世创建了博尼法乔公社，这里逐渐成为商人、士兵与水手聚集的地方，各方人群共同推动了城镇的发展。博尼法乔分为两部分：老城区（又称上城）位于高耸的悬崖之上，坐落在最初的城堡围墙内；而下方的滨海区则沿着狭长的海湾分布，拥有港口、海边住宅和日益发展的山谷社区。
+> 
+> 在博尼法乔，城堡是不可错过的地标。这座城堡最初建于9世纪，后来不断扩建。如今，游客可以漫步在宁静的街道、古老的军事建筑与鹅卵石铺就的小巷中。周边还有“海洋公墓”、阿拉贡国王台阶，以及如今作为小型博物馆开放的旗帜堡垒等景点，等待人们前来探索。
+> 
+> 
+
+</details>
+
+| ![博尼法乔城堡，科西嘉岛南部，法国](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![博尼法乔城堡，科西嘉岛南部，法国](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_1080x1920.jpg) |
 
 ### 20250819
 
-> Solar Impulse 2 at Kalaeloa Airport, Honolulu, Hawaii (© Solar Impulse/Revillard/Sipa/Shutterstock)
+> 祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Planes, progress, and a whole lot of sky. National Aviation Day gives us a reason to pause and appreciate how aviation has shaped the modern world—and the innovators who dared to dream of flight. The national day was established in 1939 by President Franklin D. Roosevelt to honor Orville Wright's contributions to aviation. Wright, born on this day in 1871, achieved the first powered, controlled flight in 1903 along with his brother Wilbur. The day is recognized as an opportunity to promote the advancement of aviation through public events and educational activities. Many aviation museums offer free or discounted entry, and airfields often hold open houses to engage the community.
+> 这些壮观的岩层坐落于西班牙北部的祖马亚海岸，面向坎塔布连海。对于喜爱徒步的人来说，这里设有沿悬崖而建的远足路线，可通往邻近的德巴和穆特里库等小镇，沿途风光令人叹为观止。你知道吗？这里还是《权力的游戏》部分场景的取景地。它如同电影画面般的美景不仅吸引了无数好奇的旅行者，也吸引了众多地质学家前来考察。祖马亚是探索地球历史与自然之美的理想之地，一旦踏足，定会被它的奇岩异石与丰富地貌深深吸引。
 > 
-> The Solar Impulse project is a remarkable milestone in modern aviation. In July 2010, the Solar Impulse prototype completed a 26-hour test flight powered only by the sun. It flew through the day and night without using fuel—a key step in proving solar-powered flight was possible. Building on this, Solar Impulse 2, seen in today's image, successfully completed the first solar-powered flight around the world from 2015 to 2016, covering over 26,000 miles without burning fossil fuels. These flights show how aviation can push forward into cleaner, more sustainable territory.
+> 
 > 
 > 
 
 </details>
 
-| ![Solar Impulse 2 in Honolulu](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Solar Impulse 2 in Honolulu](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![祖马亚的复理层，巴斯克地区，西班牙](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![祖马亚的复理层，巴斯克地区，西班牙](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_1080x1920.jpg) |
 
 ### 20250818
 
-> Avalanche Lake Trail at Adirondack High Peaks, New York (© Posnov/Getty Images)
+> 雪崩湖步道，阿迪朗达克高峰区，纽约州，美国 (© Posnov/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> There's no easing into the wild here—the Avalanche Lake Trail carves a bold path through rock scrambles, narrow ledges, and alpine serenity. Tucked away in New York's Adirondack High Peaks, this 9-acre alpine lake sits at nearly 2,900 feet between Mount Colden and Avalanche Mountain. Shaped by ancient glaciers, the lake is framed by dramatic cliffs and rugged terrain that echo its icy origins. Its most striking feature is the Trap Dike—a towering 1,200-foot rock canyon flanked by steep walls, making the lake one of the most awe-inspiring sights in the Adirondacks. Massive avalanches carved these cliffs, leaving behind the dramatic landscape that gave Avalanche Lake its name. The Avalanche Lake Trail begins at the Adirondack Loj, a well-known launch point for adventures in the High Peaks. Spanning about 9.6 miles round trip with a 1,350-foot elevation gain, the hike may seem manageable on paper—but it's the uneven terrain that truly tests your mettle.
+> 在这片高峰密布的区域，一座面积仅约9英亩的高山湖泊静静地坐落在近2,900英尺的海拔处，位于科尔登山与雪崩山之间。湖泊由远古冰川雕刻而成，四周环绕着陡峭的峭壁和崎岖的地形，清晰地保留着冰川时代留下的印记。其中最引人注目的地貌特征是“陷阱裂缝”，一条高达1,200英尺的岩石峡谷，峭壁险峻，是阿迪朗达克地区最令人震撼的自然奇观之一。正是过去发生的大规模雪崩，塑造了这一地形，也因此得名“雪崩湖”。 雪崩湖步道始于著名的阿迪朗达克小屋，这里是进入高峰区进行徒步、登山等户外活动的热门起点。全程约9.6英里，累计爬升约1,350英尺，虽然看似是一段轻松的行程，实则沿途地形复杂、变化多端，是对体力与意志的双重挑战。
 > 
 > 
 > 
@@ -53,77 +91,47 @@
 
 </details>
 
-| ![Avalanche Lake Trail at Adirondack High Peaks, New York](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Avalanche Lake Trail at Adirondack High Peaks, New York](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![雪崩湖步道，阿迪朗达克高峰区，纽约州，美国](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![雪崩湖步道，阿迪朗达克高峰区，纽约州，美国](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_1080x1920.jpg) |
 
 ### 20250817
 
-> Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)
+> 灵维格灯塔，维泽桑讷，丹麦 (© Caroline Brundle Bugge/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Built to brave storms and steer ships to safety, lighthouses now glow as symbols of heritage, wonder, and connection. Each year on the third weekend of August, the International Lighthouse Lightship Weekend brings together people from around the globe to celebrate these coastal icons. The event was launched in 1998 by John Forsyth and Mike Dalrymple of Scotland's Ayr Amateur Radio Group. It aims to raise awareness about preserving lighthouses and lightships while also promoting amateur radio and encouraging international goodwill.
+> 为抵御风暴并引导船只安全靠岸，灯塔最初应运而生。如今，它们不仅是导航工具，更成为文化遗产、建筑奇迹和人类与海洋之间深厚联结的象征。每年 8 月的第三个周末，世界各地都会迎来“国际灯塔灯船周”活动，让人们齐聚一堂，共同庆祝这些海岸地标。该活动由苏格兰艾尔业余无线电小组成员约翰·福赛思和迈克·达尔里姆普尔于 1998年发起，旨在提高对灯塔与灯船保护的意识，同时推广业余无线电通信，并促进国际友好交流。
 > 
-> Among the many lighthouses that carry this legacy forward is the Lyngvig Lighthouse in Denmark, featured here. Standing over 120 feet tall, this tower was built in 1906 atop a 55-foot dune along the west coast of Jutland—the country's westernmost region. Made with a concrete foundation and brick walls, and finished with teak-framed windows and doors, the lighthouse originally required a team of three keepers. They maintained its light until 1965. It has been operating automatically ever since. Following a temporary closure in 2024 due to structural concerns, the lighthouse is now open to the public again.
+> 丹麦的林格维格灯塔便是传承这一精神的代表之一，正如今日图片所示。这座灯塔建于 1906 年，高达 120 英尺，矗立在日德兰半岛西海岸一处 55 英尺高的沙丘之上，是丹麦最西部的地标性建筑。它以混凝土为基底、砖墙构造，门窗采用耐候性强的柚木制成。最初由三名守塔人轮班维护灯光，直到 1965 年实现全自动化。尽管因结构安全问题在2024年一度暂停开放，如今它已完成修复，重新欢迎公众前来参观。
 > 
 > 
 
 </details>
 
-| ![International Lighthouse Lightship Weekend](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Lighthouse Lightship Weekend](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![国际灯塔灯船周](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际灯塔灯船周](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_1080x1920.jpg) |
 
 ### 20250816
 
-> Colorful beehives in Italy (© Roberto Caucino/Shutterstock)
+> 色彩斑斓的蜂巢, 意大利 (© Roberto Caucino/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> If you think bees are just out for a sting, think again. These tiny winged workers are running the world's sweetest gig—and they've got a whole day dedicated to their buzz-ness. Welcome to World Honey Bee Day, celebrated every third Saturday in August. About 35% of global food crop production relies on animal pollination, including honey bees. The value of crops pollinated by bees is estimated at hundreds of billions of dollars. Despite their superpowers, bees are in a sticky situation. Habitat loss, pesticides, disease, and climate change are making life in the hive less than ideal.
+> 如果你以为蜜蜂的存在只是为了蜇人，那就大错特错了。这些小小的有翅工匠，正在从事世界上最甜蜜也最重要的工作，而且它们还有属于自己的节日：每年 8 月第三个星期六的“世界蜜蜂日”。 全球约 35% 的粮食作物产量依赖动物传粉，其中蜜蜂是最重要的传粉者之一。由蜜蜂完成授粉的作物，其经济价值估计高达数千亿美元。尽管拥有这般“超能力”，蜜蜂的生存却正面临危机：栖息地丧失、杀虫剂使用、疾病蔓延以及气候变化，都在让蜂巢生活日益艰难。
 > 
-> Today's image features a row of bright boxes in Italy—those are beehives. Bees use color to distinguish between hives, much like humans use house numbers. Blue, yellow, green, and red hives help reduce confusion and accidental hive invasions. On World Honey Bee Day, let's think outside the hive. Whether it's through colorful conservation, mindful eating, or planting for pollinators, there's always a way to 'bee' involved.
+> 今日图片中，意大利一排色彩鲜艳的蜂箱为我们展示了养蜂文化中的一抹亮色。蜜蜂能够辨别颜色，这些蓝色、黄色、绿色和红色的蜂箱，就像人类家的门牌号一样，有助于它们识别自己的“家”，减少误入他箱的可能。在这个世界蜜蜂日，不妨跳出固有思维，成为那份积极“嗡动”的力量。无论是参与传粉植物的种植、优化饮食选择，还是支持保护行动，我们总能找到自己的方式，去守护这些自然界中不可或缺的“小英雄”。
 > 
 > 
 
 </details>
 
-| ![World Honey Bee Day](https://cn.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Honey Bee Day](https://cn.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![世界蜜蜂日](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界蜜蜂日](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_1080x1920.jpg) |
-
-### 20250815
-
-> Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> It's a bird, it's a plane, it's … a fish! Gliding through the ocean with flapping fins and polka-dot flair, the spotted eagle ray refuses to blend in. It doesn't crawl along the seabed like its stingray cousins—it flies underwater. The species gets its name from—you guessed it—its protruding snout, which resembles an eagle's beak, and its distinctive spotted back, which is unique to each individual, much like fingerprints. Their wing-like pectoral fins can span up to 10 feet. Near the base of the long tail are venomous spines, in case a predator gets too close. These rays aren't aggressive, but they're not defenseless either.
-> 
-> These creatures are often seen alone, but when they travel in groups, it's a show worth watching. Dozens can glide together in perfect sync, like the ones photographed near San Cristóbal Island in Ecuador. They are also known to leap out of the water, sometimes completely clearing the surface, proving you don't need feathers to fly. Despite their elegance, spotted eagle rays are currently listed as near threatened. Their populations are declining due to various threats, including bycatch and habitat degradation.
-> 
-> 
-
-</details>
-
-| ![Spotted eagle rays in the Galápagos Islands](https://cn.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spotted eagle rays in the Galápagos Islands](https://cn.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_1080x1920.jpg) |
-
-### 20250814
-
-> Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> There's a mountain in Switzerland that's always looking down on you—but don't take it personally. At 10,026 feet, Piz Nair of the Albula Alps keeps an eye over the Engadine valley in Graubünden. Start in St. Moritz: hop on the funicular (a type of cable railway system) to Corviglia, then ride the cable car to the summit. At the top? A viewing platform and that famous ibex (an alpine goat) statue. There's also a restaurant where you can eat inside a glass cube with 360° views.
-> 
-> This alpine peak hosted the 1948 Winter Olympics and still boasts some of the most famous ski runs in the country. The 'Piz Nair Wall' is known for its challenging downhill skiing and events like the 2003 World Championship downhill race. Come summer, the snow clears but the trails stay hot. Hikers and mountain bikers flock here to explore alpine meadows, and soak in a different kind of silence. Guided tours and well-marked paths make it easy to find your footing. So, whether you're chasing snow, sun, or just a break from sea-level boredom, this Swiss giant will lift your spirits—literally.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_1080x1920.jpg) | runs in the country. The 'Piz Nair Wall' is known for its challenging downhill skiing and events like the 2003 World Championship downhill race. Come summer, the snow clears but the trails stay hot. Hikers and mountain bikers flock here to explore alpine meadows, and soak in a different kind of silence. Guided tours and well-marked paths make it easy to find your footing. So, whether you're chasing snow, sun, or just a break from sea-level boredom, this Swiss giant will lift your spirits—literally.
 > 
 > 
 
