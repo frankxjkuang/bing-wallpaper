@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250823
+
+> St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Rising like a stone hymn in the heart of Kutná Hora, a town in Czechia, the Cathedral of St. Barbara is an example of medieval grandeur dedicated to the patron saint of miners—an enduring symbol for a community whose lifeblood was silver. The miners themselves played a key role in building the cathedral that still bears her name.
+> 
+> Construction began in the Middle Ages but wasn't completed until the 20th century, weaving together Gothic artistry and modern details. Originally envisioned on a much grander scale—twice its current size—the cathedral's fate was tied to the fortunes of the silver mines. As the mines declined, so did the ambitions. By 1588, only the iconic three-peaked roof had been completed, and a temporary wall signaled the halt of construction. In the years that followed, the Jesuits took over, gradually introducing Baroque elements into the original Gothic design. Restoration efforts finally took shape in the late 19th century, led by architects Josef Mocker and Ludvik Labler.
+> 
+> 
+
+</details>
+
+| ![St. Barbara's Cathedral, Kutná Hora, Czechia](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. Barbara's Cathedral, Kutná Hora, Czechia](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_1080x1920.jpg) |
+
 ### 20250822
 
 > Rolling hills of the Palouse, Washington (© svetlana57/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Lighthouse Lightship Weekend](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Lighthouse Lightship Weekend](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1080x1920.jpg) |
-
-### 20250816
-
-> Colorful beehives in Italy (© Roberto Caucino/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> If you think bees are just out for a sting, think again. These tiny winged workers are running the world's sweetest gig—and they've got a whole day dedicated to their buzz-ness. Welcome to World Honey Bee Day, celebrated every third Saturday in August. About 35% of global food crop production relies on animal pollination, including honey bees. The value of crops pollinated by bees is estimated at hundreds of billions of dollars. Despite their superpowers, bees are in a sticky situation. Habitat loss, pesticides, disease, and climate change are making life in the hive less than ideal.
-> 
-> Today's image features a row of bright boxes in Italy—those are beehives. Bees use color to distinguish between hives, much like humans use house numbers. Blue, yellow, green, and red hives help reduce confusion and accidental hive invasions. On World Honey Bee Day, let's think outside the hive. Whether it's through colorful conservation, mindful eating, or planting for pollinators, there's always a way to 'bee' involved.
-> 
-> 
-
-</details>
-
-| ![World Honey Bee Day](https://cn.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Honey Bee Day](https://cn.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_1080x1920.jpg) |.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1080x1920.jpg) |47756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
