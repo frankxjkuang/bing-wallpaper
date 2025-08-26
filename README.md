@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250824
+
+> European fallow deer, England (© Enrique Aguirre Aves/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Flat antlers? Check. Spotted coat? Check. Side-eye from the bushes? Also check. Say hello to the European fallow deer. These medium-sized deer have been strutting through British woodlands and parklands for centuries. Though they look right at home, they weren't born here. The Romans likely brought them over, and the Normans later made them common in hunting parks. Now, they're regulars in landscapes from Sussex to Scotland.
+> 
+> In summer, these animals sport a reddish-brown coat with white spots. Come winter, they trade it for a darker, grayer version. Bucks (males) grow broad, shovel-shaped antlers, unlike the pointy racks of red or roe deer. In autumn, the bucks clash antlers in the rutting season, competing for the attention of does (females). Fallow deer graze mainly on grasses and leaves, but they won't turn their noses up at herbs, shrubs, or the occasional snack from a fruit tree. Despite their poise, they're quick to bolt if spooked. That flash of white tail you see? That's their way of saying 'time to run.' It's also a signal to the rest of the herd.
+> 
+> 
+
+</details>
+
+| ![European fallow deer in England](https://cn.bing.com/th?id=OHR.CervusDama_EN-US3217647015_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European fallow deer in England](https://cn.bing.com/th?id=OHR.CervusDama_EN-US3217647015_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CervusDama_EN-US3217647015_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CervusDama_EN-US3217647015_1080x1920.jpg) |
+
 ### 20250823
 
 > St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Avalanche Lake Trail at Adirondack High Peaks, New York](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Avalanche Lake Trail at Adirondack High Peaks, New York](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_1080x1920.jpg) |
-
-### 20250817
-
-> Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Built to brave storms and steer ships to safety, lighthouses now glow as symbols of heritage, wonder, and connection. Each year on the third weekend of August, the International Lighthouse Lightship Weekend brings together people from around the globe to celebrate these coastal icons. The event was launched in 1998 by John Forsyth and Mike Dalrymple of Scotland's Ayr Amateur Radio Group. It aims to raise awareness about preserving lighthouses and lightships while also promoting amateur radio and encouraging international goodwill.
-> 
-> Among the many lighthouses that carry this legacy forward is the Lyngvig Lighthouse in Denmark, featured here. Standing over 120 feet tall, this tower was built in 1906 atop a 55-foot dune along the west coast of Jutland—the country's westernmost region. Made with a concrete foundation and brick walls, and finished with teak-framed windows and doors, the lighthouse originally required a team of three keepers. They maintained its light until 1965. It has been operating automatically ever since. Following a temporary closure in 2024 due to structural concerns, the lighthouse is now open to the public again.
-> 
-> 
-
-</details>
-
-| ![International Lighthouse Lightship Weekend](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Lighthouse Lightship Weekend](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1080x1920.jpg) |47756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_1080x1920.jpg) |gLighthouse_EN-US1600601632_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1080x1920.jpg) |47756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
