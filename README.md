@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250825
+
+> Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, the National Park Service celebrates another trip around the sun—and nearly 85 million acres of American beauty under its care. From geysers that spout like soda cans to ancient cliff dwellings tucked into canyon walls, the NPS has spent over a century preserving, protecting, and inviting people to take a hike—literally. In 1916, President Woodrow Wilson signed the Organic Act into law, officially creating the NPS to 'conserve the scenery and the natural and historic objects.' Since then, the NPS has grown to oversee more than 400 sites, including national parks, battlefields, monuments, and seashores.
+> 
+> What better spot to toast the occasion than the Calcite Springs Overlook in Yellowstone National Park, Wyoming? This thermal-meets-canyon overlook offers front-row views of the Yellowstone River carving its way through a lava-forged canyon. Along the basalt cliffs, white mineral deposits that gave Calcite Springs its name are visible, formed by mineral-rich waters still steaming from underground. You might spot a bald eagle gliding overhead or bison lounging nearby. Yellowstone is more than just a park—it's a supervolcano with a visitor center.
+> 
+> 
+
+</details>
+
+| ![Yellowstone for the National Park Service's birthday](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yellowstone for the National Park Service's birthday](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |
+
 ### 20250824
 
 > European fallow deer, England (© Enrique Aguirre Aves/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Solar Impulse 2 in Honolulu](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Solar Impulse 2 in Honolulu](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg) |
-
-### 20250818
-
-> Avalanche Lake Trail at Adirondack High Peaks, New York (© Posnov/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> There's no easing into the wild here—the Avalanche Lake Trail carves a bold path through rock scrambles, narrow ledges, and alpine serenity. Tucked away in New York's Adirondack High Peaks, this 9-acre alpine lake sits at nearly 2,900 feet between Mount Colden and Avalanche Mountain. Shaped by ancient glaciers, the lake is framed by dramatic cliffs and rugged terrain that echo its icy origins. Its most striking feature is the Trap Dike—a towering 1,200-foot rock canyon flanked by steep walls, making the lake one of the most awe-inspiring sights in the Adirondacks. Massive avalanches carved these cliffs, leaving behind the dramatic landscape that gave Avalanche Lake its name. The Avalanche Lake Trail begins at the Adirondack Loj, a well-known launch point for adventures in the High Peaks. Spanning about 9.6 miles round trip with a 1,350-foot elevation gain, the hike may seem manageable on paper—but it's the uneven terrain that truly tests your mettle.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Avalanche Lake Trail at Adirondack High Peaks, New York](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Avalanche Lake Trail at Adirondack High Peaks, New York](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_1080x1920.jpg) |gLighthouse_EN-US1600601632_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1080x1920.jpg) |47756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
