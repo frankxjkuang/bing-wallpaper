@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250826
+
+> Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> If fairy tales had architects, they might've come up with something like Alberobello in Italy. But instead of magic wands, it was limestone, mortar-free masonry, and—according to some theories—a bit of tax evasion that built this town's signature homes: the trulli. These are whitewashed stone houses topped with dry-stacked limestone roofs shaped like upside-down ice cream cones. It's an ancient building technique, and in this case, a clever one. Back in the 14th century, locals were reportedly trying to avoid property taxes by constructing homes that could be quickly dismantled when the king's tax collector came around.
+> 
+> Alberobello's trulli aren't hidden one-offs. Entire districts—like Rione Monti and Aia Piccola—are packed with these quirky structures. Some are still lived in, while others have been transformed into cafés, souvenir shops, and pint-sized museums. You'll even find a church built in trullo style. In 1996, UNESCO gave the trulli of Alberobello the heritage stamp of approval. It's not every day that a loophole becomes a landmark.
+> 
+> 
+
+</details>
+
+| ![Trullo buildings in Alberobello, Apulia, Italy](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Trullo buildings in Alberobello, Apulia, Italy](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |
+
 ### 20250825
 
 > Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![The citadel in Bonifacio, Southern Corsica, France](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The citadel in Bonifacio, Southern Corsica, France](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1080x1920.jpg) |
-
-### 20250819
-
-> Solar Impulse 2 at Kalaeloa Airport, Honolulu, Hawaii (© Solar Impulse/Revillard/Sipa/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Planes, progress, and a whole lot of sky. National Aviation Day gives us a reason to pause and appreciate how aviation has shaped the modern world—and the innovators who dared to dream of flight. The national day was established in 1939 by President Franklin D. Roosevelt to honor Orville Wright's contributions to aviation. Wright, born on this day in 1871, achieved the first powered, controlled flight in 1903 along with his brother Wilbur. The day is recognized as an opportunity to promote the advancement of aviation through public events and educational activities. Many aviation museums offer free or discounted entry, and airfields often hold open houses to engage the community.
-> 
-> The Solar Impulse project is a remarkable milestone in modern aviation. In July 2010, the Solar Impulse prototype completed a 26-hour test flight powered only by the sun. It flew through the day and night without using fuel—a key step in proving solar-powered flight was possible. Building on this, Solar Impulse 2, seen in today's image, successfully completed the first solar-powered flight around the world from 2015 to 2016, covering over 26,000 miles without burning fossil fuels. These flights show how aviation can push forward into cleaner, more sustainable territory.
-> 
-> 
-
-</details>
-
-| ![Solar Impulse 2 in Honolulu](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Solar Impulse 2 in Honolulu](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1080x1920.jpg) |andscape 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
