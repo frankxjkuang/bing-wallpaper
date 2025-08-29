@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250827
+
+> Sørvágsvatn lake, island of Vágar, Faroe Islands, Denmark (© Anton Petrus/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Nature has its tricks, and Sørvágsvatn is one of its best. World Lake Day is the perfect occasion to explore this optical illusion in the Faroe Islands, an autonomous administrative division of the Kingdom of Denmark. Also called Leitisvatn, this lake on the island of Vágar appears to float far above the ocean. In reality, it sits less than 100 feet above sea level. As the largest lake in the Faroes, Sørvágsvatn has a surface area of about 1.3 square miles and feeds the Bøsdalafossur waterfall, where its waters pour dramatically into the sea.
+> 
+> As we mark World Lake Day, Sørvágsvatn reminds us why lakes are so vital. They not only provide recreation but also store freshwater, regulate local climates, and support biodiversity. Yet today, many are under threat. Pollution, overuse, climate change, and fluctuating water levels are placing increasing pressure on these fragile ecosystems. So, the next time you look at a map, think of lakes not just as dots of blue but as living, breathing parts of our world that deserve our care and attention.
+> 
+> 
+
+</details>
+
+| ![World Lake Day in the Faroe Islands](https://cn.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lake Day in the Faroe Islands](https://cn.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_1080x1920.jpg) |
+
 ### 20250826
 
 > Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![A wheatear in Peak District National Park, England](https://cn.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A wheatear in Peak District National Park, England](https://cn.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_1080x1920.jpg) |
-
-### 20250820
-
-> The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Set at Corsica's southern edge, Bonifacio looks out across a narrow strait to Sardinia, its limestone cliffs towering above the waves. Bonifacio didn't begin as a picturesque tourist destination—it was originally established as a coastal fortification and has spent centuries guarding one of the Mediterranean's busiest sea lanes. Established in 828 CE by Boniface II of Tuscany, the commune gradually became a meeting point for traders, soldiers, and sailors—each group contributing to the evolution of the town's structure. Bonifacio is divided into two sections, with the 'vieille ville' (old town)—also known as 'la Haute Ville' (the Upper City)—standing on a high cliff within the original citadel walls. Below, the marine area lines the narrow inlet with harbors, waterfront homes, and a growing valley community.
-> 
-> While here, the Bonifacio Citadel is a must-see. First built in the 9th century and expanded over time, it invites visitors to wander through quiet passageways, old military buildings, and cobblestone streets. Nearby, you can explore the Marine Cemetery, climb the King of Aragon's Stairway, and visit the Bastion de l'Étendard, now home to a small museum.
-> 
-> 
-
-</details>
-
-| ![The citadel in Bonifacio, Southern Corsica, France](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The citadel in Bonifacio, Southern Corsica, France](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1080x1920.jpg) |andscape 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1080x1920.jpg) |andscape 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
