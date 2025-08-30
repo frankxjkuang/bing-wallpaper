@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250828
+
+> Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> They wear white after Labor Day—and all year long—with zero shame. Meet the great egret, also known as the great white egret. Found in the Americas, Asia, Africa, and parts of Europe, these birds are often seen wading through wetlands, tidal flats, and quiet streams. Patient and precise, they stand motionless for minutes, waiting for just the right moment to deliver a lightning-fast strike. Fish are their main prey, but they also eat frogs, reptiles, and even small mammals.
+> 
+> In the late 1800s, the great egret's beautiful plumes became a must-have in women's fashion across North America, driving their population down by an estimated 95%. The killing might have continued if not for two Boston socialites, Harriet Hemenway and Minna Hall, who led a boycott of the feather trade. Their activism helped launch the National Audubon Society. It also pushed Congress to pass the Weeks–McLean Law in 1913, which banned market hunting and protected migratory birds. Today, the great egret is a powerful conservation success story thanks to more than a century of legal protection and public action. It also serves as the Audubon Society's symbol.
+> 
+> 
+
+</details>
+
+| ![A great white egret in Hungary](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A great white egret in Hungary](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg) |
+
 ### 20250827
 
 > Sørvágsvatn lake, island of Vágar, Faroe Islands, Denmark (© Anton Petrus/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Rolling hills of the Palouse, Washington](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rolling hills of the Palouse, Washington](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_1080x1920.jpg) |
-
-### 20250821
-
-> Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> You don't need to be a bird expert to notice the wheatear darting across open ground. These ground-dwelling songbirds are known for their upright posture and habit of hopping or sprinting between perches. Despite the name, wheatears have nothing to do with wheat or ears—the name is a twist on the old phrase 'white arse,' pointing to the bird's distinctive white rump found in most species. The northern wheatear weighs less than an ounce, but travels thousands of miles between its summer homes in Alaska and northern Canada to its wintering grounds in Africa. Its migration route is one of the longest for a bird its size. Unlike many backyard songbirds, wheatears prefer wide-open spaces with low vegetation, where they can sprint and pounce on insects. And while most North American birders might only catch them in the far north, wheatears are widespread across Europe, Asia, and Africa.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![A wheatear in Peak District National Park, England](https://cn.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A wheatear in Peak District National Park, England](https://cn.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1080x1920.jpg) |andscape 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_1080x1920.jpg) | |andscape 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
