@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250829
+
+> Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)
+
+<details>
+<summary>Description</summary>
+
+> Seen from above, the uniform arcades and tiled rooftops of Plaza Mayor in Madrid—the capital of Spain—create a captivating architectural harmony. Once the site of a bustling market square known as the Plaza del Arrabal, this historic space has witnessed the city's transformation over the centuries. The shift began in 1561, when the plaza came under Madrid's jurisdiction after the royal court moved from Toledo. Inspired by a vision of order and grandeur, King Philip II reimagined the square—though construction did not actually begin until 1617, under the reign of Philip III.
+> 
+> Featuring a rectangular layout, the plaza is framed by three-story buildings with 237 inward-facing balconies. It has 10 entrances, nine of which are gated. At its center stands the equestrian statue of Philip III, added in 1848. Over the years, the square has hosted everything from local festivities and bullfights to beatifications and royal ceremonies. Today, it remains a vibrant gathering place, featuring Easter drum parades, outdoor concerts, an annual Christmas market, and a Sunday morning market for stamp and coin collectors.
+> 
+> 
+
+</details>
+
+| ![Aerial view of Plaza Mayor, Madrid, Spain](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Plaza Mayor, Madrid, Spain](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1080x1920.jpg) |
+
 ### 20250828
 
 > Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![St. Barbara's Cathedral, Kutná Hora, Czechia](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. Barbara's Cathedral, Kutná Hora, Czechia](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_1080x1920.jpg) |
-
-### 20250822
-
-> Rolling hills of the Palouse, Washington (© svetlana57/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Wave after wave of velvety hills stretch across the Palouse. This tranquil region lies in southeastern Washington, extending to the borders of Idaho and Oregon. The wheat-covered slopes shift in color with every passing season. In spring, the hills turn lush shades of green as young wheat and barley begin to grow, while summer transforms them into dry, golden browns as the crops near harvest.
-> 
-> Often hailed as one of Washington State's most serene natural wonders, the Palouse owes its signature rolling hills to an ancient and fascinating geological story. These dune-like hills were shaped over thousands of years—not by rivers or tectonic shifts, but by windblown dust and fine silt, known as 'loess,' carried from the arid Southwest. During the Ice Ages, glaciers from Canada ground rock into fine 'glacial flour,' which flowed into the prehistoric Glacial Lake Missoula. When ice dams broke, floods swept across eastern Washington, leaving behind layers of silt. Prevailing winds later carried that dust to this region, settling it into the hills we see today.
-> 
-> 
-
-</details>
-
-| ![Rolling hills of the Palouse, Washington](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rolling hills of the Palouse, Washington](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_1080x1920.jpg) | |andscape 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_1080x1920.jpg) |60_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
