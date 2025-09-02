@@ -2,144 +2,136 @@
 
 ### 20250831
 
-> 杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国 (© Hawk Buckman/Getty Images)
+> Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在GPS问世之前，像斯科茨布卢夫（Scotts Bluff）这样的自然地标就已高耸于大草原之上，为西行的旅人指明方向。在1887年杰林镇（Gering）建镇之前，以及内布拉斯加州于1867年成为美国州份的数十年之前，这些砂岩和泥岩地貌已然引导着成千上万的旅人沿着俄勒冈小径、加利福尼亚小径和摩门教徒小径前行。斯科茨布卢夫国家纪念碑（Scotts Bluff National Monument）以皮毛商人希拉姆·斯科特（Hiram Scott）命名，他曾是落基山皮毛公司（Rocky Mountain Fur Company）的成员，于19世纪20年代在附近地区因神秘原因去世。
+> Long before GPS, natural landmarks like Scotts Bluff rose high above the prairie, signaling to travelers that they were on the right path heading west. Before Gering became a town in 1887 and decades before Nebraska achieved statehood in 1867, these sandstone and siltstone formations were already guiding thousands along the Oregon, California, and Mormon Trails. Scotts Bluff National Monument is named after Hiram Scott, a fur trader with the Rocky Mountain Fur Company who died under mysterious circumstances nearby in the 1820s.
 > 
-> 如今，这座占地近3000英亩的纪念碑包括两座主要悬崖——北部的斯科茨悬崖和南部的南悬崖。它还保护着五处显著的岩石突起：圆顶岩、鹰岩、皇冠岩、马鞍岩和哨兵岩。在地面上，骡鹿与黑尾草原犬鼠一同觅食，而豺狼在周围游荡，短草在风中摇曳。更高处，景观发生变化，刺叶丝兰和耐寒灌木依附于岩石斜坡，而大角羊则轻松地在悬崖间穿行。尽管马车早已消失，斯科茨悬崖仍作为历史与地形的向导屹立不倒。
+> Today, the nearly 3,000-acre monument includes two main bluffs—Scotts Bluff to the north and South Bluff. It also protects five prominent outcroppings: Dome Rock, Eagle Rock, Crown Rock, Saddle Rock, and Sentinel Rock. At ground level, mule deer graze alongside black-tailed prairie dogs, while coyotes prowl and short grasses ripple in the wind. Higher up, the landscape shifts, spiny yuccas and hardy shrubs cling to rocky slopes, and bighorn sheep navigate the cliffs with ease. Though the wagons are long gone, Scotts Bluff still stands as a guide through both history and terrain.
 > 
 > 
 
 </details>
 
-| ![斯科茨布拉夫国家纪念碑, 内布拉斯加州](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![斯科茨布拉夫国家纪念碑, 内布拉斯加州](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Scotts Bluff National Monument, Gering, Nebraska](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Scotts Bluff National Monument, Gering, Nebraska](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1080x1920.jpg) |
 
 ### 20250830
 
-> 阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫 (© Bachir Moukarzel/Amazing Aerial Agency)
+> Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)
 
 <details>
 <summary>Description</summary>
 
-> 如果你从未见过一条近40英尺长、身上布满斑点的鲸鲨在珊瑚礁间优雅游弋，那你可就错过了精彩的一幕。今天是国际鲸鲨日，提醒我们这些行动缓慢的巨型生物需要我们的关注。自2008年首次设立以来，这一天被研究人员和海洋保护倡导者用来聚焦保护工作，并警示船只撞击、塑料污染和无序旅游等威胁。
+> If you've never seen a nearly 40-foot, polka-dotted fish gliding past coral reefs, you are missing out. Today is International Whale Shark Day, a reminder that these slow-motion giants need our attention. First observed in 2008, the day is used by researchers and marine advocates to spotlight conservation efforts and threats like vessel strikes, plastic pollution, and unregulated tourism.
 > 
-> 鲸鲨是海洋中最大的鱼类，但别被“鲨鱼”这个词迷惑了。它们是以浮游生物为食的巨型生物，对人类毫无兴趣。鲸鲨分布于从马尔代夫和莫桑比克到墨西哥尤卡坦半岛的温暖水域，常出现在食物丰富、水流平缓的区域。它们的嘴巴可张开超过四英尺宽，但进食时靠吸吮而非咬合。每只鲸鲨都有独特的白色斑点和条纹图案——没有两只相同——研究人员利用这些图案来追踪个体。它们的繁殖模式仍 largely 是个谜，但它们是卵胎生，即幼崽在母体内部孵化后才出生。在像今天这样的日子里，它们的故事提醒我们，海洋生命中仍有太多未知，而保护我们已知处于危险中的生物是多么重要。
+> Whale sharks are the biggest fish in the sea, but don't let the word 'shark' fool you. They're plankton-eating giants with no interest in humans. Found in warm waters from the Maldives and Mozambique to Mexico's Yucatán coast, they often show up in food-rich, calm waters. Their mouths can stretch over four feet wide, but they feed by suction, not biting. Each has a unique pattern of white spots and stripes—no two alike—used by researchers to track individuals. Their breeding patterns remain largely a mystery, but they are ovoviviparous, meaning pups hatch inside the mother before being born alive. On a day like today, their story reminds us how much ocean life remains a mystery and how vital it is to protect what we already know is at risk.
 > 
 > 
 
 </details>
 
-| ![国际鲸鲨日](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际鲸鲨日](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1080x1920.jpg) |
 
 ### 20250829
 
-> 马约尔广场鸟瞰图, 马德里, 西班牙 (© AirPano LLC/Amazing Aerial Agency)
+> Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)
 
 <details>
 <summary>Description</summary>
 
-> 从高处俯瞰，马德里（西班牙首都）的马约尔广场（Plaza Mayor）上，整齐的拱廊与瓦片屋顶交织成一幅令人着迷的建筑和谐画卷。这片历史悠久的空间曾是热闹的集市广场“阿拉巴尔广场”（Plaza del Arrabal）的所在地，见证了这座城市数百年来的变迁。这一转变始于1561年，当时皇家法院从托莱多迁至马德里，广场随之归入马德里管辖。受秩序与宏伟愿景的启发，菲利普二世重新构想了这片广场——尽管实际施工直至菲利普三世统治时期的1617年才正式展开。
+> Seen from above, the uniform arcades and tiled rooftops of Plaza Mayor in Madrid—the capital of Spain—create a captivating architectural harmony. Once the site of a bustling market square known as the Plaza del Arrabal, this historic space has witnessed the city's transformation over the centuries. The shift began in 1561, when the plaza came under Madrid's jurisdiction after the royal court moved from Toledo. Inspired by a vision of order and grandeur, King Philip II reimagined the square—though construction did not actually begin until 1617, under the reign of Philip III.
 > 
-> 该广场采用矩形布局，四周环绕着三层高的建筑，共设有237个朝内的阳台。广场共有十个入口，其中九个设有门禁。广场中央矗立着菲利普三世的骑马雕像，该雕像于1848年增设。多年来，该广场曾举办过从地方节庆、斗牛活动到封圣仪式和皇家典礼等各类活动。如今，它仍是一个充满活力的聚集地，举办复活节鼓乐游行、户外音乐会、年度圣诞市场，以及每周日早上的邮票和硬币收藏家市场。
+> Featuring a rectangular layout, the plaza is framed by three-story buildings with 237 inward-facing balconies. It has 10 entrances, nine of which are gated. At its center stands the equestrian statue of Philip III, added in 1848. Over the years, the square has hosted everything from local festivities and bullfights to beatifications and royal ceremonies. Today, it remains a vibrant gathering place, featuring Easter drum parades, outdoor concerts, an annual Christmas market, and a Sunday morning market for stamp and coin collectors.
 > 
 > 
 
 </details>
 
-| ![马约尔广场鸟瞰图, 马德里,西班牙](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![马约尔广场鸟瞰图, 马德里,西班牙](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Aerial view of Plaza Mayor, Madrid, Spain](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Plaza Mayor, Madrid, Spain](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1080x1920.jpg) |
 
 ### 20250828
 
-> 大白鹭，匈牙利 (© Markus Varesvuo/Nature Picture Library)
+> Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)
 
 <details>
 <summary>Description</summary>
 
-> 今天让我们来认识一下大白鹭吧。它们分布在美洲、亚洲、非洲和欧洲部分地区，经常在湿地、潮滩和平静的溪流中涉水。它们耐心而精准，会一动不动地站上几分钟，等待着最佳时机发动闪电般的攻击。鱼类是它们的主要猎物，但也捕食青蛙、爬行动物，甚至小型哺乳动物。大白鹭广泛分布在世界各地。在中国见于东北、河北、江苏、云南、广东、海南、台湾等地。栖息于河川、海滨、沼泽湿地或水田中。性颇机警，见人即飞去。白天多单独寻觅食物，在食物丰富的区域内，也成小群活动。
+> They wear white after Labor Day—and all year long—with zero shame. Meet the great egret, also known as the great white egret. Found in the Americas, Asia, Africa, and parts of Europe, these birds are often seen wading through wetlands, tidal flats, and quiet streams. Patient and precise, they stand motionless for minutes, waiting for just the right moment to deliver a lightning-fast strike. Fish are their main prey, but they also eat frogs, reptiles, and even small mammals.
 > 
-> 
+> In the late 1800s, the great egret's beautiful plumes became a must-have in women's fashion across North America, driving their population down by an estimated 95%. The killing might have continued if not for two Boston socialites, Harriet Hemenway and Minna Hall, who led a boycott of the feather trade. Their activism helped launch the National Audubon Society. It also pushed Congress to pass the Weeks–McLean Law in 1913, which banned market hunting and protected migratory birds. Today, the great egret is a powerful conservation success story thanks to more than a century of legal protection and public action. It also serves as the Audubon Society's symbol.
 > 
 > 
 
 </details>
 
-| ![大白鹭，匈牙利](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大白鹭，匈牙利](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![A great white egret in Hungary](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A great white egret in Hungary](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg) |
 
 ### 20250827
 
-> 瑟沃格湖，瓦加尔岛，法罗群岛 (© Anton Petrus/Getty Images)
+> Sørvágsvatn lake, island of Vágar, Faroe Islands, Denmark (© Anton Petrus/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 大自然自有其奇妙之处，瑟沃格湖（Sørvágsvatn）便是其中最精彩的之一。世界湖泊日是探索法罗群岛（丹麦王国的一个自治行政区）这片视错觉的绝佳时机。这座位于沃格岛上的湖泊也被称为莱蒂斯湖（Leitisvatn），看似漂浮在海平面之上。实际上，它的海拔不到100英尺。索尔瓦格斯湖是法罗群岛最大的湖泊，面积约1.3平方英里，为Bøsdalafossur瀑布Bøsdalafossur提供水源，瀑布的湖水在那里奔腾而下，最终倾泻而入大海。
+> Nature has its tricks, and Sørvágsvatn is one of its best. World Lake Day is the perfect occasion to explore this optical illusion in the Faroe Islands, an autonomous administrative division of the Kingdom of Denmark. Also called Leitisvatn, this lake on the island of Vágar appears to float far above the ocean. In reality, it sits less than 100 feet above sea level. As the largest lake in the Faroes, Sørvágsvatn has a surface area of about 1.3 square miles and feeds the Bøsdalafossur waterfall, where its waters pour dramatically into the sea.
 > 
-> 值此世界湖泊日之际，瑟沃格湖（Sørvágsvatn）提醒我们湖泊的重要性。它们不仅提供休闲娱乐，还储存淡水，调节当地气候，并支持生物多样性。然而，如今许多湖泊正面临威胁。污染、过度使用、气候变化和水位波动正给这些脆弱的生态系统带来越来越大的压力。所以，下次看地图时，请将湖泊视为不仅仅是蓝色的点，而是我们这个世界中充满生机、值得我们关爱和关注的部分。
+> As we mark World Lake Day, Sørvágsvatn reminds us why lakes are so vital. They not only provide recreation but also store freshwater, regulate local climates, and support biodiversity. Yet today, many are under threat. Pollution, overuse, climate change, and fluctuating water levels are placing increasing pressure on these fragile ecosystems. So, the next time you look at a map, think of lakes not just as dots of blue but as living, breathing parts of our world that deserve our care and attention.
 > 
 > 
 
 </details>
 
-| ![世界湖泊日](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界湖泊日](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Lake Day in the Faroe Islands](https://cn.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lake Day in the Faroe Islands](https://cn.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_1080x1920.jpg) |
 
 ### 20250826
 
-> 阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利 (© Feng Wei Photography/Getty Images)
+> Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 如果童话故事里有建筑师，他们或许能创造出像意大利阿尔贝罗贝洛那样的景象。但这座小镇的标志性建筑——特鲁利（trulli，单数为trullo），并非靠魔杖，而是石灰岩、无砂浆砌筑，以及——根据某些理论——一些逃税手段——才得以建成。这些粉刷过的石屋顶部是干砌的石灰岩屋顶，形状像倒置的冰淇淋蛋筒。这是一种古老的建筑技术，在阿尔贝罗贝洛，更是巧妙之举。据说早在14世纪，当地人就试图通过建造房屋来逃避房产税，因为国王的税务官来袭时，这些房屋很容易被拆除。
+> If fairy tales had architects, they might've come up with something like Alberobello in Italy. But instead of magic wands, it was limestone, mortar-free masonry, and—according to some theories—a bit of tax evasion that built this town's signature homes: the trulli. These are whitewashed stone houses topped with dry-stacked limestone roofs shaped like upside-down ice cream cones. It's an ancient building technique, and in this case, a clever one. Back in the 14th century, locals were reportedly trying to avoid property taxes by constructing homes that could be quickly dismantled when the king's tax collector came around.
 > 
-> 阿尔贝罗贝洛的特鲁利并非孤例。像蒙蒂区（Rione Monti）和小阿亚区（Aia Piccola）这样的整个街区都挤满了这些奇特的建筑。有些至今仍有人居住，有些则被改造成咖啡馆、纪念品商店和小型博物馆。你甚至还能找到一座特鲁利风格的教堂。1996年，联合国教科文组织将阿尔贝罗贝洛的特鲁利列为世界遗产。一个漏洞成为地标建筑的情况并非每天都有。
+> Alberobello's trulli aren't hidden one-offs. Entire districts—like Rione Monti and Aia Piccola—are packed with these quirky structures. Some are still lived in, while others have been transformed into cafés, souvenir shops, and pint-sized museums. You'll even find a church built in trullo style. In 1996, UNESCO gave the trulli of Alberobello the heritage stamp of approval. It's not every day that a loophole becomes a landmark.
 > 
 > 
 
 </details>
 
-| ![阿尔贝罗贝洛的特鲁洛建筑，意大利](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![阿尔贝罗贝洛的特鲁洛建筑，意大利](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Trullo buildings in Alberobello, Apulia, Italy](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Trullo buildings in Alberobello, Apulia, Italy](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |
 
 ### 20250825
 
-> 方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国 (© Rebecca L. Latson/Getty Images)
+> Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 黄石河是美国本土48州最后一条未建坝的主要河流，它从黄石公园东南方向发源，全长671英里（1080公里），汇入密苏里河，最终汇入大西洋。这座地热与峡谷交汇的观景台，让您近距离欣赏黄石河蜿蜒流经熔岩锻造的峡谷的壮丽景色。沿着玄武岩峭壁，可以看到富含矿物质的地下水仍在冒着热气，形成了白色的矿藏，方解石泉也因此得名。您或许还能看到白头鹰在头顶滑翔，或是野牛在附近悠闲地休息。黄石公园不仅仅是一个公园，它更是一座拥有游客中心的超级火山。
+> Today, the National Park Service celebrates another trip around the sun—and nearly 85 million acres of American beauty under its care. From geysers that spout like soda cans to ancient cliff dwellings tucked into canyon walls, the NPS has spent over a century preserving, protecting, and inviting people to take a hike—literally. In 1916, President Woodrow Wilson signed the Organic Act into law, officially creating the NPS to 'conserve the scenery and the natural and historic objects.' Since then, the NPS has grown to oversee more than 400 sites, including national parks, battlefields, monuments, and seashores.
 > 
-> 
-> 
-> 
-
-</details>
-
-| ![方解石温泉区和黄石河，美国](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![方解石温泉区和黄石河，美国](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1080x1920.jpg) | design. Restoration efforts finally took shape in the late 19th century, led by architects Josef Mocker and Ludvik Labler.
+> What better spot to toast the occasion than the Calcite Springs Overlook in Yellowstone National Park, Wyoming? This thermal-meets-canyon overlook offers front-row views of the Yellowstone River carving its way through a lava-forged canyon. Along the basalt cliffs, white mineral deposits that gave Calcite Springs its name are visible, formed by mineral-rich waters still steaming from underground. You might spot a bald eagle gliding overhead or bison lounging nearby. Yellowstone is more than just a park—it's a supervolcano with a visitor center.
 > 
 > 
 
 </details>
 
-| ![St. Barbara's Cathedral, Kutná Hora, Czechia](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. Barbara's Cathedral, Kutná Hora, Czechia](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Yellowstone for the National Park Service's birthday](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yellowstone for the National Park Service's birthday](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_1080x1920.jpg) |60_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
