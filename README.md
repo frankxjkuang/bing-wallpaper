@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250901
+
+> Amalgamated Clothing Workers of America in a Labor Day parade, May 1915, Chicago (© Chicago Sun-Times/Chicago Daily News collection/Chicago History Museum/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> May 1915: Chicago buzzes with energy. Streetcars pass brick buildings, shop signs catch the morning light, and the city moves with purpose. But today, something different takes over the streets. The Amalgamated Clothing Workers of America, just months old, march in rows as sharp as the suits they craft. This isn't a quiet debut—it's a statement.
+> 
+> Formed by tailors and factory workers who broke away from more cautious unions, the Amalgamated brought together recent immigrants, skilled hands, and people tired of 14-hour shifts. In this parade, they're not behind machines—they're out front, holding banners high and showing what collective strength looks like.
+> 
+> Labor Day became a national holiday in 1894, but by 1915, it was still evolving—part celebration, part protest. Originally created to honor workers' contributions amid demands for fair wages, safer conditions, and shorter workdays, today, it's marked by barbecues, marches, sales, and one last summer break. It's a pause in the calendar that reminds us why time off matters—and a nod to those who keep the country moving.
+
+</details>
+
+| ![Labor Day parade in 1915 Chicago](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Labor Day parade in 1915 Chicago](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1080x1920.jpg) |
+
 ### 20250831
 
 > Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Trullo buildings in Alberobello, Apulia, Italy](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Trullo buildings in Alberobello, Apulia, Italy](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |
-
-### 20250825
-
-> Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, the National Park Service celebrates another trip around the sun—and nearly 85 million acres of American beauty under its care. From geysers that spout like soda cans to ancient cliff dwellings tucked into canyon walls, the NPS has spent over a century preserving, protecting, and inviting people to take a hike—literally. In 1916, President Woodrow Wilson signed the Organic Act into law, officially creating the NPS to 'conserve the scenery and the natural and historic objects.' Since then, the NPS has grown to oversee more than 400 sites, including national parks, battlefields, monuments, and seashores.
-> 
-> What better spot to toast the occasion than the Calcite Springs Overlook in Yellowstone National Park, Wyoming? This thermal-meets-canyon overlook offers front-row views of the Yellowstone River carving its way through a lava-forged canyon. Along the basalt cliffs, white mineral deposits that gave Calcite Springs its name are visible, formed by mineral-rich waters still steaming from underground. You might spot a bald eagle gliding overhead or bison lounging nearby. Yellowstone is more than just a park—it's a supervolcano with a visitor center.
-> 
-> 
-
-</details>
-
-| ![Yellowstone for the National Park Service's birthday](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yellowstone for the National Park Service's birthday](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
