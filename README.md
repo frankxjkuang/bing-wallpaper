@@ -2,146 +2,136 @@
 
 ### 20250903
 
-> 边界水域独木舟区荒野区, 明尼苏达州, 美国 (© s.tomas/Shutterstock)
+> Boundary Waters Canoe Area Wilderness, Minnesota (© s.tomas/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 这里是位于明尼苏达州东北部的边界水域独木舟荒野区。该区域跨越超过100万英亩，由相互连接的湖泊、河流和针叶林组成。这里的地貌由冰川雕琢的水道、岩石露头和茂密林地交织而成，为驼鹿、狼、鸥鸟及无数其他物种提供了理想栖息地。该地区拥有超过1200英里的皮划艇航线和2000多个露营地，为人们提供了难得的与自然亲密接触、享受宁静的机会。
+> The Wilderness Act of 1964, passed 61 years ago today, established the legal definition of wilderness in the United States. Its purpose was to preserve areas 'where the earth and its community of life are untrammeled by man.' This landmark legislation created the National Wilderness Preservation System, protecting millions of acres from development, roads, and mechanized use.
 > 
-> 
+> Among the most iconic areas protected under this act is the Boundary Waters Canoe Area Wilderness in northeastern Minnesota. Spanning over one million acres, it is a vast expanse of interconnected lakes, rivers, and boreal forests. The landscape is a mosaic of glacially carved waterways, rocky outcrops, and dense woodlands, offering a haven for moose, wolves, loons, and countless other species. With over 1,200 miles of canoe routes and more than 2,000 campsites, it provides a rare opportunity for solitude and immersion in nature. The Wilderness Act laid the foundation for safeguarding places like the Boundary Waters, ensuring they remain wild and untouched for future generations to experience and cherish.
 > 
 > 
 
 </details>
 
-| ![独木舟区荒野, 明尼苏达州, 美国](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![独木舟区荒野, 明尼苏达州, 美国](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Annivesary of the Wilderness Act of 1964](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Annivesary of the Wilderness Act of 1964](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_1080x1920.jpg) |
 
 ### 20250902
 
-> 骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚 (© Inge Johnsson/Alamy Stock Photo)
+> Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 乍一看，这仿佛是一件超现实的艺术装置：黑暗的树木凝固在黏土平原上，背后是沙丘和闪烁的天空。但这幅来自纳米比亚纳米布-诺克卢夫国家公园的德阿夫莱（Deadvlei）的景象，完全是自然形成的。德阿夫莱（Deadvlei）这个名字意为“死沼泽”——这是曾经填满这个盆地的湿地的遗迹。
+> At first glance, it looks like a surreal art installation: dark trees frozen on a clay pan, backed by sand dunes and a glowing sky. But this scene from Deadvlei, in Namibia's Namib-Naukluft Park, is entirely natural. The name 'Deadvlei' means 'dead marsh'—a remnant of the wetland that once filled this basin.
 > 
-> 数百年前，一条河流曾滋养着这片生命。随后沙丘移动，切断了水流。曾经在此生长的骆驼刺树并未倒塌或消失。极度干旱和土壤中极高的盐分含量彻底阻断了自然分解过程。在这种环境下，就连腐烂也停止了。这些树木被沙漠“防腐”——被阳光晒干，变得僵硬，根系牢牢扎根于原地，最长可达900年。死谷的力量不仅在于其震撼的美景，更在于其静默的抗争。这些树木虽已不再存活，却也未完全消逝，如同永恒的见证者，屹立于这个选择宁静而非消亡之地。
+> Centuries ago, a river sustained this patch of life. Then the dunes shifted, cutting off the flow. The camel thorn trees that once grew here didn't collapse or vanish. The extreme aridity and high salt content in the soil stopped the natural process in its tracks. Under those conditions, even decay gave up. The trees were embalmed by the desert—sun-dried, rigid, and rooted in place for up to 900 years. Deadvlei's power lies not only in its stark beauty but in its quiet defiance. These trees, no longer alive yet not fully gone, remain like permanent witnesses in a place that chose stillness over erasure.
 > 
 > 
 
 </details>
 
-| ![骆驼刺树, 纳米布-诺克卢福国家公园](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![骆驼刺树, 纳米布-诺克卢福国家公园](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Camel thorn trees, Namib-Naukluft Park, Namibia](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Camel thorn trees, Namib-Naukluft Park, Namibia](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_1080x1920.jpg) |
 
 ### 20250901
 
-> 凯撒施图尔，巴登-符腾堡，德国 (© EyeEM Mobile GmbH/Getty Images)
+> Amalgamated Clothing Workers of America in a Labor Day parade, May 1915, Chicago (© Chicago Sun-Times/Chicago Daily News collection/Chicago History Museum/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 凯撒施图尔山是巴登-符腾堡州南部一座低矮的小山脉，靠近弗莱堡，是德国阳光最充沛的地区之一。凯泽斯图尔因奥托三世皇帝于994年在此统治而得名。这片风景如画的地区是自然爱好者、寻求放松身心人士以及葡萄酒鉴赏家的天堂。肥沃的土壤和温和的气候，使灰皮诺和黑皮诺等葡萄品种在这里茁壮成长。过去的火山活动留下了富含矿物质的土壤，赋予了该地区葡萄酒独特的风味。连绵起伏的丘陵、田园诗般的村庄以及包括珍稀绿蜥蜴在内的多种野生动物，使凯泽斯图尔成为自然爱好者的迷人目的地。
+> May 1915: Chicago buzzes with energy. Streetcars pass brick buildings, shop signs catch the morning light, and the city moves with purpose. But today, something different takes over the streets. The Amalgamated Clothing Workers of America, just months old, march in rows as sharp as the suits they craft. This isn't a quiet debut—it's a statement.
 > 
-> 路标清晰的徒步和自行车道穿过葡萄园、森林以及福格茨堡和恩丁根等历史名镇，这些小镇以其半木结构的房屋和巴登人的热情好客而令人着迷。春天，兰花盛开，秋天，充满情调的葡萄酒节令人心驰神往。您可以欣赏无尽的葡萄园梯田全景，感受巴登人的热情好客。
+> Formed by tailors and factory workers who broke away from more cautious unions, the Amalgamated brought together recent immigrants, skilled hands, and people tired of 14-hour shifts. In this parade, they're not behind machines—they're out front, holding banners high and showing what collective strength looks like.
 > 
-> 
+> Labor Day became a national holiday in 1894, but by 1915, it was still evolving—part celebration, part protest. Originally created to honor workers' contributions amid demands for fair wages, safer conditions, and shorter workdays, today, it's marked by barbecues, marches, sales, and one last summer break. It's a pause in the calendar that reminds us why time off matters—and a nod to those who keep the country moving.
 
 </details>
 
-| ![凯撒施图尔，德国](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![凯撒施图尔，德国](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Labor Day parade in 1915 Chicago](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Labor Day parade in 1915 Chicago](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1080x1920.jpg) |
 
 ### 20250831
 
-> 杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国 (© Hawk Buckman/Getty Images)
+> Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在GPS问世之前，像斯科茨布卢夫（Scotts Bluff）这样的自然地标就已高耸于大草原之上，为西行的旅人指明方向。在1887年杰林镇（Gering）建镇之前，以及内布拉斯加州于1867年成为美国州份的数十年之前，这些砂岩和泥岩地貌已然引导着成千上万的旅人沿着俄勒冈小径、加利福尼亚小径和摩门教徒小径前行。斯科茨布卢夫国家纪念碑（Scotts Bluff National Monument）以皮毛商人希拉姆·斯科特（Hiram Scott）命名，他曾是落基山皮毛公司（Rocky Mountain Fur Company）的成员，于19世纪20年代在附近地区因神秘原因去世。
+> Long before GPS, natural landmarks like Scotts Bluff rose high above the prairie, signaling to travelers that they were on the right path heading west. Before Gering became a town in 1887 and decades before Nebraska achieved statehood in 1867, these sandstone and siltstone formations were already guiding thousands along the Oregon, California, and Mormon Trails. Scotts Bluff National Monument is named after Hiram Scott, a fur trader with the Rocky Mountain Fur Company who died under mysterious circumstances nearby in the 1820s.
 > 
-> 如今，这座占地近3000英亩的纪念碑包括两座主要悬崖——北部的斯科茨悬崖和南部的南悬崖。它还保护着五处显著的岩石突起：圆顶岩、鹰岩、皇冠岩、马鞍岩和哨兵岩。在地面上，骡鹿与黑尾草原犬鼠一同觅食，而豺狼在周围游荡，短草在风中摇曳。更高处，景观发生变化，刺叶丝兰和耐寒灌木依附于岩石斜坡，而大角羊则轻松地在悬崖间穿行。尽管马车早已消失，斯科茨悬崖仍作为历史与地形的向导屹立不倒。
+> Today, the nearly 3,000-acre monument includes two main bluffs—Scotts Bluff to the north and South Bluff. It also protects five prominent outcroppings: Dome Rock, Eagle Rock, Crown Rock, Saddle Rock, and Sentinel Rock. At ground level, mule deer graze alongside black-tailed prairie dogs, while coyotes prowl and short grasses ripple in the wind. Higher up, the landscape shifts, spiny yuccas and hardy shrubs cling to rocky slopes, and bighorn sheep navigate the cliffs with ease. Though the wagons are long gone, Scotts Bluff still stands as a guide through both history and terrain.
 > 
 > 
 
 </details>
 
-| ![斯科茨布拉夫国家纪念碑, 内布拉斯加州](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![斯科茨布拉夫国家纪念碑, 内布拉斯加州](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Scotts Bluff National Monument, Gering, Nebraska](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Scotts Bluff National Monument, Gering, Nebraska](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1080x1920.jpg) |
 
 ### 20250830
 
-> 阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫 (© Bachir Moukarzel/Amazing Aerial Agency)
+> Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)
 
 <details>
 <summary>Description</summary>
 
-> 如果你从未见过一条近40英尺长、身上布满斑点的鲸鲨在珊瑚礁间优雅游弋，那你可就错过了精彩的一幕。今天是国际鲸鲨日，提醒我们这些行动缓慢的巨型生物需要我们的关注。自2008年首次设立以来，这一天被研究人员和海洋保护倡导者用来聚焦保护工作，并警示船只撞击、塑料污染和无序旅游等威胁。
+> If you've never seen a nearly 40-foot, polka-dotted fish gliding past coral reefs, you are missing out. Today is International Whale Shark Day, a reminder that these slow-motion giants need our attention. First observed in 2008, the day is used by researchers and marine advocates to spotlight conservation efforts and threats like vessel strikes, plastic pollution, and unregulated tourism.
 > 
-> 鲸鲨是海洋中最大的鱼类，但别被“鲨鱼”这个词迷惑了。它们是以浮游生物为食的巨型生物，对人类毫无兴趣。鲸鲨分布于从马尔代夫和莫桑比克到墨西哥尤卡坦半岛的温暖水域，常出现在食物丰富、水流平缓的区域。它们的嘴巴可张开超过四英尺宽，但进食时靠吸吮而非咬合。每只鲸鲨都有独特的白色斑点和条纹图案——没有两只相同——研究人员利用这些图案来追踪个体。它们的繁殖模式仍 largely 是个谜，但它们是卵胎生，即幼崽在母体内部孵化后才出生。在像今天这样的日子里，它们的故事提醒我们，海洋生命中仍有太多未知，而保护我们已知处于危险中的生物是多么重要。
+> Whale sharks are the biggest fish in the sea, but don't let the word 'shark' fool you. They're plankton-eating giants with no interest in humans. Found in warm waters from the Maldives and Mozambique to Mexico's Yucatán coast, they often show up in food-rich, calm waters. Their mouths can stretch over four feet wide, but they feed by suction, not biting. Each has a unique pattern of white spots and stripes—no two alike—used by researchers to track individuals. Their breeding patterns remain largely a mystery, but they are ovoviviparous, meaning pups hatch inside the mother before being born alive. On a day like today, their story reminds us how much ocean life remains a mystery and how vital it is to protect what we already know is at risk.
 > 
 > 
 
 </details>
 
-| ![国际鲸鲨日](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际鲸鲨日](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1080x1920.jpg) |
 
 ### 20250829
 
-> 马约尔广场鸟瞰图, 马德里, 西班牙 (© AirPano LLC/Amazing Aerial Agency)
+> Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)
 
 <details>
 <summary>Description</summary>
 
-> 从高处俯瞰，马德里（西班牙首都）的马约尔广场（Plaza Mayor）上，整齐的拱廊与瓦片屋顶交织成一幅令人着迷的建筑和谐画卷。这片历史悠久的空间曾是热闹的集市广场“阿拉巴尔广场”（Plaza del Arrabal）的所在地，见证了这座城市数百年来的变迁。这一转变始于1561年，当时皇家法院从托莱多迁至马德里，广场随之归入马德里管辖。受秩序与宏伟愿景的启发，菲利普二世重新构想了这片广场——尽管实际施工直至菲利普三世统治时期的1617年才正式展开。
+> Seen from above, the uniform arcades and tiled rooftops of Plaza Mayor in Madrid—the capital of Spain—create a captivating architectural harmony. Once the site of a bustling market square known as the Plaza del Arrabal, this historic space has witnessed the city's transformation over the centuries. The shift began in 1561, when the plaza came under Madrid's jurisdiction after the royal court moved from Toledo. Inspired by a vision of order and grandeur, King Philip II reimagined the square—though construction did not actually begin until 1617, under the reign of Philip III.
 > 
-> 该广场采用矩形布局，四周环绕着三层高的建筑，共设有237个朝内的阳台。广场共有十个入口，其中九个设有门禁。广场中央矗立着菲利普三世的骑马雕像，该雕像于1848年增设。多年来，该广场曾举办过从地方节庆、斗牛活动到封圣仪式和皇家典礼等各类活动。如今，它仍是一个充满活力的聚集地，举办复活节鼓乐游行、户外音乐会、年度圣诞市场，以及每周日早上的邮票和硬币收藏家市场。
+> Featuring a rectangular layout, the plaza is framed by three-story buildings with 237 inward-facing balconies. It has 10 entrances, nine of which are gated. At its center stands the equestrian statue of Philip III, added in 1848. Over the years, the square has hosted everything from local festivities and bullfights to beatifications and royal ceremonies. Today, it remains a vibrant gathering place, featuring Easter drum parades, outdoor concerts, an annual Christmas market, and a Sunday morning market for stamp and coin collectors.
 > 
 > 
 
 </details>
 
-| ![马约尔广场鸟瞰图, 马德里,西班牙](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![马约尔广场鸟瞰图, 马德里,西班牙](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Aerial view of Plaza Mayor, Madrid, Spain](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Plaza Mayor, Madrid, Spain](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1080x1920.jpg) |
 
 ### 20250828
 
-> 大白鹭，匈牙利 (© Markus Varesvuo/Nature Picture Library)
+> Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)
 
 <details>
 <summary>Description</summary>
 
-> 今天让我们来认识一下大白鹭吧。它们分布在美洲、亚洲、非洲和欧洲部分地区，经常在湿地、潮滩和平静的溪流中涉水。它们耐心而精准，会一动不动地站上几分钟，等待着最佳时机发动闪电般的攻击。鱼类是它们的主要猎物，但也捕食青蛙、爬行动物，甚至小型哺乳动物。大白鹭广泛分布在世界各地。在中国见于东北、河北、江苏、云南、广东、海南、台湾等地。栖息于河川、海滨、沼泽湿地或水田中。性颇机警，见人即飞去。白天多单独寻觅食物，在食物丰富的区域内，也成小群活动。
+> They wear white after Labor Day—and all year long—with zero shame. Meet the great egret, also known as the great white egret. Found in the Americas, Asia, Africa, and parts of Europe, these birds are often seen wading through wetlands, tidal flats, and quiet streams. Patient and precise, they stand motionless for minutes, waiting for just the right moment to deliver a lightning-fast strike. Fish are their main prey, but they also eat frogs, reptiles, and even small mammals.
 > 
-> 
-> 
-> 
-
-</details>
-
-| ![大白鹭，匈牙利](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大白鹭，匈牙利](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1080x1920.jpg) |eportedly trying to avoid property taxes by constructing homes that could be quickly dismantled when the king's tax collector came around.
-> 
-> Alberobello's trulli aren't hidden one-offs. Entire districts—like Rione Monti and Aia Piccola—are packed with these quirky structures. Some are still lived in, while others have been transformed into cafés, souvenir shops, and pint-sized museums. You'll even find a church built in trullo style. In 1996, UNESCO gave the trulli of Alberobello the heritage stamp of approval. It's not every day that a loophole becomes a landmark.
+> In the late 1800s, the great egret's beautiful plumes became a must-have in women's fashion across North America, driving their population down by an estimated 95%. The killing might have continued if not for two Boston socialites, Harriet Hemenway and Minna Hall, who led a boycott of the feather trade. Their activism helped launch the National Audubon Society. It also pushed Congress to pass the Weeks–McLean Law in 1913, which banned market hunting and protected migratory birds. Today, the great egret is a powerful conservation success story thanks to more than a century of legal protection and public action. It also serves as the Audubon Society's symbol.
 > 
 > 
 
 </details>
 
-| ![Trullo buildings in Alberobello, Apulia, Italy](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Trullo buildings in Alberobello, Apulia, Italy](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![A great white egret in Hungary](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A great white egret in Hungary](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
