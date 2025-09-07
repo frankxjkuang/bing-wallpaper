@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250905
+
+> Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> When the sun clocks out in streaks of orange, pink, and purple, Santa Monica goes from laid-back to lit up. Literally. With over 3 miles of sand, a historic pier, and the Pacific Coast Highway keeping things scenic, this beach is more than just a pretty shoreline. Let's start with the sand. Wide, clean, and ready for volleyball or just flopping down with a good book, it's ideal for sunbathers and sandcastle architects alike. And yes, 'Baywatch' was filmed along Santa Monica Bay. Feel free to run in slow motion.
+> 
+> Then there's the Santa Monica Pier. Built in 1909 and still standing tall on wooden legs, it's got an amusement park called Pacific Park, arcade, restaurants, and that famous solar-powered Ferris wheel. Up for more movement? The Marvin Braude Bike Trail, or the Strand, is a 22-mile bike path that zips right through the beach. Rent a cruiser and ride past rollerbladers, dog walkers, and tourists trying to juggle ice cream and selfies. Here, the surf is another draw. Beginners can catch their first wave here, while pros keep an eye on the swells farther out.
+> 
+> 
+
+</details>
+
+| ![Pacific Park, Santa Monica State Beach, California](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pacific Park, Santa Monica State Beach, California](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_1080x1920.jpg) |
+
 ### 20250904
 
 > Grizzly bears wrestling, Katmai National Park and Preserve, Alaska (© Cavan Images/Adobe Stock)
@@ -112,26 +131,7 @@
 
 | ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1080x1920.jpg) |
-
-### 20250829
-
-> Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)
-
-<details>
-<summary>Description</summary>
-
-> Seen from above, the uniform arcades and tiled rooftops of Plaza Mayor in Madrid—the capital of Spain—create a captivating architectural harmony. Once the site of a bustling market square known as the Plaza del Arrabal, this historic space has witnessed the city's transformation over the centuries. The shift began in 1561, when the plaza came under Madrid's jurisdiction after the royal court moved from Toledo. Inspired by a vision of order and grandeur, King Philip II reimagined the square—though construction did not actually begin until 1617, under the reign of Philip III.
-> 
-> Featuring a rectangular layout, the plaza is framed by three-story buildings with 237 inward-facing balconies. It has 10 entrances, nine of which are gated. At its center stands the equestrian statue of Philip III, added in 1848. Over the years, the square has hosted everything from local festivities and bullfights to beatifications and royal ceremonies. Today, it remains a vibrant gathering place, featuring Easter drum parades, outdoor concerts, an annual Christmas market, and a Sunday morning market for stamp and coin collectors.
-> 
-> 
-
-</details>
-
-| ![Aerial view of Plaza Mayor, Madrid, Spain](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Plaza Mayor, Madrid, Spain](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1080x1920.jpg) |1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
