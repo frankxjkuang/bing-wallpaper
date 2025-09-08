@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250906
+
+> Rufous hummingbird, Golden Gate Park, San Francisco, California (© jeremyborkat/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> They fly backward, dive-bomb rivals, and travel farther than most road trippers. On National Hummingbird Day, meet the rufous hummingbird—photographed in Golden Gate Park, San Francisco, California. The bird, one of nine species in the genus Selasphorus, gets its name from its rusty, reddish-orange feathers. Males flash copper backs and red throat patches that shimmer in the sun. Females are more subdued but still carry streaks of rufous on their sides and tails.
+> 
+> They may look sweet, but these pollinators are known for their aggressive behavior, often chasing away not just other hummingbirds, but also bees and butterflies. At around 3 inches long, this nectar-seeker is a frequent flyer in the most literal sense. Each year, it migrates from Mexico to Alaska and back—a round-trip of up to 8,000 miles. That's one of the longest migrations relative to body size in the bird world. And here's the kicker: many return to the exact same gardens and feeders year after year.
+> 
+> Whether you're planting flowers, or peering through binoculars as one zips by, National Hummingbird Day is a good excuse to slow down and marvel at something tiny but mighty.
+
+</details>
+
+| ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_1080x1920.jpg) |
+
 ### 20250905
 
 > Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Scotts Bluff National Monument, Gering, Nebraska](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Scotts Bluff National Monument, Gering, Nebraska](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1080x1920.jpg) |
-
-### 20250830
-
-> Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)
-
-<details>
-<summary>Description</summary>
-
-> If you've never seen a nearly 40-foot, polka-dotted fish gliding past coral reefs, you are missing out. Today is International Whale Shark Day, a reminder that these slow-motion giants need our attention. First observed in 2008, the day is used by researchers and marine advocates to spotlight conservation efforts and threats like vessel strikes, plastic pollution, and unregulated tourism.
-> 
-> Whale sharks are the biggest fish in the sea, but don't let the word 'shark' fool you. They're plankton-eating giants with no interest in humans. Found in warm waters from the Maldives and Mozambique to Mexico's Yucatán coast, they often show up in food-rich, calm waters. Their mouths can stretch over four feet wide, but they feed by suction, not biting. Each has a unique pattern of white spots and stripes—no two alike—used by researchers to track individuals. Their breeding patterns remain largely a mystery, but they are ovoviviparous, meaning pups hatch inside the mother before being born alive. On a day like today, their story reminds us how much ocean life remains a mystery and how vital it is to protect what we already know is at risk.
-> 
-> 
-
-</details>
-
-| ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1080x1920.jpg) |1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1080x1920.jpg) |EN-US3819740955_1080x1920.jpg) |1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
