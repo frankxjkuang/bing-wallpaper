@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250907
+
+> Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Where cobbled charm meets coastal cool, Gdańsk is a dynamic city in Poland's Pomorskie province. It is part of Tricity—a metropolitan area along the Gdańsk Bay that includes the neighboring coastal cities of Sopot and Gdynia, along with nearby towns. The city likely takes its name from 'Gdania,' an earlier name for the Motława river that runs through it.
+> 
+> The city originated as a Slavic fort in the late 10th century and was first recorded in 997, when it came under the early influence of the Polish state. Over the centuries, Gdańsk has experienced Polish, German, and independent rule, each leaving a mark on the region's identity. The Main City draws most visitors, especially to the lively promenade that runs along Ulica Długa (Long Street) and Długi Targ (Long Market). Flanked by decorative gates and lined with stately townhouses rebuilt in 17th-century style, this pedestrian stretch is steeped in charm. Once the ceremonial path for Polish royalty, it's now fondly known as the Royal Route. The path unfolds like a living museum, dotted with historic landmarks like the Highland Gate, Amber Museum, Uphagen's House, Main Town Hall, Neptune's Fountain, and the grand Artus Court.
+> 
+> 
+
+</details>
+
+| ![Gdańsk on the banks of the Motława, Poland](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gdańsk on the banks of the Motława, Poland](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_1080x1920.jpg) |
+
 ### 20250906
 
 > Rufous hummingbird, Golden Gate Park, San Francisco, California (© jeremyborkat/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Labor Day parade in 1915 Chicago](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Labor Day parade in 1915 Chicago](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1080x1920.jpg) |
-
-### 20250831
-
-> Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Long before GPS, natural landmarks like Scotts Bluff rose high above the prairie, signaling to travelers that they were on the right path heading west. Before Gering became a town in 1887 and decades before Nebraska achieved statehood in 1867, these sandstone and siltstone formations were already guiding thousands along the Oregon, California, and Mormon Trails. Scotts Bluff National Monument is named after Hiram Scott, a fur trader with the Rocky Mountain Fur Company who died under mysterious circumstances nearby in the 1820s.
-> 
-> Today, the nearly 3,000-acre monument includes two main bluffs—Scotts Bluff to the north and South Bluff. It also protects five prominent outcroppings: Dome Rock, Eagle Rock, Crown Rock, Saddle Rock, and Sentinel Rock. At ground level, mule deer graze alongside black-tailed prairie dogs, while coyotes prowl and short grasses ripple in the wind. Higher up, the landscape shifts, spiny yuccas and hardy shrubs cling to rocky slopes, and bighorn sheep navigate the cliffs with ease. Though the wagons are long gone, Scotts Bluff still stands as a guide through both history and terrain.
-> 
-> 
-
-</details>
-
-| ![Scotts Bluff National Monument, Gering, Nebraska](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Scotts Bluff National Monument, Gering, Nebraska](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1080x1920.jpg) |EN-US3819740955_1080x1920.jpg) |1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1080x1920.jpg) |n.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
