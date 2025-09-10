@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250908
+
+> Library@orchard, Singapore (© Darwin Fan/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Read it and believe it—literacy changes everything. As a basic human right, literacy is a powerful tool that opens the door to greater freedoms and active global citizenship. Recognizing its far-reaching impact, International Literacy Day—observed each year on September 8 since 1967—serves as a reminder of how vital literacy is in building a better, more sustainable future for all. This year, the theme explores literacy in a digital age, where technology continues to reshape how people learn, communicate, and participate in society. As a result, digital engagement has become both a challenge and an opportunity.
+> 
+> Bringing this vision to life in a youth-centric urban setting, library@orchard at Orchard Gateway in Singapore, featured here, reflects a bold shift in how libraries engage with younger audiences. Spanning two visually distinct levels—The Studio and The Loft—this 18,000-square-foot space holds a curated collection of 100,000 items. Developed in collaboration with students and lecturers from Singapore Polytechnic, this library is a dynamic environment for learning, expression, and creative exploration in the heart of Orchard Road.
+> 
+> 
+
+</details>
+
+| ![International Literacy Day](https://cn.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Literacy Day](https://cn.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_1080x1920.jpg) |
+
 ### 20250907
 
 > Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Camel thorn trees, Namib-Naukluft Park, Namibia](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Camel thorn trees, Namib-Naukluft Park, Namibia](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_1080x1920.jpg) |
-
-### 20250901
-
-> Amalgamated Clothing Workers of America in a Labor Day parade, May 1915, Chicago (© Chicago Sun-Times/Chicago Daily News collection/Chicago History Museum/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> May 1915: Chicago buzzes with energy. Streetcars pass brick buildings, shop signs catch the morning light, and the city moves with purpose. But today, something different takes over the streets. The Amalgamated Clothing Workers of America, just months old, march in rows as sharp as the suits they craft. This isn't a quiet debut—it's a statement.
-> 
-> Formed by tailors and factory workers who broke away from more cautious unions, the Amalgamated brought together recent immigrants, skilled hands, and people tired of 14-hour shifts. In this parade, they're not behind machines—they're out front, holding banners high and showing what collective strength looks like.
-> 
-> Labor Day became a national holiday in 1894, but by 1915, it was still evolving—part celebration, part protest. Originally created to honor workers' contributions amid demands for fair wages, safer conditions, and shorter workdays, today, it's marked by barbecues, marches, sales, and one last summer break. It's a pause in the calendar that reminds us why time off matters—and a nod to those who keep the country moving.
-
-</details>
-
-| ![Labor Day parade in 1915 Chicago](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Labor Day parade in 1915 Chicago](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1080x1920.jpg) |n.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_1080x1920.jpg) |th?id=OHR.LaborDayChicago_EN-US3947410593_1080x1920.jpg) |n.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
