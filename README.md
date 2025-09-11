@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250909
+
+> A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Quick, clever, and always on the move—meet the Eurasian red squirrel, a leafy treetop resident found across much of Europe and Asia. While it prefers the shelter of forests, this agile creature easily adapts to gardens and parks. It builds its nest, called a drey, high in the fork of a tree using twigs to form a domed structure about 10 to 12 inches wide. The female featured here is gathering moss—one of several soft materials, along with bark, leaves, and grass, that line the nest and turn it into a snug, well-insulated retreat. These rodents may also take over tree hollows or abandoned woodpecker holes when available.
+> 
+> Typically solitary and quite shy, they rarely share food or space. However, during colder months, it's not uncommon for several individuals to use the same nest to stay warm. Their social organization is shaped by dominance hierarchies, both within and between the sexes. While males aren't always dominant over females, the top-ranking individuals tend to be older and larger. Dominant males also tend to occupy larger home ranges than subordinate males or most females.
+> 
+> 
+
+</details>
+
+| ![A Eurasian red squirrel in Switzerland](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A Eurasian red squirrel in Switzerland](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_1080x1920.jpg) |
+
 ### 20250908
 
 > Library@orchard, Singapore (© Darwin Fan/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Annivesary of the Wilderness Act of 1964](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Annivesary of the Wilderness Act of 1964](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_1080x1920.jpg) |
-
-### 20250902
-
-> Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> At first glance, it looks like a surreal art installation: dark trees frozen on a clay pan, backed by sand dunes and a glowing sky. But this scene from Deadvlei, in Namibia's Namib-Naukluft Park, is entirely natural. The name 'Deadvlei' means 'dead marsh'—a remnant of the wetland that once filled this basin.
-> 
-> Centuries ago, a river sustained this patch of life. Then the dunes shifted, cutting off the flow. The camel thorn trees that once grew here didn't collapse or vanish. The extreme aridity and high salt content in the soil stopped the natural process in its tracks. Under those conditions, even decay gave up. The trees were embalmed by the desert—sun-dried, rigid, and rooted in place for up to 900 years. Deadvlei's power lies not only in its stark beauty but in its quiet defiance. These trees, no longer alive yet not fully gone, remain like permanent witnesses in a place that chose stillness over erasure.
-> 
-> 
-
-</details>
-
-| ![Camel thorn trees, Namib-Naukluft Park, Namibia](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Camel thorn trees, Namib-Naukluft Park, Namibia](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_1080x1920.jpg) |th?id=OHR.LaborDayChicago_EN-US3947410593_1080x1920.jpg) |n.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_1080x1920.jpg) |439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
