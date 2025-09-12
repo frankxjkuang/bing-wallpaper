@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250910
+
+> Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 'Make hay while the sun shines' may sound like an old proverb, but in farming it's a practical truth. Hay baling plays a crucial role in agriculture worldwide. It involves cutting, drying, and packaging grasses to feed livestock during the colder months. The process depends heavily on the weather: the grass must be dry before it's baled, or it risks molding. Farmers must act quickly once a dry spell arrives, making it a seasonal race.
+> 
+> The practice of baling dates back centuries, evolving from horse-powered balers of the 1800s to today's high-powered machines that can wrap and eject bales in minutes. In North Yorkshire, England—where today's image was taken—the rolling lowlands and upland meadows create ideal conditions for growing and curing high-quality hay. With grazing livestock such as sheep and cattle making up around 40% of farm holdings, hay is a key feed resource supporting the region's rural economy. So, when you see golden fields dotted with neat, sunlit rolls, you're witnessing the result of careful timing and hard work. It's a tradition that remains as important today as ever.
+> 
+> 
+
+</details>
+
+| ![Hay bales in North Yorkshire, England](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hay bales in North Yorkshire, England](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1080x1920.jpg) |
+
 ### 20250909
 
 > A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Grizzly bears in Katmai for National Wildlife Day](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grizzly bears in Katmai for National Wildlife Day](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_1080x1920.jpg) |
-
-### 20250903
-
-> Boundary Waters Canoe Area Wilderness, Minnesota (© s.tomas/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> The Wilderness Act of 1964, passed 61 years ago today, established the legal definition of wilderness in the United States. Its purpose was to preserve areas 'where the earth and its community of life are untrammeled by man.' This landmark legislation created the National Wilderness Preservation System, protecting millions of acres from development, roads, and mechanized use.
-> 
-> Among the most iconic areas protected under this act is the Boundary Waters Canoe Area Wilderness in northeastern Minnesota. Spanning over one million acres, it is a vast expanse of interconnected lakes, rivers, and boreal forests. The landscape is a mosaic of glacially carved waterways, rocky outcrops, and dense woodlands, offering a haven for moose, wolves, loons, and countless other species. With over 1,200 miles of canoe routes and more than 2,000 campsites, it provides a rare opportunity for solitude and immersion in nature. The Wilderness Act laid the foundation for safeguarding places like the Boundary Waters, ensuring they remain wild and untouched for future generations to experience and cherish.
-> 
-> 
-
-</details>
-
-| ![Annivesary of the Wilderness Act of 1964](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Annivesary of the Wilderness Act of 1964](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_1080x1920.jpg) |439665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_1080x1920.jpg) |9665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
