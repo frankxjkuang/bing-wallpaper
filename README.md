@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250911
+
+> Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> September 11, 2001, began like any other day—until history changed in an instant. Nearly 3,000 innocent lives were lost in the terrorist attacks on the World Trade Center, the Pentagon, and aboard United Airlines Flight 93. Today, on Patriot Day, we honor the fallen and the countless acts of courage that emerged in the face of tragedy, from firefighters and first responders to ordinary citizens who became heroes. At 8:46 AM Eastern Time—the moment the first plane struck the North Tower—Americans observe a moment of silence. Permanent memorials now stand at each of the three sites. Visiting one or volunteering in your community is a meaningful way to participate in the National Day of Service and honor those who continue to serve.
+> 
+> In Lower Manhattan, where the Twin Towers once stood, One World Trade Center rises as a symbol of resilience. Its height—1,776 feet—is a deliberate reference to the birth of American independence. In New York Harbor, the Statue of Liberty stands watch over the skyline both as a witness to tragedy and a guardian of hope.
+> 
+> 
+
+</details>
+
+| ![Patriot Day](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1080x1920.jpg) |
+
 ### 20250910
 
 > Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Pacific Park, Santa Monica State Beach, California](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pacific Park, Santa Monica State Beach, California](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_1080x1920.jpg) |
-
-### 20250904
-
-> Grizzly bears wrestling, Katmai National Park and Preserve, Alaska (© Cavan Images/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> It's time to go wild—responsibly! Today is National Wildlife Day. Let's celebrate the incredible animals that roam, fly, swim, and slither across our planet. It's also a day to honor the work of wildlife sanctuaries, conservationists, and endangered species programs that protect our most vulnerable creatures.
-> 
-> Among the most iconic of these is the grizzly bear, a symbol of the American wilderness. Young grizzlies like these cubs in Alaska's Katmai National Park often 'play-fight' to build strength, sharpen skills, and establish social bonds. These heavyweight champs can weigh up to 900 pounds and still sprint faster than most humans (up to 35 mph). Once widespread across the western United States, grizzlies now primarily roam Alaska and parts of the Northern Rockies. National Wildlife Day reminds us that keeping their wild spaces safe is key to their survival—and ours. So today, let's honor the wild, protect what's precious, and maybe growl a little in solidarity.
-> 
-> 
-
-</details>
-
-| ![Grizzly bears in Katmai for National Wildlife Day](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grizzly bears in Katmai for National Wildlife Day](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_1080x1920.jpg) |9665_1080x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_1080x1920.jpg) |x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
