@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250912
+
+> Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> With lifelong bonds, signature whistles, and echolocation, dolphins are more than just smart swimmers. First observed in 2022, World Dolphin Day shines a light on these intelligent marine mammals and the oceans they rely on. The day encourages people to learn about their behavior and the threats they face. Over 40 dolphin species swim our seas, from the Māui dolphin to the Irrawaddy dolphin. They're expert navigators, problem-solvers, and team players. Some even form superpods—temporary gatherings of hundreds or thousands of dolphins moving together offshore.
+> 
+> Off the coast of Marsa Alam in Egypt, pods of spinner dolphins glide through the warm waters of the Red Sea—as seen in today's image. True to their name, they can leap and spin in the air up to seven times in a single jump. Found in tropical waters across the Pacific, Indian, and Atlantic Oceans, they rest during the day in calm bays and hunt offshore at night. But their predictable routines have left them vulnerable to unregulated tourism. Some conservation zones now limit visitor access to allow dolphins to rest undisturbed. The hope? That these creatures continue their spins without interruption.
+> 
+> 
+
+</details>
+
+| ![In the Red Sea for World Dolphin Day](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![In the Red Sea for World Dolphin Day](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1080x1920.jpg) |
+
 ### 20250911
 
 > Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_1080x1920.jpg) |
-
-### 20250905
-
-> Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> When the sun clocks out in streaks of orange, pink, and purple, Santa Monica goes from laid-back to lit up. Literally. With over 3 miles of sand, a historic pier, and the Pacific Coast Highway keeping things scenic, this beach is more than just a pretty shoreline. Let's start with the sand. Wide, clean, and ready for volleyball or just flopping down with a good book, it's ideal for sunbathers and sandcastle architects alike. And yes, 'Baywatch' was filmed along Santa Monica Bay. Feel free to run in slow motion.
-> 
-> Then there's the Santa Monica Pier. Built in 1909 and still standing tall on wooden legs, it's got an amusement park called Pacific Park, arcade, restaurants, and that famous solar-powered Ferris wheel. Up for more movement? The Marvin Braude Bike Trail, or the Strand, is a 22-mile bike path that zips right through the beach. Rent a cruiser and ride past rollerbladers, dog walkers, and tourists trying to juggle ice cream and selfies. Here, the surf is another draw. Beginners can catch their first wave here, while pros keep an eye on the swells farther out.
-> 
-> 
-
-</details>
-
-| ![Pacific Park, Santa Monica State Beach, California](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pacific Park, Santa Monica State Beach, California](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_1080x1920.jpg) |x1920.jpg) |://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1080x1920.jpg) |7547756_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_1080x1920.jpg) |_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
