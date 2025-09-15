@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250913
+
+> Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> It's not polished or curated—and that's exactly the point. Drive just over an hour north of San Francisco, and you'll reach Point Reyes National Seashore—a place where fog drifts slowly, tule elk roam freely, and time seems to pause. Established by Congress on this day in 1962, the park was set aside to protect this piece of coastline for public enjoyment and environmental conservation. It covers over 100 square miles and features an impressive array of landscapes, from coastal prairie and blustery headlands to sandy shores and Douglas fir woodlands.
+> 
+> At the park's eastern boundary, Chimney Rock—seen in today's image—extends into the Pacific Ocean with towering cliffs and sweeping sea views. Its trail is considered one of the best spots on the West Coast to witness the gray whale migration. In the winter months, nearby secluded beaches become a refuge for northern elephant seals, offering an opportunity for wildlife viewing. With over 490 species of birds, more than 80 types of mammals, and numerous rare plants, Point Reyes ranks among the most ecologically diverse places in the country. Over 150 miles of trails invite visitors to slow their pace and immerse themselves in the surroundings.
+> 
+> 
+
+</details>
+
+| ![Point Reyes National Seashore in California](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Point Reyes National Seashore in California](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |
+
 ### 20250912
 
 > Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Gdańsk on the banks of the Motława, Poland](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gdańsk on the banks of the Motława, Poland](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_1080x1920.jpg) |
-
-### 20250906
-
-> Rufous hummingbird, Golden Gate Park, San Francisco, California (© jeremyborkat/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> They fly backward, dive-bomb rivals, and travel farther than most road trippers. On National Hummingbird Day, meet the rufous hummingbird—photographed in Golden Gate Park, San Francisco, California. The bird, one of nine species in the genus Selasphorus, gets its name from its rusty, reddish-orange feathers. Males flash copper backs and red throat patches that shimmer in the sun. Females are more subdued but still carry streaks of rufous on their sides and tails.
-> 
-> They may look sweet, but these pollinators are known for their aggressive behavior, often chasing away not just other hummingbirds, but also bees and butterflies. At around 3 inches long, this nectar-seeker is a frequent flyer in the most literal sense. Each year, it migrates from Mexico to Alaska and back—a round-trip of up to 8,000 miles. That's one of the longest migrations relative to body size in the bird world. And here's the kicker: many return to the exact same gardens and feeders year after year.
-> 
-> Whether you're planting flowers, or peering through binoculars as one zips by, National Hummingbird Day is a good excuse to slow down and marvel at something tiny but mighty.
-
-</details>
-
-| ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_1080x1920.jpg) |_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
