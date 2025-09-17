@@ -2,136 +2,136 @@
 
 ### 20250915
 
-> 黑翅长脚鹬, 法国 (© Antonio Sementa/500px/Getty Images)
+> Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 在非洲闪烁的泻湖、亚洲蜿蜒的三角洲以及南欧的盐沼之间，一个优雅的身影悄然浮现，轻盈地徘徊于水天之间。黑翅长脚鹬以其修长纤细的红色双腿，在浅滩间悄然移动，举止间透着宁静的优雅。它们的存在有时会带来一种宁静的亲密感——两只鸟儿贴近漂浮，动作如同一场 delicate 的舞蹈，仿佛在分享一个只有湿地才能听到的秘密。它们以安静的精准度狩猎，轻轻地从水面拾取昆虫、幼虫和小型甲壳类动物。每一个动作都展现出对环境的微妙掌控，这种掌控力源于耐心与本能的结合。
+> What's as colorful as the diversity and history of humankind? The Latino Cultural Center in Dallas, Texas. Its vibrant walls—seen in today's image—rise from a 27,000-square-foot foundation and celebrate Latino and Hispanic arts and culture. From September 15 to October 15, our country observes Hispanic Heritage Month, honoring the histories, cultures, and contributions of Americans with roots in Spain, Mexico, the Caribbean, and Central and South America.
 > 
-> 但这些鸟类不仅仅是优雅的漫游者。它们在裸露的地面上筑巢，容易受到洪水上涨和人类活动的干扰，因此成为了生态健康的重要指标。它们的存在意味着生态平衡，而它们的消失则是一个警告。保护鹬鸟就是保护湿地那脆弱的和谐——那些在寂静中孕育生命的闪烁世界。在它们的倒影中，我们不仅看到了美，还看到了迫切需要保护那些仍保留着这种美的地方。
+> One of the most dynamic places to experience this celebration is the Latino Cultural Center. Designed by renowned Mexican architect Ricardo Legorreta, the center is a bold landmark that blends modern design with traditional Mexican aesthetics. Since its opening in 2003, the venue has hosted over 300 events annually, including art exhibitions, theater performances, and community workshops. During Hispanic Heritage Month, it becomes a lively hub, showcasing local Latino artists, folkloric dance, and cultural storytelling. Notable exhibitions have featured artists including Celia Álvarez Muñoz, Judy Baca, Margaret Garcia, and Benito Huerta. Whether you're attending a performance or admiring its architecture, the Latino Cultural Center stands as a powerful tribute to the enduring influence of Hispanic culture in American life.
 > 
 > 
 
 </details>
 
-| ![黑翅长脚鹬, 法国](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![黑翅长脚鹬, 法国](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Dallas' Latino Cultural Center for Hispanic Heritage](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dallas' Latino Cultural Center for Hispanic Heritage](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_1080x1920.jpg) |
 
 ### 20250914
 
-> 奥林匹克国家公园的瀑布, 华盛顿, 美国 (© Chris Moore/TANDEM Stills + Motion)
+> A waterfall in Olympic National Park, Washington (© Chris Moore/TANDEM Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 奥林匹克国家公园拥有罕见的多元地形——这正是其独特魅力所在。这里汇聚了高山脊岭、宁静的森林，以及美国本土48州中最长的未开发海岸线之一。这片占地近1400平方英里的华盛顿州区域，作为联合国教科文组织世界遗产地，在2024年吸引了超过370万名游客。该地区最初于1909年由西奥多·罗斯福总统以“奥林匹斯山国家纪念碑”之名设立为保护区，并于1938年正式成为国家公园。
+> Olympic National Park covers a rare mix of terrain—and that's part of its unique appeal. Alpine ridges, quiet forests, and one of the longest stretches of undeveloped coastline in the lower 48 all meet here. Spanning nearly 1,400 square miles in Washington State, this UNESCO World Heritage Site drew over 3.7 million visitors in 2024. Originally protected in 1909 as Mount Olympus National Monument by President Theodore Roosevelt, the area became a national park in 1938.
 > 
-> 雨在这里不是问题——正是雨让这片苔藓覆盖的区域得以存在。在公园的西部边缘，霍雨林每年降雨量约为140英寸——超过11英尺——它自豪地承载着每一滴雨水。高耸的西黄松、西部红杉和海岸道格拉斯冷杉沿着像“苔藓大厅”这样的步道排列，而香蕉蛞蝓、猞猁和奥林匹克黑熊则以这片森林为家。霍雨林是世界上保存最完好的温带雨林之一。如果你在追寻瀑布，索尔杜克瀑布绝对不会让你失望——三条溪流倾泻入狭窄的苔藓峡谷。奥林匹克国家公园是一个坚实的提醒：最好的徒步旅行并不总是伴随着晴朗的天空。
+> Rain isn't a problem here—it's the reason this moss-draped area exists. On the western edge of the park, the Hoh Rainforest receives about 140 inches of rain a year—over 11 feet—and it wears every drop proudly. Towering Sitka spruces, western red cedars, and coast Douglas firs line trails like the Hall of Mosses, while banana slugs, bobcats, and Olympic black bears call the forest home. The Hoh is one of the best-preserved temperate rainforests in the world. And if you're chasing waterfalls, Sol Duc Falls delivers—three streams plunging into a narrow, mossy gorge. Olympic is a solid reminder that the best hikes don't always come with clear skies.
 > 
 > 
 
 </details>
 
-| ![奥林匹克国家公园, 华盛顿](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![奥林匹克国家公园, 华盛顿](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_1080x1920.jpg) |
 
 ### 20250913
 
-> 烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国 (© Enrique Aguirre Aves/Getty Images)
+> Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 这里没有经过精心打磨或精心策划——而这正是它的精髓所在。从旧金山向北驱车仅需一个多小时，便可抵达点雷斯岬国家海岸公园——一个雾气缓缓飘荡、 tule 鹿自由漫步、时间仿佛停滞的地方。该公园于1962年的今天由国会设立，旨在保护这片海岸线，供公众游览和环境保护之用。公园面积超过100平方英里，拥有令人惊叹的景观，从沿海草原和风吹雨打的岬角，到沙滩和道格拉斯冷杉林。
+> It's not polished or curated—and that's exactly the point. Drive just over an hour north of San Francisco, and you'll reach Point Reyes National Seashore—a place where fog drifts slowly, tule elk roam freely, and time seems to pause. Established by Congress on this day in 1962, the park was set aside to protect this piece of coastline for public enjoyment and environmental conservation. It covers over 100 square miles and features an impressive array of landscapes, from coastal prairie and blustery headlands to sandy shores and Douglas fir woodlands.
 > 
-> 在公园的东界，烟囱岩（如今日图片所示）延伸至太平洋，高耸的悬崖与壮丽的海景相映成趣。其步道被视为西海岸观赏灰鲸迁徙的最佳地点之一。冬季时节，附近隐秘的海滩成为北象海豹的避难所，为观赏野生动物提供了绝佳机会。凭借超过490种鸟类、80多种哺乳动物及众多稀有植物，点雷耶斯（Point Reyes）跻身全国生态多样性最丰富的地区之列。超过150英里的步道邀请游客放慢脚步，沉浸于自然环境之中。
+> At the park's eastern boundary, Chimney Rock—seen in today's image—extends into the Pacific Ocean with towering cliffs and sweeping sea views. Its trail is considered one of the best spots on the West Coast to witness the gray whale migration. In the winter months, nearby secluded beaches become a refuge for northern elephant seals, offering an opportunity for wildlife viewing. With over 490 species of birds, more than 80 types of mammals, and numerous rare plants, Point Reyes ranks among the most ecologically diverse places in the country. Over 150 miles of trails invite visitors to slow their pace and immerse themselves in the surroundings.
 > 
 > 
 
 </details>
 
-| ![雷斯岬国家海岸, 加利福尼亚州](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![雷斯岬国家海岸, 加利福尼亚州](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Point Reyes National Seashore in California](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Point Reyes National Seashore in California](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |
 
 ### 20250912
 
-> 红海中的飞旋海豚群, 阿拉姆港, 埃及 (© Franco Banfi/Nature Picture Library)
+> Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)
 
 <details>
 <summary>Description</summary>
 
-> 凭借终身伴侣关系、独特的鸣叫声和回声定位能力，海豚远不止是聪明的游泳者。自2022年首次被观察到以来，世界海豚日旨在关注这些聪明的海洋哺乳动物及其赖以生存的海洋环境。这一天鼓励人们了解它们的行为以及所面临的威胁。超过40种海豚在我们的海洋中游弋，从毛伊海豚到伊洛瓦底海豚。它们是卓越的导航者、问题解决者和团队合作者。有些甚至会形成超级群落——数百或数千只海豚在近海共同迁徙的临时聚集。
+> With lifelong bonds, signature whistles, and echolocation, dolphins are more than just smart swimmers. First observed in 2022, World Dolphin Day shines a light on these intelligent marine mammals and the oceans they rely on. The day encourages people to learn about their behavior and the threats they face. Over 40 dolphin species swim our seas, from the Māui dolphin to the Irrawaddy dolphin. They're expert navigators, problem-solvers, and team players. Some even form superpods—temporary gatherings of hundreds or thousands of dolphins moving together offshore.
 > 
-> 在埃及马萨阿拉姆海岸附近，一群群旋尾海豚在红海温暖的海水中优雅地游弋——正如今日所见。正如其名，它们能在单次跳跃中连续跃起并旋转多达七次。这些海豚分布于太平洋、印度洋和大西洋的热带水域，白天在平静的海湾休息，夜晚则在近海捕食。然而，它们可预测的活动规律使它们容易受到无序旅游业的威胁。一些保护区现在限制游客进入，以让海豚能够不受打扰地休息。希望是，这些生物能够继续它们的旋转，不受干扰。
+> Off the coast of Marsa Alam in Egypt, pods of spinner dolphins glide through the warm waters of the Red Sea—as seen in today's image. True to their name, they can leap and spin in the air up to seven times in a single jump. Found in tropical waters across the Pacific, Indian, and Atlantic Oceans, they rest during the day in calm bays and hunt offshore at night. But their predictable routines have left them vulnerable to unregulated tourism. Some conservation zones now limit visitor access to allow dolphins to rest undisturbed. The hope? That these creatures continue their spins without interruption.
 > 
 > 
 
 </details>
 
-| ![世界海豚日](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界海豚日](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![In the Red Sea for World Dolphin Day](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![In the Red Sea for World Dolphin Day](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1080x1920.jpg) |
 
 ### 20250911
 
-> 蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙 (© Daniel Viñé Garcia/Getty Images)
+> Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 探索蒙弗拉圭国家公园，这座位于埃斯特雷马杜拉自治区心脏地带的自然瑰宝。从卡塞雷斯市的萨尔托德尔吉塔诺观景台，您可以欣赏到西班牙最壮丽的日落之一，四周环绕着嶙峋的悬崖，天空被金色的光辉染成一片金黄。两条河流——塔霍河和蒂埃塔尔河——横贯公园，塑造了其崎岖的地形，并滋养了丰富多样的野生动植物和地中海植被。这片天堂是自然爱好者和观鸟者的理想之地。秃鹫在公园上空自由翱翔——这里是欧洲最大的秃鹫群落所在地——与西班牙帝国鹰和埃及秃鹫共同栖息，使这里成为真正的生物多样性热点。
+> September 11, 2001, began like any other day—until history changed in an instant. Nearly 3,000 innocent lives were lost in the terrorist attacks on the World Trade Center, the Pentagon, and aboard United Airlines Flight 93. Today, on Patriot Day, we honor the fallen and the countless acts of courage that emerged in the face of tragedy, from firefighters and first responders to ordinary citizens who became heroes. At 8:46 AM Eastern Time—the moment the first plane struck the North Tower—Americans observe a moment of silence. Permanent memorials now stand at each of the three sites. Visiting one or volunteering in your community is a meaningful way to participate in the National Day of Service and honor those who continue to serve.
 > 
-> 当夜幕降临，蒙弗拉格国家公园呈现出一幅截然不同的景象。2011年，该公园因其异常晴朗的夜空——堪称观星的理想之地——而被提名为“星光计划”的星空质量认证候选地。
+> In Lower Manhattan, where the Twin Towers once stood, One World Trade Center rises as a symbol of resilience. Its height—1,776 feet—is a deliberate reference to the birth of American independence. In New York Harbor, the Statue of Liberty stands watch over the skyline both as a witness to tragedy and a guardian of hope.
 > 
-> 拥有清晰标记的步道、地中海植物群落以及一座古老阿拉伯城堡的遗址，这座公园是负责任旅游和宁静逃离的理想之地。渴望探索自然、历史与无垠的天空？蒙弗拉格公园应有尽有。体验这片独特之地——无需远行，即可感受远离尘嚣的宁静。
+> 
 
 </details>
 
-| ![蒙弗拉圭国家公园，西班牙](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![蒙弗拉圭国家公园，西班牙](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Patriot Day](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1080x1920.jpg) |
 
 ### 20250910
 
-> 干草捆，北约克郡，英格兰 (© Nick Brundle Photography/Getty Images)
+> Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> “趁着阳光明媚，赶紧打草”这句谚语听起来可能有些陈旧，但在农业领域，它却是实实在在的真理。打草捆在全球农业中扮演着至关重要的角色。这一过程包括割草、晾干和包装草料，以便在寒冷季节喂养牲畜。整个流程高度依赖天气条件：草料必须在打捆前完全干燥，否则容易发霉。农民必须在干旱天气来临时迅速行动，因此这成为了一场季节性的赛跑。
+> 'Make hay while the sun shines' may sound like an old proverb, but in farming it's a practical truth. Hay baling plays a crucial role in agriculture worldwide. It involves cutting, drying, and packaging grasses to feed livestock during the colder months. The process depends heavily on the weather: the grass must be dry before it's baled, or it risks molding. Farmers must act quickly once a dry spell arrives, making it a seasonal race.
 > 
-> 干草打捆技术可追溯至数个世纪前，从19世纪的马力打捆机演变为如今能在数分钟内完成打捆、包裹和排出草捆的高功率机械。在英国北约克郡（今日照片拍摄地），起伏的低地与高地草甸为种植和晾晒优质干草提供了理想条件。由于放牧牲畜（如羊和牛）占农场总数的约40%，干草已成为支撑该地区农村经济的关键饲料资源。因此，当你看到金黄色的田野上点缀着整齐的、沐浴在阳光下的干草卷时，你正在见证精心规划与辛勤劳动的成果。这一传统至今仍与往昔一样重要。
+> The practice of baling dates back centuries, evolving from horse-powered balers of the 1800s to today's high-powered machines that can wrap and eject bales in minutes. In North Yorkshire, England—where today's image was taken—the rolling lowlands and upland meadows create ideal conditions for growing and curing high-quality hay. With grazing livestock such as sheep and cattle making up around 40% of farm holdings, hay is a key feed resource supporting the region's rural economy. So, when you see golden fields dotted with neat, sunlit rolls, you're witnessing the result of careful timing and hard work. It's a tradition that remains as important today as ever.
 > 
 > 
 
 </details>
 
-| ![北约克郡的干草捆,英格兰](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![北约克郡的干草捆,英格兰](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Hay bales in North Yorkshire, England](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hay bales in North Yorkshire, England](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1080x1920.jpg) |
 
 ### 20250909
 
-> 一只雌性欧亚红松鼠正在搬运苔藓，瑞士 (© Jean-Luc and Francoise Ziegler/Minden Pictures)
+> A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 敏捷、聪明、总是四处奔波——来认识一下欧亚红松鼠吧。这种栖息于树梢的绿叶动物遍布欧洲和亚洲的大部分地区。虽然它们更喜欢森林的庇护，但这种敏捷的生物也能轻松适应花园和公园的环境。它们用树枝在高高的树杈上筑巢，称为“drey”（巢穴），形成一个约25到30厘米宽的圆顶结构。图中的雌性欧亚红松鼠正在采集苔藓——苔藓是几种柔软材料中的一种，它们与树皮、树叶和草一起构成巢穴，使巢穴成为一个舒适、隔热的避难所。这些啮齿动物也可能占据树洞或啄木鸟遗弃的洞穴（如果有的话）。
+> Quick, clever, and always on the move—meet the Eurasian red squirrel, a leafy treetop resident found across much of Europe and Asia. While it prefers the shelter of forests, this agile creature easily adapts to gardens and parks. It builds its nest, called a drey, high in the fork of a tree using twigs to form a domed structure about 10 to 12 inches wide. The female featured here is gathering moss—one of several soft materials, along with bark, leaves, and grass, that line the nest and turn it into a snug, well-insulated retreat. These rodents may also take over tree hollows or abandoned woodpecker holes when available.
 > 
-> 欧亚红松鼠通常独居且性格较为害羞，它们很少与他人分享食物或领地。然而，在寒冷的月份，几只个体共用一个巢穴以保持温暖的情况并不少见。它们的社会结构由支配等级制度决定，这种等级制度既存在于同一性别内部，也存在于不同性别之间。虽然雄性并不总是占据主导地位，但地位最高的个体通常年龄较大且体型较庞大。占据主导地位的雄性通常拥有比从属雄性或大多数雌性更大的活动范围。
+> Typically solitary and quite shy, they rarely share food or space. However, during colder months, it's not uncommon for several individuals to use the same nest to stay warm. Their social organization is shaped by dominance hierarchies, both within and between the sexes. While males aren't always dominant over females, the top-ranking individuals tend to be older and larger. Dominant males also tend to occupy larger home ranges than subordinate males or most females.
 > 
 > 
 
 </details>
 
-| ![一只雌性欧亚红松鼠，瑞士](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![一只雌性欧亚红松鼠，瑞士](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![A Eurasian red squirrel in Switzerland](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A Eurasian red squirrel in Switzerland](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_1080x1920.jpg) |10_1080x1920.jpg) |a_EN-US1227116811_1080x1920.jpg) |/th?id=OHR.ThomsonGazelle_EN-US4354285846_1080x1920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
