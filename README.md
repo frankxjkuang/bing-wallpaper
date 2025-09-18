@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250916
+
+> Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> What do invisible gases, vintage hairspray, and satellites have in common? They all played a role in one of the greatest environmental comebacks in history. Seen from 225 miles above, the Gulf Coast glows like a constellation—clusters of light scattered across the dark. But what truly makes this view possible can't be seen: the ozone layer, silently shielding everything below from the sun's ultraviolet rays. By the 1980s, that shield was thinning fast—damaged by chemicals once used in refrigeration and aerosol products. The solution? A global pact. The Montreal Protocol, signed in 1987, led to a swift phase-out of ozone-depleting substances. Today, satellites show that the hole over Antarctica is shrinking. Scientists believe it could be fully healed by mid-century.
+> 
+> On September 16, we mark the International Day for the Preservation of the Ozone Layer—a celebration of science, global cooperation, and collective will. It's a reminder that no molecule is too small to have a massive impact. But it's proof, too, that with the right action, even invisible damage can be undone.
+> 
+> 
+
+</details>
+
+| ![Nighttime view over the Gulf Coast](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nighttime view over the Gulf Coast](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_1080x1920.jpg) |
+
 ### 20250915
 
 > Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Hay bales in North Yorkshire, England](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hay bales in North Yorkshire, England](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1080x1920.jpg) |
-
-### 20250909
-
-> A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Quick, clever, and always on the move—meet the Eurasian red squirrel, a leafy treetop resident found across much of Europe and Asia. While it prefers the shelter of forests, this agile creature easily adapts to gardens and parks. It builds its nest, called a drey, high in the fork of a tree using twigs to form a domed structure about 10 to 12 inches wide. The female featured here is gathering moss—one of several soft materials, along with bark, leaves, and grass, that line the nest and turn it into a snug, well-insulated retreat. These rodents may also take over tree hollows or abandoned woodpecker holes when available.
-> 
-> Typically solitary and quite shy, they rarely share food or space. However, during colder months, it's not uncommon for several individuals to use the same nest to stay warm. Their social organization is shaped by dominance hierarchies, both within and between the sexes. While males aren't always dominant over females, the top-ranking individuals tend to be older and larger. Dominant males also tend to occupy larger home ranges than subordinate males or most females.
-> 
-> 
-
-</details>
-
-| ![A Eurasian red squirrel in Switzerland](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A Eurasian red squirrel in Switzerland](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1080x1920.jpg) |rrel_EN-US8185093853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
