@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250917
+
+> Young bull moose in Denali National Park, Alaska (© Grant Ordelheide/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> He may be young, but these antlers speak of future battles. In Denali National Park, Alaska, a young bull moose lifts his head above the shrubs. At this stage, his antlers are more crown than weapon—still covered in velvet. But even now, they hint at a life shaped by instinct, sparring, and the quiet pull of dominance.
+> 
+> Moose are the largest members of the deer family in North America, and mature bulls can top 1,500 pounds and reach nearly 7 feet at the shoulder. Their antlers grow at an astonishing pace—up to an inch a day in summer—only to be shed every winter, then regrown each spring. This young bull might not be ready to duel for territory or mates just yet, but rehearsal has already begun. He'll spar gently with others, learning how to move, how to hold his ground, how to rise in the ranks of the wild. Spotting moose in Denali is fairly common, but finding one mid-growth is something else entirely: a glimpse into the making of a giant. For now, there's no clash—just the quiet power of potential beneath Alaska's endless sky.
+> 
+> 
+
+</details>
+
+| ![A young bull moose in Denali National Park, Alaska](https://cn.bing.com/th?id=OHR.YoungMoose_EN-US2991221135_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A young bull moose in Denali National Park, Alaska](https://cn.bing.com/th?id=OHR.YoungMoose_EN-US2991221135_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YoungMoose_EN-US2991221135_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YoungMoose_EN-US2991221135_1080x1920.jpg) |
+
 ### 20250916
 
 > Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Patriot Day](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1080x1920.jpg) |
-
-### 20250910
-
-> Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 'Make hay while the sun shines' may sound like an old proverb, but in farming it's a practical truth. Hay baling plays a crucial role in agriculture worldwide. It involves cutting, drying, and packaging grasses to feed livestock during the colder months. The process depends heavily on the weather: the grass must be dry before it's baled, or it risks molding. Farmers must act quickly once a dry spell arrives, making it a seasonal race.
-> 
-> The practice of baling dates back centuries, evolving from horse-powered balers of the 1800s to today's high-powered machines that can wrap and eject bales in minutes. In North Yorkshire, England—where today's image was taken—the rolling lowlands and upland meadows create ideal conditions for growing and curing high-quality hay. With grazing livestock such as sheep and cattle making up around 40% of farm holdings, hay is a key feed resource supporting the region's rural economy. So, when you see golden fields dotted with neat, sunlit rolls, you're witnessing the result of careful timing and hard work. It's a tradition that remains as important today as ever.
-> 
-> 
-
-</details>
-
-| ![Hay bales in North Yorkshire, England](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hay bales in North Yorkshire, England](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1080x1920.jpg) |rrel_EN-US8185093853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1080x1920.jpg) |3120193_1080x1920.jpg) |rrel_EN-US8185093853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
