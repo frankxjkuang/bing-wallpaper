@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250918
+
+> Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> This stunning view—where the sky meets the open waters of the Atlantic—is accessible only by foot. Tucked away on Ireland's wild and beautiful Dingle Peninsula, Dunquin Pier is one of the most photogenic spots in County Kerry. The small pier is famous for its winding, serpentine path that zigzags dramatically down the cliffside like a ribbon. These steep curves aren't just for the thrill—they're the only way to reach the pier below, where boats depart for the remote Blasket Islands.
+> 
+> The nearby village of Dunquin (Dún Chaoin in Irish) is Ireland's westernmost settlement, offering sweeping views and a deep connection to Irish heritage. With a population of just over 100, Dunquin is known for its strong Gaelic traditions, storytelling, and ties to the Blasket Island writers. Visitors often stop at the Blasket Centre, a cultural museum that tells the story of island life and emigration. Whether you're drawn by the dramatic landscape or the rich cultural heritage, Dunquin offers a uniquely Irish experience that feels both timeless and unforgettable.
+> 
+> 
+
+</details>
+
+| ![Dunquin Pier, County Kerry, Ireland](https://cn.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dunquin Pier, County Kerry, Ireland](https://cn.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_1080x1920.jpg) |
+
 ### 20250917
 
 > Young bull moose in Denali National Park, Alaska (© Grant Ordelheide/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![In the Red Sea for World Dolphin Day](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![In the Red Sea for World Dolphin Day](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1080x1920.jpg) |
-
-### 20250911
-
-> Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> September 11, 2001, began like any other day—until history changed in an instant. Nearly 3,000 innocent lives were lost in the terrorist attacks on the World Trade Center, the Pentagon, and aboard United Airlines Flight 93. Today, on Patriot Day, we honor the fallen and the countless acts of courage that emerged in the face of tragedy, from firefighters and first responders to ordinary citizens who became heroes. At 8:46 AM Eastern Time—the moment the first plane struck the North Tower—Americans observe a moment of silence. Permanent memorials now stand at each of the three sites. Visiting one or volunteering in your community is a meaningful way to participate in the National Day of Service and honor those who continue to serve.
-> 
-> In Lower Manhattan, where the Twin Towers once stood, One World Trade Center rises as a symbol of resilience. Its height—1,776 feet—is a deliberate reference to the birth of American independence. In New York Harbor, the Statue of Liberty stands watch over the skyline both as a witness to tragedy and a guardian of hope.
-> 
-> 
-
-</details>
-
-| ![Patriot Day](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Patriot Day](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1080x1920.jpg) |3120193_1080x1920.jpg) |rrel_EN-US8185093853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1080x1920.jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
