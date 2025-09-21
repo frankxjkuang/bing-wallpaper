@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250919
+
+> Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> When you hear 'Thousand Islands,' you might think of a jar of salad dressing, but the namesake of that creamy condiment is one of North America's most enchanting regions. The Thousand Islands form an archipelago in the St. Lawrence River, spanning the state of New York and the province of Ontario. It is made up of more than 1,800 islands. Some of these islands have fairytale castles; others are barely big enough for a hammock. There's also Just Room Enough Island, which lives up to its name with a single house and a lone tree.
+> 
+> The Thousand Islands are perfect for slow-paced exploration. Boat tours take you past grand estates and historic lighthouses, often stopping at landmarks like Boldt Castle and Singer Castle. Kayakers are drawn to the region's clear waters and serene coves. Thanks to a unique microclimate, local winemakers craft award-winning wines that are well worth sampling. Oh, and the salad dressing? Legend says a local fishing guide's wife first created it for dinner guests, including actress May Irwin, who enjoyed it so much that she asked for the recipe. The rest, as they say, is delicious history.
+> 
+> 
+
+</details>
+
+| ![Thousand Islands region, St. Lawrence River, US-Canada border](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Thousand Islands region, St. Lawrence River, US-Canada border](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_1080x1920.jpg) |
+
 ### 20250918
 
 > Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Point Reyes National Seashore in California](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Point Reyes National Seashore in California](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |
-
-### 20250912
-
-> Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> With lifelong bonds, signature whistles, and echolocation, dolphins are more than just smart swimmers. First observed in 2022, World Dolphin Day shines a light on these intelligent marine mammals and the oceans they rely on. The day encourages people to learn about their behavior and the threats they face. Over 40 dolphin species swim our seas, from the Māui dolphin to the Irrawaddy dolphin. They're expert navigators, problem-solvers, and team players. Some even form superpods—temporary gatherings of hundreds or thousands of dolphins moving together offshore.
-> 
-> Off the coast of Marsa Alam in Egypt, pods of spinner dolphins glide through the warm waters of the Red Sea—as seen in today's image. True to their name, they can leap and spin in the air up to seven times in a single jump. Found in tropical waters across the Pacific, Indian, and Atlantic Oceans, they rest during the day in calm bays and hunt offshore at night. But their predictable routines have left them vulnerable to unregulated tourism. Some conservation zones now limit visitor access to allow dolphins to rest undisturbed. The hope? That these creatures continue their spins without interruption.
-> 
-> 
-
-</details>
-
-| ![In the Red Sea for World Dolphin Day](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![In the Red Sea for World Dolphin Day](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1080x1920.jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
