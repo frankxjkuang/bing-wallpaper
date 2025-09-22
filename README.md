@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250920
+
+> Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Every fall, Theresienwiese, a square in Munich, Germany, transforms into one of the world's largest festivals—Oktoberfest. First held in 1810 to celebrate a royal wedding, it has grown into a 16- to 18-day tradition attracting more than 6 million people from around the globe. The scale is staggering: The festival grounds span about 4.5 million square feet and host 14 main tents, each seating thousands. Each year, visitors consume around 7 million liters of beer, along with mountains of pretzels, sausages, and gingerbread hearts. All beer served at Oktoberfest comes from Munich breweries and meets the strict standards of the Reinheitsgebot, the German Beer Purity Law.
+> 
+> Beyond the drinks and food, the sprawling fairground is its own world, filled with roller coasters, games, and classic rides. Among them, the Wellenflug, the swing carousel pictured here, offers sweeping views of the festival grounds and the Munich skyline. This year, the festival begins today and runs through October 5. Whether you come for the beer, the pretzels, or the thrill of dangling your feet high above the city, Oktoberfest has a seat waiting for you.
+> 
+> 
+
+</details>
+
+| ![Oktoberfest begins!](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest begins!](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_1080x1920.jpg) |
+
 ### 20250919
 
 > Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_1080x1920.jpg) |
-
-### 20250913
-
-> Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> It's not polished or curated—and that's exactly the point. Drive just over an hour north of San Francisco, and you'll reach Point Reyes National Seashore—a place where fog drifts slowly, tule elk roam freely, and time seems to pause. Established by Congress on this day in 1962, the park was set aside to protect this piece of coastline for public enjoyment and environmental conservation. It covers over 100 square miles and features an impressive array of landscapes, from coastal prairie and blustery headlands to sandy shores and Douglas fir woodlands.
-> 
-> At the park's eastern boundary, Chimney Rock—seen in today's image—extends into the Pacific Ocean with towering cliffs and sweeping sea views. Its trail is considered one of the best spots on the West Coast to witness the gray whale migration. In the winter months, nearby secluded beaches become a refuge for northern elephant seals, offering an opportunity for wildlife viewing. With over 490 species of birds, more than 80 types of mammals, and numerous rare plants, Point Reyes ranks among the most ecologically diverse places in the country. Over 150 miles of trails invite visitors to slow their pace and immerse themselves in the surroundings.
-> 
-> 
-
-</details>
-
-| ![Point Reyes National Seashore in California](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Point Reyes National Seashore in California](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_1080x1920.jpg) |d=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
