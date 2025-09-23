@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250921
+
+> Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Think sea otters are just about whiskers and floating naps? There's more going on behind those button eyes. Every year, Sea Otter Awareness Week highlights their role in maintaining coastal ecosystems. Launched in 2003 by Defenders of Wildlife—a nonprofit conservation organization—this week promotes education and action. In Alaska's Prince William Sound, sea otters drift on ice or crack shellfish on their bellies using their favorite rock, as seen in today's image. Less visible is how their appetite for sea urchins helps protect kelp forests.
+> 
+> Often seen floating in 'rafts,' holding paws to stay connected, they appear serene—but their history tells a different story. Hunted extensively for their dense fur from 1741 to 1911, sea otters were pushed to the brink of extinction before rebounding through conservation. Still, dangers remain. Oil spills, fishing gear, disease, and warming oceans continue to threaten their survival. Otters rely on clean, cold water. Their fur isn't waterproof—it traps air for warmth, and any oil contamination can be fatal. This week serves as a call to notice them—and to protect the waters they call home.
+> 
+> 
+
+</details>
+
+| ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1080x1920.jpg) |
+
 ### 20250920
 
 > Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Dallas' Latino Cultural Center for Hispanic Heritage](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dallas' Latino Cultural Center for Hispanic Heritage](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_1080x1920.jpg) |
-
-### 20250914
-
-> A waterfall in Olympic National Park, Washington (© Chris Moore/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Olympic National Park covers a rare mix of terrain—and that's part of its unique appeal. Alpine ridges, quiet forests, and one of the longest stretches of undeveloped coastline in the lower 48 all meet here. Spanning nearly 1,400 square miles in Washington State, this UNESCO World Heritage Site drew over 3.7 million visitors in 2024. Originally protected in 1909 as Mount Olympus National Monument by President Theodore Roosevelt, the area became a national park in 1938.
-> 
-> Rain isn't a problem here—it's the reason this moss-draped area exists. On the western edge of the park, the Hoh Rainforest receives about 140 inches of rain a year—over 11 feet—and it wears every drop proudly. Towering Sitka spruces, western red cedars, and coast Douglas firs line trails like the Hall of Mosses, while banana slugs, bobcats, and Olympic black bears call the forest home. The Hoh is one of the best-preserved temperate rainforests in the world. And if you're chasing waterfalls, Sol Duc Falls delivers—three streams plunging into a narrow, mossy gorge. Olympic is a solid reminder that the best hikes don't always come with clear skies.
-> 
-> 
-
-</details>
-
-| ![Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Olympic National Park, Washington](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_1080x1920.jpg) |d=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_1080x1920.jpg) |US9003533736_1080x1920.jpg) |d=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
