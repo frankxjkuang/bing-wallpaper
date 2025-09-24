@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250922
+
+> Aspen trees during fall, Fishlake National Forest, Utah (© Danita Delimont/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Fall isn't just marked by the calendar. Each September, Earth's subtle tilt brings the autumn equinox—one of two times a year when day and night are nearly equal in length. It marks the beginning of fall in the Northern Hemisphere. From solar alignments to changing leaves, nature offers its own quiet signals that the season has shifted. While for most of us it may seem like just another day, ancient cultures paid close attention to this change. Sites like Chichén Itzá in Mexico and England's Stonehenge were designed to align with the rising or setting sun during equinox days.
+> 
+> One of the best places to catch the change in season? Fishlake National Forest in Utah. As September rolls in, the aspen trees seen in today's image begin their annual transformation, turning vivid shades of yellow that ripple across the hills. The forest covers more than 2,300 square miles of lakes, trails, and mountains that shine with fall color. There's something grounding about watching the season change in sync with something much older than the Gregorian calendar we follow.
+> 
+> 
+
+</details>
+
+| ![Autumn equinox](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn equinox](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1080x1920.jpg) |
+
 ### 20250921
 
 > Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Nighttime view over the Gulf Coast](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nighttime view over the Gulf Coast](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_1080x1920.jpg) |
-
-### 20250915
-
-> Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> What's as colorful as the diversity and history of humankind? The Latino Cultural Center in Dallas, Texas. Its vibrant walls—seen in today's image—rise from a 27,000-square-foot foundation and celebrate Latino and Hispanic arts and culture. From September 15 to October 15, our country observes Hispanic Heritage Month, honoring the histories, cultures, and contributions of Americans with roots in Spain, Mexico, the Caribbean, and Central and South America.
-> 
-> One of the most dynamic places to experience this celebration is the Latino Cultural Center. Designed by renowned Mexican architect Ricardo Legorreta, the center is a bold landmark that blends modern design with traditional Mexican aesthetics. Since its opening in 2003, the venue has hosted over 300 events annually, including art exhibitions, theater performances, and community workshops. During Hispanic Heritage Month, it becomes a lively hub, showcasing local Latino artists, folkloric dance, and cultural storytelling. Notable exhibitions have featured artists including Celia Álvarez Muñoz, Judy Baca, Margaret Garcia, and Benito Huerta. Whether you're attending a performance or admiring its architecture, the Latino Cultural Center stands as a powerful tribute to the enduring influence of Hispanic culture in American life.
-> 
-> 
-
-</details>
-
-| ![Dallas' Latino Cultural Center for Hispanic Heritage](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dallas' Latino Cultural Center for Hispanic Heritage](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_1080x1920.jpg) |m/th?id=OHR.DallasLegorreta_EN-US9050675226_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_1080x1920.jpg) |US9003533736_1080x1920.jpg) |d=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
