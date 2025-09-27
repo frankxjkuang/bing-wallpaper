@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250925
+
+> Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> High on a hill rising over 590 feet in Rajasthan, India, Chittorgarh Fort spans approximately 690 acres. It stands as a proud witness to the valor of the famed warrior clans—the Rajputs. Their name comes from the Sanskrit 'rajaputra,' meaning 'son of a king,' and they are celebrated for their noble lineage and martial traditions across northern India. The fort's stone walls have witnessed centuries of courage, pride, and romance, remembered in the songs of Rajasthan's bards. According to legend, Bhim, a hero from the Hindu epic 'Mahabharata,' first laid its foundations.
+> 
+> As one of the largest forts in India, Chittorgarh encompasses 65 historic structures, including four palaces, 19 large temples, 20 reservoirs, four memorials, and several victory towers. This fort has a circumference of about 8.1 miles and a maximum length of 3.1 miles. It is reached by a steep, zigzag ascent of just over half a mile from the plains, beginning with a limestone bridge over the Gambhiri River. Climbing this path and passing through its ancient gates, you can almost hear the echoes of battles and legends—inviting you to step into a living chapter of history.
+> 
+> 
+
+</details>
+
+| ![Chittorgarh Fort, Rajasthan, India](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chittorgarh Fort, Rajasthan, India](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_1080x1920.jpg) |
+
 ### 20250924
 
 > Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Thousand Islands region, St. Lawrence River, US-Canada border](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Thousand Islands region, St. Lawrence River, US-Canada border](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_1080x1920.jpg) |
-
-### 20250918
-
-> Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This stunning view—where the sky meets the open waters of the Atlantic—is accessible only by foot. Tucked away on Ireland's wild and beautiful Dingle Peninsula, Dunquin Pier is one of the most photogenic spots in County Kerry. The small pier is famous for its winding, serpentine path that zigzags dramatically down the cliffside like a ribbon. These steep curves aren't just for the thrill—they're the only way to reach the pier below, where boats depart for the remote Blasket Islands.
-> 
-> The nearby village of Dunquin (Dún Chaoin in Irish) is Ireland's westernmost settlement, offering sweeping views and a deep connection to Irish heritage. With a population of just over 100, Dunquin is known for its strong Gaelic traditions, storytelling, and ties to the Blasket Island writers. Visitors often stop at the Blasket Centre, a cultural museum that tells the story of island life and emigration. Whether you're drawn by the dramatic landscape or the rich cultural heritage, Dunquin offers a uniquely Irish experience that feels both timeless and unforgettable.
-> 
-> 
-
-</details>
-
-| ![Dunquin Pier, County Kerry, Ireland](https://cn.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dunquin Pier, County Kerry, Ireland](https://cn.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_1080x1920.jpg) |US9050675226_1080x1920.jpg) |US9003533736_1080x1920.jpg) |d=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_1080x1920.jpg) |ReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
