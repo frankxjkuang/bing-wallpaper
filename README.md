@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250926
+
+> Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> In the world of woodland critters, the least chipmunk might seem like the 'undersquirrel'—but don't count it out. With survival smarts and turbo-charged feet, this tiny rodent proves that being 'least' is no reason to squirrel away your potential. Weighing less than a deck of cards and measuring under 10 inches from nose to tail, this species is North America's smallest chipmunk.
+> 
+> When it's not sprinting up logs or vanishing into leaf piles, it is stuffing its face—literally. Its expandable cheek pouches help it haul seeds, berries, and insects to storage spots. Come winter, it doesn't fully hibernate. Instead, it enters a light torpor, waking every so often for a snack. Not one for group living, each least chipmunk carves out its own territory every summer, usually with a hidden burrow and a backup food cache or ten. But if a predator wanders too close, you'll hear chip-chip-chip alarms sounding off.
+> 
+> Did you know that a least chipmunk's memory is so sharp that it can remember the locations of hundreds of food caches, even after a long winter nap? So next time you forget where you parked, just remember—a chipmunk wouldn't have.
+
+</details>
+
+| ![Least chipmunk, Kootenai National Forest, Montana](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Least chipmunk, Kootenai National Forest, Montana](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1080x1920.jpg) |
+
 ### 20250925
 
 > Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Oktoberfest begins!](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest begins!](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_1080x1920.jpg) |
-
-### 20250919
-
-> Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> When you hear 'Thousand Islands,' you might think of a jar of salad dressing, but the namesake of that creamy condiment is one of North America's most enchanting regions. The Thousand Islands form an archipelago in the St. Lawrence River, spanning the state of New York and the province of Ontario. It is made up of more than 1,800 islands. Some of these islands have fairytale castles; others are barely big enough for a hammock. There's also Just Room Enough Island, which lives up to its name with a single house and a lone tree.
-> 
-> The Thousand Islands are perfect for slow-paced exploration. Boat tours take you past grand estates and historic lighthouses, often stopping at landmarks like Boldt Castle and Singer Castle. Kayakers are drawn to the region's clear waters and serene coves. Thanks to a unique microclimate, local winemakers craft award-winning wines that are well worth sampling. Oh, and the salad dressing? Legend says a local fishing guide's wife first created it for dinner guests, including actress May Irwin, who enjoyed it so much that she asked for the recipe. The rest, as they say, is delicious history.
-> 
-> 
-
-</details>
-
-| ![Thousand Islands region, St. Lawrence River, US-Canada border](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Thousand Islands region, St. Lawrence River, US-Canada border](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_1080x1920.jpg) |ReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_1080x1920.jpg) |0.jpg) |ReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
