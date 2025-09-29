@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250927
+
+> Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> When the calendar lines up just right, you get a rare double feature: National Public Lands Day and Astronomy Day. It's a chance to explore the landscapes that ground us and the skies that inspire us—all within 24 hours.
+> 
+> National Public Lands Day, held on the fourth Saturday of September, is America's biggest single-day volunteer event for parks, forests, and other shared spaces. Volunteers rake, plant, and pick up litter—all while enjoying free admission to these sites. Astronomy Day comes twice a year, with the fall version offering longer nights and darker skies. The goal is simple: help more people discover the universe. Many parks are far from city lights, making them prime spots for seeing the Milky Way, meteor showers, and constellations without interference. Remote places like Tank Lakes in Washington's Alpine Lakes Wilderness, pictured here, offer exactly that.
+> 
+> This year, why not make it a two-for-one celebration? Hike a trail by day, then trace constellations by night. On National Public Lands Day, you might cross paths with a deer or eagle. On Astronomy Day, your companions could be Orion or Cassiopeia. Different worlds, same sense of wonder.
+
+</details>
+
+| ![Astronomy Day and National Public Lands Day](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Astronomy Day and National Public Lands Day](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1080x1920.jpg) |
+
 ### 20250926
 
 > Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1080x1920.jpg) |
-
-### 20250920
-
-> Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Every fall, Theresienwiese, a square in Munich, Germany, transforms into one of the world's largest festivals—Oktoberfest. First held in 1810 to celebrate a royal wedding, it has grown into a 16- to 18-day tradition attracting more than 6 million people from around the globe. The scale is staggering: The festival grounds span about 4.5 million square feet and host 14 main tents, each seating thousands. Each year, visitors consume around 7 million liters of beer, along with mountains of pretzels, sausages, and gingerbread hearts. All beer served at Oktoberfest comes from Munich breweries and meets the strict standards of the Reinheitsgebot, the German Beer Purity Law.
-> 
-> Beyond the drinks and food, the sprawling fairground is its own world, filled with roller coasters, games, and classic rides. Among them, the Wellenflug, the swing carousel pictured here, offers sweeping views of the festival grounds and the Munich skyline. This year, the festival begins today and runs through October 5. Whether you come for the beer, the pretzels, or the thrill of dangling your feet high above the city, Oktoberfest has a seat waiting for you.
-> 
-> 
-
-</details>
-
-| ![Oktoberfest begins!](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest begins!](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_1080x1920.jpg) |0.jpg) |ReyesSeashore_EN-US8949381326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
