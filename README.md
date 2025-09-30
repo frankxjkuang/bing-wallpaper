@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250928
+
+> Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Some towns evolve slowly over centuries. Pienza? It received a full rebrand in the 1400s from a pope who wanted to prove a point—and maybe show off a little. This tiny Italian town is perched above the Val d'Orcia, surrounded by rolling hills that look exactly like you think Tuscany should: cypress trees, winding dirt roads, the occasional sheep. It's peaceful. And then you step inside the town walls, and it gets clever.
+> 
+> Pienza was once a regular medieval village called Corsignano. That is, until one of its sons became Pope Pius II and decided to transform his hometown. He hired architect Bernardo Rossellino and rebuilt the area based on Renaissance ideals of symmetry, order, and harmony. The result? A site that feels intentional. The central square, Piazza Pio II, is flanked by a cathedral, a papal palace, and a town hall, all arranged just so. Moreover, Pienza is known for pecorino cheese—sheep's milk, aged in interesting ways. And once a year, the whole town turns into a cheese arena for Fiera del Cacio, a festival featuring Cacio al Fuso—a game where people roll wheels of cheese at a target.
+> 
+> 
+
+</details>
+
+| ![The town of Pienza in Tuscany, Italy](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The town of Pienza in Tuscany, Italy](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_1080x1920.jpg) |
+
 ### 20250927
 
 > Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Autumn equinox](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn equinox](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1080x1920.jpg) |
-
-### 20250921
-
-> Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Think sea otters are just about whiskers and floating naps? There's more going on behind those button eyes. Every year, Sea Otter Awareness Week highlights their role in maintaining coastal ecosystems. Launched in 2003 by Defenders of Wildlife—a nonprofit conservation organization—this week promotes education and action. In Alaska's Prince William Sound, sea otters drift on ice or crack shellfish on their bellies using their favorite rock, as seen in today's image. Less visible is how their appetite for sea urchins helps protect kelp forests.
-> 
-> Often seen floating in 'rafts,' holding paws to stay connected, they appear serene—but their history tells a different story. Hunted extensively for their dense fur from 1741 to 1911, sea otters were pushed to the brink of extinction before rebounding through conservation. Still, dangers remain. Oil spills, fishing gear, disease, and warming oceans continue to threaten their survival. Otters rely on clean, cold water. Their fur isn't waterproof—it traps air for warmth, and any oil contamination can be fatal. This week serves as a call to notice them—and to protect the waters they call home.
-> 
-> 
-
-</details>
-
-| ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1080x1920.jpg) |1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
