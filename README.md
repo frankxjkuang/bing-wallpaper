@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20250929
+
+> The Rainbow Houses of Houten, Netherlands (© George Pachantouris/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> You won't find souvenir shops or tourist maps pointing the way—but follow the edge of Lake Rietplas in Houten, and you'll stumble upon one of the Netherlands' most unexpectedly photogenic sights. While many flock to Amsterdam's canals or Rotterdam's cube houses, this quiet commuter town offers its own architectural twist. Lined up like a mirage, the Rainbow Houses shimmer in bold, painterly hues—a residential block turned an understated cultural landmark.
+> 
+> To locals, they're simply part of the daily backdrop. But for photographers and design lovers, they're a dreamscape of saturation and symmetry. Designed by Hans Been and completed in 2005, the ensemble blends Caribbean flair with Nordic restraint, echoing the look of a minimalist fishing village. Each house reflects a different color of the spectrum. This isn't a curated tourist stop; these are lived-in homes, part of a neighborhood shaped by the same thoughtful planning that makes Houten one of the most bike-friendly towns in the country. Best seen from across the lake or a nearby bridge, these vibrant facades feel like a secret you're lucky to catch in the right light: charming, surprising, and refreshingly under the radar.
+> 
+> 
+
+</details>
+
+| ![The Rainbow Houses of Houten, Netherlands](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Rainbow Houses of Houten, Netherlands](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |
+
 ### 20250928
 
 > Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![A keel-billed toucan in Costa Rica](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A keel-billed toucan in Costa Rica](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |
-
-### 20250922
-
-> Aspen trees during fall, Fishlake National Forest, Utah (© Danita Delimont/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Fall isn't just marked by the calendar. Each September, Earth's subtle tilt brings the autumn equinox—one of two times a year when day and night are nearly equal in length. It marks the beginning of fall in the Northern Hemisphere. From solar alignments to changing leaves, nature offers its own quiet signals that the season has shifted. While for most of us it may seem like just another day, ancient cultures paid close attention to this change. Sites like Chichén Itzá in Mexico and England's Stonehenge were designed to align with the rising or setting sun during equinox days.
-> 
-> One of the best places to catch the change in season? Fishlake National Forest in Utah. As September rolls in, the aspen trees seen in today's image begin their annual transformation, turning vivid shades of yellow that ripple across the hills. The forest covers more than 2,300 square miles of lakes, trails, and mountains that shine with fall color. There's something grounding about watching the season change in sync with something much older than the Gregorian calendar we follow.
-> 
-> 
-
-</details>
-
-| ![Autumn equinox](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn equinox](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1080x1920.jpg) |1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1080x1920.jpg) |jpg) |853_1080x1920.jpg) |920.jpg) |for better planning and long-term thinking to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
