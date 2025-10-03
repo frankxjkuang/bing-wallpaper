@@ -2,144 +2,136 @@
 
 ### 20251001
 
-> 克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国 (© Robb Hirsch/TANDEM Stills + Motion)
+> Clark Range, Sierra Nevada, Yosemite National Park, California (© Robb Hirsch/TANDEM Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 今年是约塞米蒂国家公园遗产的又一个里程碑。约塞米蒂国家公园自1864年以来一直受到保护，以其令人惊叹的壮丽景色和生态意义而闻名。约塞米蒂坐落在内华达山脉的中心地带，占地近1200平方英里，孕育着巨大的花岗岩、奔腾的瀑布和古老的红杉。克拉克山脉是其鲜为人知的瑰宝之一——今天照片中显示的崎岖高海拔山脊。它以约塞米蒂的第一位守护者、自然保护先驱盖伦·克拉克的名字命名。
+> This year marks another milestone in the legacy of Yosemite National Park, a sanctuary protected since 1864 and celebrated for its awe-inspiring grandeur and ecological significance. Nestled in the heart of the Sierra Nevada, Yosemite's nearly 1,200 square miles cradle granite giants, cascading waterfalls, and ancient sequoias. Among its lesser-known treasures lies the Clark Range—the rugged, high-elevation spine seen in today's image. It was named after Galen Clark, Yosemite's first guardian and a pioneer of conservation.
 > 
-> 克拉克山脉静静地守护着约塞米蒂南部的荒野，其山峰被冰川侵蚀，顶部覆盖着高山草甸。这里，微风轻拂白皮松，天空开阔，呼应着公园诞生时的远见卓识。
+> The Clark Range stands as a quiet sentinel to Yosemite's southern wilderness, its peaks etched by glaciers and crowned with alpine meadows. Here, the wind whispers through whitebark pines and the sky opens wide, echoing the spirit of foresight that birthed the park.
 > 
-> 
+> As we honor Yosemite's anniversary, we celebrate not only its grandeur but the enduring vision of those who fought to preserve it. From the valley's granite walls to the Clark Range's serene heights, this national park remains a living poem—written in stone, water, and time.
 
 </details>
 
-| ![克拉克山脉, 约塞米蒂国家公园, 加利福尼亚州](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![克拉克山脉, 约塞米蒂国家公园, 加利福尼亚州](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Clark Range, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Clark Range, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1080x1920.jpg) |
 
 ### 20250930
 
-> 桉树上的考拉, 大奥特维国家公园, 澳大利亚 (© Jamie Lamb - elusive-images.co.uk/Getty Images)
+> Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在大奥特维国家公园茂密的桉树林中，考拉如同沉睡的哨兵，守护着澳大利亚的野性灵魂。这些有袋动物常被误称为“考拉熊”，但实际上它们与袋熊的体型更接近，它们结实的无尾身躯、毛茸茸的耳朵和柔软的黑色鼻子很容易辨认。
+> Amid the lush eucalyptus canopy of Great Otway National Park, koalas reign as sleepy sentinels of Australia's wild soul. Often misnamed 'koala bears,' these marsupials are actually closer to wombats and tend to be instantly recognizable by their stout, tailless bodies, fluffy ears, and velvety black noses.
 > 
-> 然而，考拉的未来岌岌可危。栖息地丧失、疾病以及丛林大火等气候威胁，使它们正处于关键的十字路口。但森林修复、专门的保护区以及原住民主导的保护工作正在扭转局势。只要持续呵护，这些温顺的攀爬者就能依附在树梢（以及我们的心中），成为澳大利亚野性精神的永恒象征，世世代代传承下去。
+> Their diet is notoriously selective—koalas feed almost exclusively on certain eucalyptus leaves laced with toxins that most animals can't digest. To survive, they sleep up to 20 hours a day while a specialized, bacteria-rich gut works to neutralize the poison. This slow-motion lifestyle is nature's masterstroke of adaptation.
 > 
-> 
+> Yet their future hangs in the balance. From habitat loss, disease, and climate-driven threats like bushfires, koalas are at a critical crossroads. But forest restoration, dedicated sanctuaries, and Indigenous-led conservation are beginning to turn the tide. With continued care, these gentle climbers can cling to the treetops (and to our hearts) as enduring symbols of Australia's wild spirit for generations to come.
 
 </details>
 
-| ![大奥特维国家公园的考拉, 澳大利亚](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大奥特维国家公园的考拉, 澳大利亚](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Koala in the Great Otway National Park, Australia](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Koala in the Great Otway National Park, Australia](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg) |
 
 ### 20250929
 
-> 豪滕镇的彩虹屋, 荷兰 (© George Pachantouris/Getty Images)
+> The Rainbow Houses of Houten, Netherlands (© George Pachantouris/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 你不会找到纪念品商店或旅游地图指引方向——但沿着豪滕的里特普拉斯湖畔，你会偶然发现荷兰最令人意想不到的上镜景点之一。虽然许多人涌向阿姆斯特丹的运河或鹿特丹的方块屋，但这座宁静的通勤小镇却拥有独特的建筑风格。彩虹屋如海市蜃楼般鳞次栉比，闪耀着大胆的绘画色彩——一个住宅区变成了一个低调的文化地标。
+> You won't find souvenir shops or tourist maps pointing the way—but follow the edge of Lake Rietplas in Houten, and you'll stumble upon one of the Netherlands' most unexpectedly photogenic sights. While many flock to Amsterdam's canals or Rotterdam's cube houses, this quiet commuter town offers its own architectural twist. Lined up like a mirage, the Rainbow Houses shimmer in bold, painterly hues—a residential block turned an understated cultural landmark.
 > 
-> 对当地人来说，它们只是日常生活的一部分。但对于摄影师和设计爱好者来说，它们是色彩饱和、对称的梦幻景观。该​​建筑群由汉斯·比恩 (Hans Been) 设计，于 2005 年竣工，将加勒比海风情与北欧的内敛风格融为一体，呼应了简约渔村的面貌。每栋房子都反射出不同的色彩。这不是一个精心策划的旅游景点；这些都是有人居住的住宅，它们所在的社区也经过了同样周到的规划，而豪滕正是凭借这种规划成为全国最适合骑自行车的城镇之一。从湖对岸或附近的桥上欣赏这些色彩鲜艳的建筑外观最为理想，它们就像一个秘密，只有在合适的光线下才能幸运地捕捉到：迷人、惊喜，而且低调得令人耳目一新。
+> To locals, they're simply part of the daily backdrop. But for photographers and design lovers, they're a dreamscape of saturation and symmetry. Designed by Hans Been and completed in 2005, the ensemble blends Caribbean flair with Nordic restraint, echoing the look of a minimalist fishing village. Each house reflects a different color of the spectrum. This isn't a curated tourist stop; these are lived-in homes, part of a neighborhood shaped by the same thoughtful planning that makes Houten one of the most bike-friendly towns in the country. Best seen from across the lake or a nearby bridge, these vibrant facades feel like a secret you're lucky to catch in the right light: charming, surprising, and refreshingly under the radar.
 > 
 > 
 
 </details>
 
-| ![彩虹屋，荷兰豪滕](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![彩虹屋，荷兰豪滕](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![The Rainbow Houses of Houten, Netherlands](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Rainbow Houses of Houten, Netherlands](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |
 
 ### 20250928
 
-> 托斯卡纳的皮恩扎镇, 意大利 (© zpagistock/Getty Images)
+> Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 有些城镇历经数个世纪缓慢演变。皮恩扎？15世纪，一位教皇为了证明某种观点——或许也为了炫耀——彻底重塑了它。这座意大利小镇坐落在奥尔恰山谷之上，周围环绕着连绵起伏的群山，其景象与你想象中的托斯卡纳一模一样：柏树成荫，蜿蜒的土路，偶尔还能看到几只绵羊。它宁静祥和。而当你踏入城墙，它便会变得灵动起来。
+> Some towns evolve slowly over centuries. Pienza? It received a full rebrand in the 1400s from a pope who wanted to prove a point—and maybe show off a little. This tiny Italian town is perched above the Val d'Orcia, surrounded by rolling hills that look exactly like you think Tuscany should: cypress trees, winding dirt roads, the occasional sheep. It's peaceful. And then you step inside the town walls, and it gets clever.
 > 
-> 皮恩扎曾是一个普通的中世纪村​​庄，名叫科尔西尼亚诺。直到教皇庇护二世的儿子决定改造他的家乡，他聘请了建筑师贝尔纳多·罗塞利诺，按照文艺复兴时期的对称、秩序与和谐理念重建了这片区域。结果如何？这片区域仿佛是经过精心设计的。中心广场皮奥二世广场两侧分别矗立着大教堂、教皇宫殿和市政厅，布局也恰到好处。此外，皮恩扎还以佩科里诺奶酪而闻名——这是一种以羊奶为原料，以独特的方式陈酿而成的奶酪。每年一次，整个小镇都会变成奶酪竞技场，举办“奶酪节”（Fiera del Cacio），这是一个以“奶酪轮”（Cacio al Fuso）为特色的节日——这是一种人们将奶酪轮滚向目标的游戏。
+> Pienza was once a regular medieval village called Corsignano. That is, until one of its sons became Pope Pius II and decided to transform his hometown. He hired architect Bernardo Rossellino and rebuilt the area based on Renaissance ideals of symmetry, order, and harmony. The result? A site that feels intentional. The central square, Piazza Pio II, is flanked by a cathedral, a papal palace, and a town hall, all arranged just so. Moreover, Pienza is known for pecorino cheese—sheep's milk, aged in interesting ways. And once a year, the whole town turns into a cheese arena for Fiera del Cacio, a festival featuring Cacio al Fuso—a game where people roll wheels of cheese at a target.
 > 
 > 
 
 </details>
 
-| ![托斯卡纳的皮恩扎镇, 意大利](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![托斯卡纳的皮恩扎镇, 意大利](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![The town of Pienza in Tuscany, Italy](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The town of Pienza in Tuscany, Italy](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_1080x1920.jpg) |
 
 ### 20250927
 
-> 坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国 (© Austin Trigg/TANDEM Stills + Motion)
+> Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 今天图片中璀璨的星空来自于坦克湖，它位于高山湖泊荒野区。高山湖泊荒野占地超过40万英亩，位于风景如画的华盛顿州中部喀斯喀特山脉。荒野位于喀斯喀特山脉北段的斯诺夸米山口和史蒂文斯山口之间，其中包括被称为韦纳奇山脉的子山脉，该山脉构成了韦纳奇-雅基马分水岭。
+> When the calendar lines up just right, you get a rare double feature: National Public Lands Day and Astronomy Day. It's a chance to explore the landscapes that ground us and the skies that inspire us—all within 24 hours.
 > 
-> 这片荒野由冰川侵蚀而成，点缀着700多个湖泊。许多山峰和山坡终年被雪原覆盖。从生长着花旗松、雪松的湿润森林，到生长着沙拉树和浆果的林下层，这片地貌逐渐延伸至低矮植物覆盖的广阔草甸，最终以生长着黄松的干燥林地结束。
+> National Public Lands Day, held on the fourth Saturday of September, is America's biggest single-day volunteer event for parks, forests, and other shared spaces. Volunteers rake, plant, and pick up litter—all while enjoying free admission to these sites. Astronomy Day comes twice a year, with the fall version offering longer nights and darker skies. The goal is simple: help more people discover the universe. Many parks are far from city lights, making them prime spots for seeing the Milky Way, meteor showers, and constellations without interference. Remote places like Tank Lakes in Washington's Alpine Lakes Wilderness, pictured here, offer exactly that.
 > 
-> 
+> This year, why not make it a two-for-one celebration? Hike a trail by day, then trace constellations by night. On National Public Lands Day, you might cross paths with a deer or eagle. On Astronomy Day, your companions could be Orion or Cassiopeia. Different worlds, same sense of wonder.
 
 </details>
 
-| ![坦克湖, 高山湖泊荒野区, 华盛顿](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![坦克湖, 高山湖泊荒野区, 华盛顿](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Astronomy Day and National Public Lands Day](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Astronomy Day and National Public Lands Day](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1080x1920.jpg) |
 
 ### 20250926
 
-> 最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国 (© Donald M. Jones/Minden Pictures)
+> Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 在林地动物的世界里，体型最小的花栗鼠或许看起来像是“小松鼠”——但别小看它。凭借着敏锐的生存智慧和迅捷的双足，这种小型啮齿动物证明了“体型最小”并不意味着放弃你的潜力。它的体重还不到一副扑克牌，从鼻子到尾巴的长度不到10英寸（约25厘米），是北美体型最小的花栗鼠。
+> In the world of woodland critters, the least chipmunk might seem like the 'undersquirrel'—but don't count it out. With survival smarts and turbo-charged feet, this tiny rodent proves that being 'least' is no reason to squirrel away your potential. Weighing less than a deck of cards and measuring under 10 inches from nose to tail, this species is North America's smallest chipmunk.
 > 
-> 当它不是在爬木头或躲进落叶堆里时，它就在大快朵颐——真的。它那可扩张的颊囊帮助它将种子、浆果和昆虫拖到储藏点。到了冬天，它不会完全冬眠。相反，它会进入轻度麻木状态，偶尔醒来吃点零食。花栗鼠不喜群居，每只最小的花栗鼠每年夏天都会开辟自己的领地，通常会有一个隐蔽的洞穴和一个或十个备用的食物储藏室。但如果捕食者离得太近，你就会听到咔哒咔哒的警报声。
+> When it's not sprinting up logs or vanishing into leaf piles, it is stuffing its face—literally. Its expandable cheek pouches help it haul seeds, berries, and insects to storage spots. Come winter, it doesn't fully hibernate. Instead, it enters a light torpor, waking every so often for a snack. Not one for group living, each least chipmunk carves out its own territory every summer, usually with a hidden burrow and a backup food cache or ten. But if a predator wanders too close, you'll hear chip-chip-chip alarms sounding off.
 > 
-> 你知道吗？最小的花栗鼠记忆力超强，即使冬眠了很久，它也能记住数百个食物储藏点的位置。所以，下次你忘记停车的地方时，只要记住就行了——花栗鼠可不会忘记。
+> Did you know that a least chipmunk's memory is so sharp that it can remember the locations of hundreds of food caches, even after a long winter nap? So next time you forget where you parked, just remember—a chipmunk wouldn't have.
 
 </details>
 
-| ![最小的花栗鼠, 库特奈国家公园,蒙大拿州](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![最小的花栗鼠, 库特奈国家公园,蒙大拿州](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Least chipmunk, Kootenai National Forest, Montana](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Least chipmunk, Kootenai National Forest, Montana](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1080x1920.jpg) |
 
 ### 20250925
 
-> 奇陶尔加尔堡, 拉贾斯坦邦, 印度 (© chetansoni/Shutterstock)
+> Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 奇陶尔加尔堡坐落在印度拉贾斯坦邦一座海拔超过590英尺的山丘上，占地约690英亩。它骄傲地见证着著名武士家族——拉杰普特人的英勇事迹。拉杰普特人的名字源自梵语“rajaputra”，意为“国王之子”，他们以其高贵的血统和尚武传统而闻名于整个印度北部。这座堡垒的石墙见证了几个世纪以来拉贾斯坦邦吟游诗人的歌谣中流传的勇气、骄傲和浪漫。据传说，印度史诗《摩诃婆罗多》中的英雄比姆是这座堡垒的奠基者。
+> High on a hill rising over 590 feet in Rajasthan, India, Chittorgarh Fort spans approximately 690 acres. It stands as a proud witness to the valor of the famed warrior clans—the Rajputs. Their name comes from the Sanskrit 'rajaputra,' meaning 'son of a king,' and they are celebrated for their noble lineage and martial traditions across northern India. The fort's stone walls have witnessed centuries of courage, pride, and romance, remembered in the songs of Rajasthan's bards. According to legend, Bhim, a hero from the Hindu epic 'Mahabharata,' first laid its foundations.
 > 
-> 奇陶尔加尔堡是印度最大的堡垒之一，拥有65座历史建筑，包括四座宫殿、19座大型寺庙、20座水库、四座纪念碑和几座胜利塔。这座堡垒周长约8.1英里，最长3.1英里。从平原出发，沿着一条陡峭的之字形山路蜿蜒而上，全长约半英里，从横跨甘比里河的石灰岩桥开始。沿着这条路攀登，穿过古老的城门，您仿佛能听到战争和传说的回响——仿佛在邀请您踏入一段鲜活的历史篇章。
+> As one of the largest forts in India, Chittorgarh encompasses 65 historic structures, including four palaces, 19 large temples, 20 reservoirs, four memorials, and several victory towers. This fort has a circumference of about 8.1 miles and a maximum length of 3.1 miles. It is reached by a steep, zigzag ascent of just over half a mile from the plains, beginning with a limestone bridge over the Gambhiri River. Climbing this path and passing through its ancient gates, you can almost hear the echoes of battles and legends—inviting you to step into a living chapter of history.
 > 
 > 
 
 </details>
 
-| ![奇陶尔加尔堡, 拉贾斯坦邦, 印度](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![奇陶尔加尔堡, 拉贾斯坦邦, 印度](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Chittorgarh Fort, Rajasthan, India](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chittorgarh Fort, Rajasthan, India](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_1080x1920.jpg) |keeps the toucan cool by radiating excess heat—thanks to the blood vessels running through it. This social bird often moves in small groups, chattering and gliding between treetops. With each wing measuring 7–8 inches, the keel-billed toucan molts, or sheds its feathers, just once a year.
-> 
-> When the breeding season arrives, a pair claims a tree cavity. The female lays two to four eggs, and both parents share incubation duty. The chicks hatch featherless, with closed eyes and tiny, pale bills. Over the weeks, their colors emerge, and they begin taking short flights. So, if you catch a glimpse of one, remember: It's more than a pretty face—it's a smart, social, and well-equipped rainforest multitasker.
-> 
-> 
-
-</details>
-
-| ![A keel-billed toucan in Costa Rica](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A keel-billed toucan in Costa Rica](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_1080x1920.jpg) | |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
