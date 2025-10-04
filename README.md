@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251002
+
+> Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming (© DanitaDelimont.com/AWL Images/SuperStock)
+
+<details>
+<summary>Description</summary>
+
+> Beyond water, rivers carry life, history, and stories. They are nature's ever-moving contribution to our landscapes, flowing through lands and across time. One such gem is the Snake River, which winds through Grand Teton National Park in Wyoming. A particularly stunning spot along this river is Oxbow Bend—featured in today's image—where calm waters reflect the towering Teton Range, and wildlife such as moose and bald eagles thrive. Here, water flows freely, unbound by concrete or commerce, protected by the Wild and Scenic Rivers Act, signed on this day in 1968.
+> 
+> This landmark law is a promise: that some rivers shall run wild forever. It safeguards waters with 'outstandingly remarkable' beauty, ecology, and spirit—rivers that sing of wilderness and whisper of heritage. The Snake River Headwaters, including Oxbow Bend, joined this sacred list in 2009, ensuring its reflections remain undisturbed and its rhythms unbroken.
+> 
+> At dawn, mist dances over the bend, and the mountains blush with the first light. Visitors pause, hushed by nature's poetry. Thanks to this Act, the river's story flows on—untamed, unspoiled, unforgettable.
+
+</details>
+
+| ![Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1080x1920.jpg) |
+
 ### 20251001
 
 > Clark Range, Sierra Nevada, Yosemite National Park, California (© Robb Hirsch/TANDEM Stills + Motion)
@@ -112,28 +131,7 @@
 
 | ![Least chipmunk, Kootenai National Forest, Montana](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Least chipmunk, Kootenai National Forest, Montana](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1080x1920.jpg) |
-
-### 20250925
-
-> Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> High on a hill rising over 590 feet in Rajasthan, India, Chittorgarh Fort spans approximately 690 acres. It stands as a proud witness to the valor of the famed warrior clans—the Rajputs. Their name comes from the Sanskrit 'rajaputra,' meaning 'son of a king,' and they are celebrated for their noble lineage and martial traditions across northern India. The fort's stone walls have witnessed centuries of courage, pride, and romance, remembered in the songs of Rajasthan's bards. According to legend, Bhim, a hero from the Hindu epic 'Mahabharata,' first laid its foundations.
-> 
-> As one of the largest forts in India, Chittorgarh encompasses 65 historic structures, including four palaces, 19 large temples, 20 reservoirs, four memorials, and several victory towers. This fort has a circumference of about 8.1 miles and a maximum length of 3.1 miles. It is reached by a steep, zigzag ascent of just over half a mile from the plains, beginning with a limestone bridge over the Gambhiri River. Climbing this path and passing through its ancient gates, you can almost hear the echoes of battles and legends—inviting you to step into a living chapter of history.
-> 
-> 
-
-</details>
-
-| ![Chittorgarh Fort, Rajasthan, India](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chittorgarh Fort, Rajasthan, India](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_1080x1920.jpg) | |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
