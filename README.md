@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251003
+
+> Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Mists curl, waters glimmer, and legends linger—welcome to Glen Brittle. On the Isle of Skye, Scotland's fabled 'Misty Isle,' the glen stretches in a sweep of purple heather carpeting its rugged slopes. The landscape hums with echoes of the past: dinosaurs left footprints on these cliffs long before Mesolithic hunters traced its streams over 8,000 years ago. In the 9th century, seafaring Norse Vikings settled here. Centuries later, the powerful MacLeod and MacDonald clans claimed these lands, their castles standing guard over countless battles and alliances.
+> 
+> Among the hills and hidden lochs, the Fairy Pools shimmer in emerald and turquoise, tumbling over volcanic rock—a place where, according to local tales, fairies once danced under the moonlight. Nearby, Loch Coruisk, the 'Cauldron of Waters,' tucked beneath the jagged Black Cuillin peaks, is said to be haunted by a kelpie, a shape-shifting water spirit. Red deer glide silently through the heather, rabbits vanish along secret trails, and golden eagles wheel above. Glen Brittle is where geology, wildlife, and human history intertwine. Every stone, waterfall, and valley tells a story—step softly and listen closely.
+> 
+> 
+
+</details>
+
+| ![Glen Brittle, Isle of Skye, Scotland](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Glen Brittle, Isle of Skye, Scotland](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_1080x1920.jpg) |
+
 ### 20251002
 
 > Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming (© DanitaDelimont.com/AWL Images/SuperStock)
@@ -112,26 +131,7 @@
 
 | ![Astronomy Day and National Public Lands Day](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Astronomy Day and National Public Lands Day](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1080x1920.jpg) |
-
-### 20250926
-
-> Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> In the world of woodland critters, the least chipmunk might seem like the 'undersquirrel'—but don't count it out. With survival smarts and turbo-charged feet, this tiny rodent proves that being 'least' is no reason to squirrel away your potential. Weighing less than a deck of cards and measuring under 10 inches from nose to tail, this species is North America's smallest chipmunk.
-> 
-> When it's not sprinting up logs or vanishing into leaf piles, it is stuffing its face—literally. Its expandable cheek pouches help it haul seeds, berries, and insects to storage spots. Come winter, it doesn't fully hibernate. Instead, it enters a light torpor, waking every so often for a snack. Not one for group living, each least chipmunk carves out its own territory every summer, usually with a hidden burrow and a backup food cache or ten. But if a predator wanders too close, you'll hear chip-chip-chip alarms sounding off.
-> 
-> Did you know that a least chipmunk's memory is so sharp that it can remember the locations of hundreds of food caches, even after a long winter nap? So next time you forget where you parked, just remember—a chipmunk wouldn't have.
-
-</details>
-
-| ![Least chipmunk, Kootenai National Forest, Montana](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Least chipmunk, Kootenai National Forest, Montana](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1080x1920.jpg) |OHR.ToucanForest_EN-US8319635845_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
