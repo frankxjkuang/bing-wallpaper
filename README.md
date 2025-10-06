@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251004
+
+> ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)
+
+<details>
+<summary>Description</summary>
+
+> From October 4 to 10, World Space Week invites us to transcend our earthly bounds and chase the stars. It was born from the launch of Sputnik 1 by the USSR in 1957 and the signing of the Outer Space Treaty in 1967, a pioneering international commitment to peaceful cosmic exploration. During this week, classrooms buzz with experiments, planetariums echo with wonder, and telescopes bridge the gap to distant galaxies. Together, these moments weave a universal story of science, discovery, and humanity's relentless drive to push boundaries. The week's mission is clear: to ignite the next generation of explorers, engineers, and dreamers ready to rewrite the cosmos.
+> 
+> Today's image captures the International Space Station, a vast laboratory built by 15 nations, orbiting about 260 miles above Earth. Its solar arrays soak up sunlight to power groundbreaking research on microgravity, technology, and human survival beyond our planet. Shot from the SpaceX Crew Dragon Endeavour—a reusable spacecraft that has completed six missions since 2020, ferrying astronauts and cargo—this scene embodies what humanity can achieve when it chooses cooperation over competition. Each gleaming panel makes it clear: the final frontier is within reach, and the audacity to explore it defines us.
+> 
+> 
+
+</details>
+
+| ![World Space Week](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Space Week](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1080x1920.jpg) |
+
 ### 20251003
 
 > Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![The town of Pienza in Tuscany, Italy](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The town of Pienza in Tuscany, Italy](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_1080x1920.jpg) |
-
-### 20250927
-
-> Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> When the calendar lines up just right, you get a rare double feature: National Public Lands Day and Astronomy Day. It's a chance to explore the landscapes that ground us and the skies that inspire us—all within 24 hours.
-> 
-> National Public Lands Day, held on the fourth Saturday of September, is America's biggest single-day volunteer event for parks, forests, and other shared spaces. Volunteers rake, plant, and pick up litter—all while enjoying free admission to these sites. Astronomy Day comes twice a year, with the fall version offering longer nights and darker skies. The goal is simple: help more people discover the universe. Many parks are far from city lights, making them prime spots for seeing the Milky Way, meteor showers, and constellations without interference. Remote places like Tank Lakes in Washington's Alpine Lakes Wilderness, pictured here, offer exactly that.
-> 
-> This year, why not make it a two-for-one celebration? Hike a trail by day, then trace constellations by night. On National Public Lands Day, you might cross paths with a deer or eagle. On Astronomy Day, your companions could be Orion or Cassiopeia. Different worlds, same sense of wonder.
-
-</details>
-
-| ![Astronomy Day and National Public Lands Day](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Astronomy Day and National Public Lands Day](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1080x1920.jpg) |OHR.ToucanForest_EN-US8319635845_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
