@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251005
+
+> Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> The tradition of teaching is deeply rooted in human history. Today, we honor those who dedicate their lives to sharing knowledge and shaping minds. Happy World Teachers' Day to all the educators who have helped us become who we are.
+> 
+> From Confucius in ancient China to Socrates, Plato, and Aristotle in ancient Greece, and Maria Montessori in 20th-century Italy, teachers have not only shaped lives—they've shaped history. Many cultural icons once stood at the front of a classroom. Did you know that Stephen King, for instance, taught English before becoming a bestselling author?
+> 
+> Teachers are essential pillars of a thriving society. Recognizing this, UNESCO and the International Labour Organization established October 5 as World Teachers' Day in 1994 to celebrate and support educators worldwide. As a tribute to wisdom, today's image features a boreal owl. The owl has long symbolized intelligence and insight. One of the earliest associations comes from Greek mythology: the goddess of wisdom, Athena, was often depicted with a small owl, her sacred animal. This nocturnal companion came to represent clarity, perception, and the ability to see beyond the surface.
+
+</details>
+
+| ![World Teachers' Day](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1080x1920.jpg) |
+
 ### 20251004
 
 > ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)
@@ -112,26 +131,7 @@
 
 | ![The Rainbow Houses of Houten, Netherlands](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Rainbow Houses of Houten, Netherlands](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |
-
-### 20250928
-
-> Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Some towns evolve slowly over centuries. Pienza? It received a full rebrand in the 1400s from a pope who wanted to prove a point—and maybe show off a little. This tiny Italian town is perched above the Val d'Orcia, surrounded by rolling hills that look exactly like you think Tuscany should: cypress trees, winding dirt roads, the occasional sheep. It's peaceful. And then you step inside the town walls, and it gets clever.
-> 
-> Pienza was once a regular medieval village called Corsignano. That is, until one of its sons became Pope Pius II and decided to transform his hometown. He hired architect Bernardo Rossellino and rebuilt the area based on Renaissance ideals of symmetry, order, and harmony. The result? A site that feels intentional. The central square, Piazza Pio II, is flanked by a cathedral, a papal palace, and a town hall, all arranged just so. Moreover, Pienza is known for pecorino cheese—sheep's milk, aged in interesting ways. And once a year, the whole town turns into a cheese arena for Fiera del Cacio, a festival featuring Cacio al Fuso—a game where people roll wheels of cheese at a target.
-> 
-> 
-
-</details>
-
-| ![The town of Pienza in Tuscany, Italy](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The town of Pienza in Tuscany, Italy](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
