@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251006
+
+> Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The shiver felt under a full autumn moon, when the air hints at winter's arrival, has a way of lingering in memory. One of China's most cherished holidays, the Mid-Autumn Festival—also known as the Moon Festival—adds another touch of magic to the end of the harvest season. It's celebrated on the 15th day of the eighth lunar month of the Chinese calendar—this year, on October 6. According to legend, it's also the night when the moon goddess Chang'e watches over the world.
+> 
+> Families gather to share mooncakes—round pastries filled with sweet or savory goodness—and enjoy lanterns, moon gazing, and heartfelt reunions. One of the most enchanting sights is the Anshun Bridge in Chengdu, China—seen in today's image—glowing in golden light to honor the festival. Its arches reflect in the Jin River, creating a dreamy scene. In the United States, communities with Asian heritage celebrate with lantern parades, mooncake tastings, and cultural gatherings in cities like San Francisco, New York, and Dallas. Tonight, let the light guide you to the moon and back.
+> 
+> 
+
+</details>
+
+| ![Anshun Bridge, Chengdu, China](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anshun Bridge, Chengdu, China](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_1080x1920.jpg) |
+
 ### 20251005
 
 > Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Koala in the Great Otway National Park, Australia](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Koala in the Great Otway National Park, Australia](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg) |
-
-### 20250929
-
-> The Rainbow Houses of Houten, Netherlands (© George Pachantouris/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> You won't find souvenir shops or tourist maps pointing the way—but follow the edge of Lake Rietplas in Houten, and you'll stumble upon one of the Netherlands' most unexpectedly photogenic sights. While many flock to Amsterdam's canals or Rotterdam's cube houses, this quiet commuter town offers its own architectural twist. Lined up like a mirage, the Rainbow Houses shimmer in bold, painterly hues—a residential block turned an understated cultural landmark.
-> 
-> To locals, they're simply part of the daily backdrop. But for photographers and design lovers, they're a dreamscape of saturation and symmetry. Designed by Hans Been and completed in 2005, the ensemble blends Caribbean flair with Nordic restraint, echoing the look of a minimalist fishing village. Each house reflects a different color of the spectrum. This isn't a curated tourist stop; these are lived-in homes, part of a neighborhood shaped by the same thoughtful planning that makes Houten one of the most bike-friendly towns in the country. Best seen from across the lake or a nearby bridge, these vibrant facades feel like a secret you're lucky to catch in the right light: charming, surprising, and refreshingly under the radar.
-> 
-> 
-
-</details>
-
-| ![The Rainbow Houses of Houten, Netherlands](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Rainbow Houses of Houten, Netherlands](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg) |-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
