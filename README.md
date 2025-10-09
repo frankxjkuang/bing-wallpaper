@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251007
+
+> Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> It's that time of year when the hills shed their summer greens, unveiling a blaze of colors that lights up the season. The change usually begins in September and early October, with higher slopes turning first, followed by the lower valleys. Among the stars of this display are the aspens, whose leaves shimmer like gold coins in the sunlight. The magic of aspen colors, however, isn't guaranteed year after year. Their golden glow depends on many factors—tree health, local weather shifts, soil moisture, and where they grow in terms of elevation and latitude. Healthy aspens are the true stars of the season: strong, thriving groves burst with brighter colors and hold onto their leaves longer, while stressed or weakened trees often fade quickly, offering only a glimpse of their usual brilliance. Today's image captures their full glow at the base of Mount Sneffels, the highest peak in Colorado's Sneffels Range, rising more than 7,000 feet above the town of Ridgway.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Fall colors below Mount Sneffels near Ridgway, Colorado](https://cn.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fall colors below Mount Sneffels near Ridgway, Colorado](https://cn.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_1080x1920.jpg) |
+
 ### 20251006
 
 > Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Clark Range, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Clark Range, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1080x1920.jpg) |
-
-### 20250930
-
-> Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Amid the lush eucalyptus canopy of Great Otway National Park, koalas reign as sleepy sentinels of Australia's wild soul. Often misnamed 'koala bears,' these marsupials are actually closer to wombats and tend to be instantly recognizable by their stout, tailless bodies, fluffy ears, and velvety black noses.
-> 
-> Their diet is notoriously selective—koalas feed almost exclusively on certain eucalyptus leaves laced with toxins that most animals can't digest. To survive, they sleep up to 20 hours a day while a specialized, bacteria-rich gut works to neutralize the poison. This slow-motion lifestyle is nature's masterstroke of adaptation.
-> 
-> Yet their future hangs in the balance. From habitat loss, disease, and climate-driven threats like bushfires, koalas are at a critical crossroads. But forest restoration, dedicated sanctuaries, and Indigenous-led conservation are beginning to turn the tide. With continued care, these gentle climbers can cling to the treetops (and to our hearts) as enduring symbols of Australia's wild spirit for generations to come.
-
-</details>
-
-| ![Koala in the Great Otway National Park, Australia](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Koala in the Great Otway National Park, Australia](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg) |-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg) |-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
