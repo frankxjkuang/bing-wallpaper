@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251008
+
+> Day octopus in the waters off Maui, Hawaii (© Dave Fleetham/plainpicture)
+
+<details>
+<summary>Description</summary>
+
+> With eight arms and plenty of charm, the octopus takes the spotlight today. On World Octopus Day, as we reflect on their brilliance, we're reminded that even these ocean geniuses can't outsmart threats like climate change and pollution. Protecting their homes means safeguarding the future of our seas.
+> 
+> Meet the master of disguise—the day octopus (Octopus cyanea). Found across the Pacific and Indian Oceans, from Hawaii to Africa's eastern coast, this reef-dweller is a true shapeshifter. Unlike most of its kin, it hunts in broad daylight, instantly shifting its color, pattern, and even skin texture to blend into its surroundings. At times, it even performs a clever 'passing clouds' act, casting a false shadow to trick crabs into moving at just the wrong moment. And once the trap is sprung, the hunter wastes no time. A skilled predator, this octopus prowls the reef for fish, crabs, shrimp, and mollusks. Smaller catches are devoured on the spot, while larger prey is dragged back to its den.
+> 
+> 
+
+</details>
+
+| ![World Octopus Day](https://cn.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Octopus Day](https://cn.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_1080x1920.jpg) |
+
 ### 20251007
 
 > Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1080x1920.jpg) |
-
-### 20251001
-
-> Clark Range, Sierra Nevada, Yosemite National Park, California (© Robb Hirsch/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> This year marks another milestone in the legacy of Yosemite National Park, a sanctuary protected since 1864 and celebrated for its awe-inspiring grandeur and ecological significance. Nestled in the heart of the Sierra Nevada, Yosemite's nearly 1,200 square miles cradle granite giants, cascading waterfalls, and ancient sequoias. Among its lesser-known treasures lies the Clark Range—the rugged, high-elevation spine seen in today's image. It was named after Galen Clark, Yosemite's first guardian and a pioneer of conservation.
-> 
-> The Clark Range stands as a quiet sentinel to Yosemite's southern wilderness, its peaks etched by glaciers and crowned with alpine meadows. Here, the wind whispers through whitebark pines and the sky opens wide, echoing the spirit of foresight that birthed the park.
-> 
-> As we honor Yosemite's anniversary, we celebrate not only its grandeur but the enduring vision of those who fought to preserve it. From the valley's granite walls to the Clark Range's serene heights, this national park remains a living poem—written in stone, water, and time.
-
-</details>
-
-| ![Clark Range, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Clark Range, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg) |-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1080x1920.jpg) |.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg) |-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
