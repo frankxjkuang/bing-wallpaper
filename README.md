@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251009
+
+> The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)
+
+<details>
+<summary>Description</summary>
+
+> As World Space Week draws to a close, the cosmos continues to give us reasons to look up in awe. Picture clouds—not drifting across our skies, but stretching across space itself, cradling the birth of new stars. That's exactly what NASA's James Webb Space Telescope has revealed in its view of the Pillars of Creation—shown here—with colors and details unlike anything seen before.
+> 
+> These massive, spire-like structures—rising diagonally from bottom left to the top right—are composed almost entirely of dust and gas, the very seedbed of stars. Within these towering formations, gravity tightens its grip on knots of material, sparking gradual ignition and birthing new stars that already shimmer along the pillars' edges. Remarkably, this celestial performance is taking place just 6,500 light-years away, within the Eagle Nebula. Hidden behind thick lanes of interstellar clouds that mask the distant universe, the pillars emerge in full glory, shining front and center.
+> 
+> 
+
+</details>
+
+| ![Space Week isn't over yet!](https://cn.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Space Week isn't over yet!](https://cn.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_1080x1920.jpg) |
+
 ### 20251008
 
 > Day octopus in the waters off Maui, Hawaii (© Dave Fleetham/plainpicture)
@@ -112,24 +131,7 @@
 
 | ![Glen Brittle, Isle of Skye, Scotland](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Glen Brittle, Isle of Skye, Scotland](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_1080x1920.jpg) |
-
-### 20251002
-
-> Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming (© DanitaDelimont.com/AWL Images/SuperStock)
-
-<details>
-<summary>Description</summary>
-
-> Beyond water, rivers carry life, history, and stories. They are nature's ever-moving contribution to our landscapes, flowing through lands and across time. One such gem is the Snake River, which winds through Grand Teton National Park in Wyoming. A particularly stunning spot along this river is Oxbow Bend—featured in today's image—where calm waters reflect the towering Teton Range, and wildlife such as moose and bald eagles thrive. Here, water flows freely, unbound by concrete or commerce, protected by the Wild and Scenic Rivers Act, signed on this day in 1968.
-> 
-> This landmark law is a promise: that some rivers shall run wild forever. It safeguards waters with 'outstandingly remarkable' beauty, ecology, and spirit—rivers that sing of wilderness and whisper of heritage. The Snake River Headwaters, including Oxbow Bend, joined this sacred list in 2009, ensuring its reflections remain undisturbed and its rhythms unbroken.
-> 
-> At dawn, mist dances over the bend, and the mountains blush with the first light. Visitors pause, hushed by nature's poetry. Thanks to this Act, the river's story flows on—untamed, unspoiled, unforgettable.
-
-</details>
-
-| ![Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_1080x1920.jpg) |8471628790_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1080x1920.jpg) |.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg) |-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
