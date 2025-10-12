@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251010
+
+> Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)
+
+<details>
+<summary>Description</summary>
+
+> Some dates mark a single milestone—Fiji's October 10 marks two. On that day in 1874, the islands officially became a British colony. Almost a century later, in 1970, the same date saw Fiji raise its own flag and declare independence. Fiji Day is a unique national holiday—part reflection, part celebration. The day begins with formal ceremonies, where the Fijian flag is hoisted and leaders deliver speeches. Schools and community groups often stage reenactments and performances. Streets fill with parades, villages host cultural dances like the meke, and rugby pitches come alive with matches. Families prepare traditional dishes like lovo, where meat and root crops are cooked underground, and kokoda, a citrus-marinated fish dish.
+> 
+> Today, the spirit of freedom stretches from bustling towns to remote gems like the island of Monuriki, pictured here. Known worldwide as the filming site of 'Cast Away,' the island is uninhabited—but far from lifeless. Its surrounding coral reef acts as a natural fortress, protecting the island from storms while sheltering countless species of fish. The reefs of Fiji are a fitting metaphor: strong, diverse, and deeply connected to the well-being of the nation.
+> 
+> 
+
+</details>
+
+| ![Visiting the Mamanuca Islands for Fiji Day](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Visiting the Mamanuca Islands for Fiji Day](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_1080x1920.jpg) |
+
 ### 20251009
 
 > The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)
@@ -112,26 +131,7 @@
 
 | ![World Space Week](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Space Week](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1080x1920.jpg) |
-
-### 20251003
-
-> Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Mists curl, waters glimmer, and legends linger—welcome to Glen Brittle. On the Isle of Skye, Scotland's fabled 'Misty Isle,' the glen stretches in a sweep of purple heather carpeting its rugged slopes. The landscape hums with echoes of the past: dinosaurs left footprints on these cliffs long before Mesolithic hunters traced its streams over 8,000 years ago. In the 9th century, seafaring Norse Vikings settled here. Centuries later, the powerful MacLeod and MacDonald clans claimed these lands, their castles standing guard over countless battles and alliances.
-> 
-> Among the hills and hidden lochs, the Fairy Pools shimmer in emerald and turquoise, tumbling over volcanic rock—a place where, according to local tales, fairies once danced under the moonlight. Nearby, Loch Coruisk, the 'Cauldron of Waters,' tucked beneath the jagged Black Cuillin peaks, is said to be haunted by a kelpie, a shape-shifting water spirit. Red deer glide silently through the heather, rabbits vanish along secret trails, and golden eagles wheel above. Glen Brittle is where geology, wildlife, and human history intertwine. Every stone, waterfall, and valley tells a story—step softly and listen closely.
-> 
-> 
-
-</details>
-
-| ![Glen Brittle, Isle of Skye, Scotland](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Glen Brittle, Isle of Skye, Scotland](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_1080x1920.jpg) |8471628790_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1080x1920.jpg) |155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1080x1920.jpg) |.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg) |-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
