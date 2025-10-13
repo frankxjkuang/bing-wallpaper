@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251011
+
+> Wood duck hen (© ps50ace/iStock/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Birds don't bother with passports, visas, or luggage—they just spread their wings and go. Twice a year, billions of migratory birds crisscross the globe, flying thousands of miles between breeding and wintering grounds. That epic commute is exactly what World Migratory Bird Day highlights. From the Arctic tern, which logs about 44,000 miles a year, to the tiny ruby-throated hummingbird crossing the Gulf of Mexico in a single flight, these seasonal fliers show what endurance really looks like. Observed on the second Saturday in May and October, the day also draws attention to the challenges migratory birds face: habitat loss, climate change, and light pollution can all disrupt their routes.
+> 
+> Among the travelers worth spotlighting is the wood duck, pictured here. This North American species has made quite a comeback after once facing steep population declines due to hunting and habitat loss. Thanks to conservation efforts and nest box programs, they are now a regular sight in wooded swamps, marshes, and lakes. While some wood ducks stay put year-round in the southern United States, northern hens migrate south when the chill sets in, heading for milder regions stretching from the southern states to Mexico.
+> 
+> 
+
+</details>
+
+| ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |
+
 ### 20251010
 
 > Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)
@@ -112,26 +131,7 @@
 
 | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1080x1920.jpg) |
-
-### 20251004
-
-> ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)
-
-<details>
-<summary>Description</summary>
-
-> From October 4 to 10, World Space Week invites us to transcend our earthly bounds and chase the stars. It was born from the launch of Sputnik 1 by the USSR in 1957 and the signing of the Outer Space Treaty in 1967, a pioneering international commitment to peaceful cosmic exploration. During this week, classrooms buzz with experiments, planetariums echo with wonder, and telescopes bridge the gap to distant galaxies. Together, these moments weave a universal story of science, discovery, and humanity's relentless drive to push boundaries. The week's mission is clear: to ignite the next generation of explorers, engineers, and dreamers ready to rewrite the cosmos.
-> 
-> Today's image captures the International Space Station, a vast laboratory built by 15 nations, orbiting about 260 miles above Earth. Its solar arrays soak up sunlight to power groundbreaking research on microgravity, technology, and human survival beyond our planet. Shot from the SpaceX Crew Dragon Endeavour—a reusable spacecraft that has completed six missions since 2020, ferrying astronauts and cargo—this scene embodies what humanity can achieve when it chooses cooperation over competition. Each gleaming panel makes it clear: the final frontier is within reach, and the audacity to explore it defines us.
-> 
-> 
-
-</details>
-
-| ![World Space Week](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Space Week](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1080x1920.jpg) |155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1080x1920.jpg) |155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1080x1920.jpg) |.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg) |-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
