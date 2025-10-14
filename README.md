@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251012
+
+> Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Some places are just stops on the map, but Saranac Lake in New York's Adirondack Mountains is a destination that keeps people hooked year-round. Despite its name, this village isn't directly on the Saranac Lakes themselves but rather on Lake Flower, a wide section of the Saranac River. For centuries, the area—nicknamed 'The Capital of the Adirondacks'—was used by Indigenous peoples for hunting and travel. By the late 19th century, it gained fame as a health retreat, where Dr. Edward Livingston Trudeau pioneered fresh-air treatment for tuberculosis. The cure cottages from that era still stand today.
+> 
+> Today, Saranac Lake has shifted from curing patients to curing boredom. Visitors paddle the waterways, hike the High Peaks, and enjoy winter activities like skiing and ice fishing. The village also boasts a lively arts scene, with galleries, music, and community festivals making culture as central as the outdoors. Local shops and restaurants add flavor, serving everything from trout to craft beer. The annual Winter Carnival is a highlight, complete with an ice palace that looks like something out of a frosty fairy tale, proving this village knows how to make a cool impression—literally.
+> 
+> 
+
+</details>
+
+| ![Village of Saranac Lake, New York](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Saranac Lake, New York](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |
+
 ### 20251011
 
 > Wood duck hen (© ps50ace/iStock/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Anshun Bridge, Chengdu, China](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anshun Bridge, Chengdu, China](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_1080x1920.jpg) |
-
-### 20251005
-
-> Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> The tradition of teaching is deeply rooted in human history. Today, we honor those who dedicate their lives to sharing knowledge and shaping minds. Happy World Teachers' Day to all the educators who have helped us become who we are.
-> 
-> From Confucius in ancient China to Socrates, Plato, and Aristotle in ancient Greece, and Maria Montessori in 20th-century Italy, teachers have not only shaped lives—they've shaped history. Many cultural icons once stood at the front of a classroom. Did you know that Stephen King, for instance, taught English before becoming a bestselling author?
-> 
-> Teachers are essential pillars of a thriving society. Recognizing this, UNESCO and the International Labour Organization established October 5 as World Teachers' Day in 1994 to celebrate and support educators worldwide. As a tribute to wisdom, today's image features a boreal owl. The owl has long symbolized intelligence and insight. One of the earliest associations comes from Greek mythology: the goddess of wisdom, Athena, was often depicted with a small owl, her sacred animal. This nocturnal companion came to represent clarity, perception, and the ability to see beyond the surface.
-
-</details>
-
-| ![World Teachers' Day](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1080x1920.jpg) |155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_1080x1920.jpg) |5&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1080x1920.jpg) |.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg) |-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
