@@ -2,138 +2,136 @@
 
 ### 20251016
 
-> 欧亚猞猁，西伯利亚 (© Mario Plechaty Photograph/Shutterstock)
+> Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 想象一只能在森林中悄然隐去的猫科动物——这就是欧亚猞猁。它耳尖上的簇毛和锐利的目光令人过目难忘。作为四种猞猁中体型最大的一种，它体长可达42 英寸，肩高可达30英寸，身形矫健，兼具力量与敏捷。厚实的脚掌不仅能帮助它悄无声息地移动，还像雪鞋一样分散体重，使其能在厚厚的积雪中追逐猎物。它大多在夜间出没，白天则隐匿在灌木丛或岩石洞穴中，夜幕降临才悄然出击，捕猎鹿、野兔和松鼠。
+> Think of a cat that can vanish into the forest without a sound—that's the Eurasian lynx. With its tufted ears and a piercing gaze, this feline is the largest of the four lynx species. Stretching up to 42 inches in length and standing as tall as 30 inches at the shoulder, the Eurasian lynx is built for power and precision. Its padded paws aren't just for sneaking; they act like snowshoes, spreading its weight so it can chase down prey in deep winter drifts. Mostly a nocturnal hunter, it spends its days tucked away in thickets or rocky dens, venturing out under the cover of darkness to stalk deer, hares, and squirrels.
 > 
-> 猞猁过着独居生活。雄性和雌性各自占据自己的领地，并通过抓痕和气味标记来宣示主权，就像在森林中留下的秘密讯号。然而，它们神秘的天性并未能保护它们免遭人类的威胁。在20世纪70至80年代，成千上万张猞猁皮从俄罗斯和中国出口，使其数量一度降至危险水平。尽管毛皮贸易限制减轻了压力，但偷猎、栖息地丧失以及猎物减少等问题至今仍对欧亚猞猁构成生存危机。
+> The lynx lives a solitary life. Males and females carve out their own territories, marking them with scratches and scent—like secret notes left in the forest. Their elusive nature did not protect them from humans: during the 1970s and '80s, thousands of lynx pelts were exported from Russia and China, pushing populations toward dangerous lows. Though fur trade restrictions have eased the pressure, poaching, habitat loss, and shrinking prey numbers still pose threats today.
 > 
 > 
 
 </details>
 
-| ![欧亚猞猁](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![欧亚猞猁](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![A Eurasian lynx in Siberia](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A Eurasian lynx in Siberia](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_1080x1920.jpg) |
 
 ### 20251015
 
-> 紫蜡蘑，西贝克，华盛顿州，美国 (© Danita Delimont/Shutterstock)
+> Amethyst laccaria mushrooms, Seabeck, Washington (© Danita Delimont/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 你知道吗？蘑菇也有属于自己的节日。每年的10月15日是“全国蘑菇日”，这一天邀请我们走进它们奇妙的世界。比如图中的紫蜡蘑，又称“紫晶欺骗菇”。它在幼年时紫色明艳、光彩夺目，但随着时间和环境的变化，颜色逐渐褪去，辨认起来就不那么容易了。尽管外表娇嫩而多变，这种宝石般的真菌不仅可以食用，还在生态系统中发挥着重要作用。
+> Did you know there's a day just for mushrooms? Every October 15, National Mushroom Day invites us to discover their fascinating world. Take the amethyst laccaria, pictured here. Also known as the amethyst deceiver, its bright purple color is dazzling when young, but it fades with age and weathering, making it tricky to identify. Despite its delicate, ever-changing appearance, this jewel-toned fungus is edible and plays a vital role in the ecosystem.
 > 
-> 蘑菇远不止是披萨的配料或餐桌上的配菜，它们是生态界的强大力量，对森林的健康至关重要。它们分解枯死物质，循环利用养分，并通过被称为“菌根”的地下网络促进树木生长。有些蘑菇还能帮助土壤储存碳，在气候调节中扮演角色。“全国蘑菇日”鼓励我们保持好奇心。今天，不妨尝试一道新的蘑菇食谱，读一读它们如何守护地球，或者亲身来一次寻菇探险。不过请记住：采摘必须负责任，切勿在没有正确鉴别的情况下食用野生蘑菇，因为其中一些可能有毒。
+> Far more than pizza toppings or sautéed sides, these organisms are ecological powerhouses, essential for healthy forests. They break down dead matter, recycle nutrients, and support tree growth through underground networks called mycorrhizae. Some also help store carbon in the soil, playing a role in climate regulation. National Mushroom Day encourages curiosity. So, try a new mushroom recipe today, read about how they support our planet, or enjoy a foraging adventure. Just remember: Always harvest responsibly and never consume wild mushrooms without proper identification, as some can be poisonous.
 > 
 > 
 
 </details>
 
-| ![紫蜡蘑](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![紫蜡蘑](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![National Mushroom Day](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Mushroom Day](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1080x1920.jpg) |
 
 ### 20251014
 
-> 伊亚镇，圣托里尼岛，希腊 (© f9photos/Getty Images)
+> Village of Oia, Santorini, Greece (© f9photos/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 你是否曾想过生活在电影布景中是什么感觉？在希腊圣托里尼群岛的伊亚村，这种体验几乎成真。这里曾出现在《牛仔裤的夏天》和《古墓丽影》等影片中。标志性的基克拉迪式建筑——立方体造型、平顶的白色房屋——与悬崖边的壮丽景色，仿佛不属于现实世界。它独特的建筑风格起源于19世纪末，当时的水手和商人直接在火山悬崖上凿建房屋，夏季清凉、冬季温暖。而蓝白相间的粉刷，也不仅仅是为了美观：石灰涂层能让雨水顺流而下并被收集利用。如今，游客可以漫步在鹅卵石铺就的小巷中，参观海军海事博物馆，或登上圣尼古拉斯城堡遗址，欣赏那令人难忘的落日。
+> Ever wondered what it's like to live on a movie set? Oia is about as close as it gets, part of Greece's Santorini archipelago. This village has appeared in films like 'The Sisterhood of the Traveling Pants' and 'Tomb Raider,' thanks to its Cycladic houses—cube-shaped homes with flat roofs—and cliffside views that feel almost unreal. Its unique architecture has roots in the late 19th century. Sailors and merchants carved houses right into the volcanic cliffs—cool in summer and warm in winter. The white-and-blue theme is also more than just for show: houses were painted with lime wash so rainwater would run off and be collected. Today, visitors wander its cobbled lanes, explore the Naval Maritime Museum, or climb to the ruins of Agios Nikolaos Castle for unforgettable sunsets.
 > 
-> 伊亚素有“鹰巢”之称，俯瞰着帕利亚岛和尼亚·卡美尼岛这两座火山岛，以及曾在公元前1600年米诺斯火山喷发前与圣托里尼岛相连的特拉西亚岛。而圣托里尼本身，则宛如大海中的一顶岩石王冠——一座半沉入海底的巨大火山口，由公元前1600年的那场喷发塑造，那是人类历史上规模最大、最剧烈的火山爆发之一。
+> Nicknamed the 'Eagle's Nest,' Oia overlooks the volcanic islets of Palia and Nea Kameni, as well as Therasia, which was physically connected to Santorini before the Minoan eruption. And Santorini itself? Think of it as a crown of rock around the sea, a half-sunken caldera shaped by the eruption of 1600 BCE, one of the largest volcanic eruptions in human history.
 > 
 > 
 
 </details>
 
-| ![伊亚镇，圣托里尼岛，希腊](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![伊亚镇，圣托里尼岛，希腊](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Village of Oia in Santorini, Greece](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Oia in Santorini, Greece](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1080x1920.jpg) |
 
 ### 20251013
 
-> 温巴赫峡谷瀑布，巴伐利亚州，德国 (© EyeEm Mobile GmbH/Getty Images)
+> House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 陡峭的岩石峡谷，湍急的水流，还有如画般的风景：位于贝希特斯加登国家公园拉姆绍附近的温巴赫峡谷，是巴伐利亚最壮观的峡谷之一。在今日图片中，温巴赫溪在约200米长的狭窄岩层间奔流而下，形成层层小瀑布，并在长年累月中于岩石上雕刻出令人惊叹的纹理。色彩斑斓的岩层揭示了数千年前的地质过程。
+> Canyons and mesas across the US hold more than striking scenery—they carry centuries of Indigenous history. Indigenous Peoples' Day, celebrated nationally on the second Monday of October, honors that history. The holiday began gaining ground in 1992, when Berkeley, California, became the first city to replace Columbus Day with a celebration of Native cultures. It recognizes Native nations as the earliest protectors of the land and acknowledges their ongoing cultural contributions.
 > 
-> 稳固的木质栈道紧贴悬崖修建，引领游客穿行于这条狭窄峡谷之中。走到尽头，壮阔的温巴赫山谷豁然展开，坐落在瓦茨曼山与霍赫卡尔特山之间，这里也是远足登山的热门起点。自1847年向公众开放以来，峡谷凭借其沉浸式的自然之美持续吸引着各个年龄层的游客。尤其在春季，随着雪水融化、溪流暴涨，峡谷景观更显震撼。在这里徒步，就像进行一场时光之旅，亲眼见证大自然原始而磅礴的力量。
+> In Utah, nations such as the Navajo, Ute, Paiute, and Hopi maintain deep cultural and spiritual connections to the mesas, rivers, and desert lands. For these communities, the land itself is part of a living heritage—one that reaches back to the Ancestral Puebloans, who lived in what is now the Four Corners region. Renowned for farming, pottery, and architecture, they built multi-room stone dwellings that still stand today. One such site is the House on Fire Ruin in Mule Canyon, pictured here. The rock ceiling above a small cliff dwelling appears ablaze, an illusion created when sunlight hits mineral-stained sandstone. What appears mesmerizing is geology paired with human craftsmanship—an architectural remnant in harmony with its setting.
 > 
 > 
 
 </details>
 
-| ![温巴赫峡谷瀑布，巴伐利亚州，德国](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![温巴赫峡谷瀑布，巴伐利亚州，德国](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Cedar Mesa, Utah, for Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cedar Mesa, Utah, for Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1080x1920.jpg) |
 
 ### 20251012
 
-> 萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国 (© DenisTangneyJr/Getty Images)
+> Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 有些地方只是地图上的一个点，但萨拉纳克湖却是一年四季都吸引游客的热门目的地。尽管名字里带“湖”，这个小镇并不直接坐落在萨拉纳克湖群边，而是位于萨拉纳克河的一段宽阔水域——弗劳尔湖畔。几个世纪以来，这片被称为“阿迪朗达克之都”的地方，一直是原住民狩猎和迁徙的要地。到19世纪末，这里因成为疗养胜地而声名鹊起，爱德华·李文斯顿·特鲁多医生在此开创了肺结核的新鲜空气疗法。那一时期的“疗养小屋”至今依然保存完好。
+> Some places are just stops on the map, but Saranac Lake in New York's Adirondack Mountains is a destination that keeps people hooked year-round. Despite its name, this village isn't directly on the Saranac Lakes themselves but rather on Lake Flower, a wide section of the Saranac River. For centuries, the area—nicknamed 'The Capital of the Adirondacks'—was used by Indigenous peoples for hunting and travel. By the late 19th century, it gained fame as a health retreat, where Dr. Edward Livingston Trudeau pioneered fresh-air treatment for tuberculosis. The cure cottages from that era still stand today.
 > 
-> 如今，萨拉纳克湖早已从治病救人转变为治愈无聊的好去处。游客们可以在水道上划桨，攀登高峰，冬天则能体验滑雪和冰钓的乐趣。村子里也同样充满艺术气息，画廊、音乐和社区节庆让文化与户外活动同样重要。本地的商店和餐馆更为旅程增添滋味，从新鲜鳟鱼到精酿啤酒应有尽有。每年举办的冬季嘉年华是最大亮点，其中的冰宫仿佛出自冰雪童话，足以证明这个小镇很懂得如何留下“酷”的印象——不论是氛围，还是温度。
+> Today, Saranac Lake has shifted from curing patients to curing boredom. Visitors paddle the waterways, hike the High Peaks, and enjoy winter activities like skiing and ice fishing. The village also boasts a lively arts scene, with galleries, music, and community festivals making culture as central as the outdoors. Local shops and restaurants add flavor, serving everything from trout to craft beer. The annual Winter Carnival is a highlight, complete with an ice palace that looks like something out of a frosty fairy tale, proving this village knows how to make a cool impression—literally.
 > 
 > 
 
 </details>
 
-| ![萨拉纳克湖村，纽约州](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![萨拉纳克湖村，纽约州](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Village of Saranac Lake, New York](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Saranac Lake, New York](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |
 
 ### 20251011
 
-> 林鸳鸯，美国 (© ps50ace/iStock/Getty Images)
+> Wood duck hen (© ps50ace/iStock/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 鸟类无需护照、签证或行李，它们只需展开翅膀，就能随时启程。每年两次，数十亿只候鸟跨越全球，在繁殖地与越冬地之间飞行数千英里。这段壮丽的旅程正是“世界候鸟日”所要强调的。从每年飞行约44000英里的北极燕鸥，到单次飞行就能横跨墨西哥湾的红喉蜂鸟，这些季节性迁徙的鸟儿展现了真正的耐力。该节日定在每年5月和10月的第二个星期六，同时提醒人们候鸟所面临的威胁：栖息地丧失、气候变化以及光污染，都可能干扰它们的迁徙路线。
+> Birds don't bother with passports, visas, or luggage—they just spread their wings and go. Twice a year, billions of migratory birds crisscross the globe, flying thousands of miles between breeding and wintering grounds. That epic commute is exactly what World Migratory Bird Day highlights. From the Arctic tern, which logs about 44,000 miles a year, to the tiny ruby-throated hummingbird crossing the Gulf of Mexico in a single flight, these seasonal fliers show what endurance really looks like. Observed on the second Saturday in May and October, the day also draws attention to the challenges migratory birds face: habitat loss, climate change, and light pollution can all disrupt their routes.
 > 
-> 在这些候鸟中，林鸳鸯尤为值得关注，如今日图片所示。曾因捕猎和栖息地消失而一度面临数量骤减的它们，如今在保护措施和人工巢箱计划的帮助下得以复苏。如今，它们已成为林木茂密的沼泽、湿地和湖泊中的常客。部分林鸳鸯终年栖息于美国南部，而在北方，当寒意袭来时，雌鸭则会南迁，前往更温暖的地区，从美国南部一直到墨西哥。
+> Among the travelers worth spotlighting is the wood duck, pictured here. This North American species has made quite a comeback after once facing steep population declines due to hunting and habitat loss. Thanks to conservation efforts and nest box programs, they are now a regular sight in wooded swamps, marshes, and lakes. While some wood ducks stay put year-round in the southern United States, northern hens migrate south when the chill sets in, heading for milder regions stretching from the southern states to Mexico.
 > 
 > 
 
 </details>
 
-| ![世界候鸟日](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界候鸟日](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |
 
 ### 20251010
 
-> 莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济 (© David Wall/SuperStock)
+> Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)
 
 <details>
 <summary>Description</summary>
 
-> 有些日子只标志着一个里程碑，而斐济的10月10日却见证了两个。1874年的这一天，斐济群岛正式成为英国殖民地。近一个世纪后的1970年，同一天，斐济升起了自己的国旗，宣布独立。斐济日是一个独特的全国性节日——既是反思的时刻，也是庆祝的日子。庆典从庄重的仪式开始，国旗冉冉升起，领导人发表演讲。学校和社区团体常常会举行历史重现或表演活动。街道上挤满了游行队伍，村庄里上演着传统舞蹈“梅克”，橄榄球场上热火朝天。家家户户则准备传统菜肴，比如将肉和根茎类作物埋在地下烤制的“洛沃”，以及用柑橘汁腌制的鱼“科科达”。
+> Some dates mark a single milestone—Fiji's October 10 marks two. On that day in 1874, the islands officially became a British colony. Almost a century later, in 1970, the same date saw Fiji raise its own flag and declare independence. Fiji Day is a unique national holiday—part reflection, part celebration. The day begins with formal ceremonies, where the Fijian flag is hoisted and leaders deliver speeches. Schools and community groups often stage reenactments and performances. Streets fill with parades, villages host cultural dances like the meke, and rugby pitches come alive with matches. Families prepare traditional dishes like lovo, where meat and root crops are cooked underground, and kokoda, a citrus-marinated fish dish.
 > 
-> 如今，自由的精神从繁华的城镇延伸到像莫努里基岛这样的偏远瑰宝，如今日图片所示。这座岛因《荒岛余生》的拍摄而名声大噪，虽无人居住，却绝非死寂。环绕小岛的珊瑚礁宛如天然的堡垒，既能抵御风暴侵袭，又庇护着无数鱼类。斐济的珊瑚礁恰如其分地成为了一个隐喻：坚固、多样且与国家的福祉紧密相连。
+> Today, the spirit of freedom stretches from bustling towns to remote gems like the island of Monuriki, pictured here. Known worldwide as the filming site of 'Cast Away,' the island is uninhabited—but far from lifeless. Its surrounding coral reef acts as a natural fortress, protecting the island from storms while sheltering countless species of fish. The reefs of Fiji are a fitting metaphor: strong, diverse, and deeply connected to the well-being of the nation.
 > 
 > 
 
 </details>
 
-| ![莫努里基岛，玛玛努卡群岛，斐济](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![莫努里基岛，玛玛努卡群岛，斐济](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Visiting the Mamanuca Islands for Fiji Day](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Visiting the Mamanuca Islands for Fiji Day](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_1080x1920.jpg) |ld Octopus Day](https://cn.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_1080x1920.jpg) |lark_EN-US8503376225_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1080x1920.jpg) |-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_1080x1920.jpg) |080x1920.jpg) |-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
