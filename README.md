@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251017
+
+> Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Nestled within Michigan's Rock River Canyon Wilderness, Rock River Falls emerges amid a landscape shaped by glaciers, dense woods, and layers of history. In the Upper Peninsula, humans have left their traces for millennia: Indigenous Algonquian-speaking peoples were followed by French and British explorers, and waves of Finnish, Swedish, and French-Canadian immigrants settled there during the 19th-century mining and logging booms. Today, this sparsely populated region hosts barely 3% of Michigan's residents, cradling its forests and waterfalls in near-natural serenity.
+> 
+> Reaching the falls requires a moderately challenging hike along winding paths lined with towering pines and maples, their shade cooling the ferns and wildflowers below. Red squirrels dart, white-tailed deer move silently, and the calls of loons and pileated woodpeckers echo through the Hiawatha National Forest. At the trail's end, the 18-foot waterfall spills into a clear pool, transformed by seasonal shifts: summer light flickers across the water, autumn sets the canopy ablaze, and winter drapes ice over rocks in glistening formations. At Rock River Falls, each visit offers a fresh sensory journey through the wild soul of northern Michigan.
+> 
+> 
+
+</details>
+
+| ![Rock River Falls, Upper Peninsula, Michigan](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rock River Falls, Upper Peninsula, Michigan](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1080x1920.jpg) |
+
 ### 20251016
 
 > Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |
-
-### 20251010
-
-> Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)
-
-<details>
-<summary>Description</summary>
-
-> Some dates mark a single milestone—Fiji's October 10 marks two. On that day in 1874, the islands officially became a British colony. Almost a century later, in 1970, the same date saw Fiji raise its own flag and declare independence. Fiji Day is a unique national holiday—part reflection, part celebration. The day begins with formal ceremonies, where the Fijian flag is hoisted and leaders deliver speeches. Schools and community groups often stage reenactments and performances. Streets fill with parades, villages host cultural dances like the meke, and rugby pitches come alive with matches. Families prepare traditional dishes like lovo, where meat and root crops are cooked underground, and kokoda, a citrus-marinated fish dish.
-> 
-> Today, the spirit of freedom stretches from bustling towns to remote gems like the island of Monuriki, pictured here. Known worldwide as the filming site of 'Cast Away,' the island is uninhabited—but far from lifeless. Its surrounding coral reef acts as a natural fortress, protecting the island from storms while sheltering countless species of fish. The reefs of Fiji are a fitting metaphor: strong, diverse, and deeply connected to the well-being of the nation.
-> 
-> 
-
-</details>
-
-| ![Visiting the Mamanuca Islands for Fiji Day](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Visiting the Mamanuca Islands for Fiji Day](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_1080x1920.jpg) |080x1920.jpg) |-US8966537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
