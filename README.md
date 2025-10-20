@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251018
+
+> Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Each year, International Archaeology Day—observed on the third Saturday of October—invites us to literally look beneath the surface. Established in 2011 by the Archaeological Institute of America (AIA), it's celebrated worldwide through events, tours, and hands-on excavations.
+> 
+> Each year, International Archaeology Day—observed on the third Saturday of October—invites us to literally look beneath the surface. Established in 2011 by the Archaeological Institute of America, it's celebrated worldwide through events, tours, and hands-on excavations.
+> 
+> Was it a ceremonial site, a cosmic marker, a symbol of community? Its original purpose remains elusive, and for archaeology, the questions can be as valuable as the answers. Where written records fail, the land tells its story. Silbury Hill preserves these tales, reminding us why studying our past matters: it rewrites what we thought we knew, amplifies silenced voices, and shows us that history is never finished.
+
+</details>
+
+| ![Silbury Hill for International Archaeology Day](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Silbury Hill for International Archaeology Day](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_1080x1920.jpg) |
+
 ### 20251017
 
 > Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Village of Saranac Lake, New York](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Saranac Lake, New York](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |
-
-### 20251011
-
-> Wood duck hen (© ps50ace/iStock/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Birds don't bother with passports, visas, or luggage—they just spread their wings and go. Twice a year, billions of migratory birds crisscross the globe, flying thousands of miles between breeding and wintering grounds. That epic commute is exactly what World Migratory Bird Day highlights. From the Arctic tern, which logs about 44,000 miles a year, to the tiny ruby-throated hummingbird crossing the Gulf of Mexico in a single flight, these seasonal fliers show what endurance really looks like. Observed on the second Saturday in May and October, the day also draws attention to the challenges migratory birds face: habitat loss, climate change, and light pollution can all disrupt their routes.
-> 
-> Among the travelers worth spotlighting is the wood duck, pictured here. This North American species has made quite a comeback after once facing steep population declines due to hunting and habitat loss. Thanks to conservation efforts and nest box programs, they are now a regular sight in wooded swamps, marshes, and lakes. While some wood ducks stay put year-round in the southern United States, northern hens migrate south when the chill sets in, heading for milder regions stretching from the southern states to Mexico.
-> 
-> 
-
-</details>
-
-| ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
