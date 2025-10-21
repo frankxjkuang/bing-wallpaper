@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251019
+
+> Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In Minnesota, autumn carries more than crimson leaves—it brings the crisp promise of apple season. From mid-August through late October, orchards across the state open their rows of Honeycrisp, Haralson, and dozens of other cultivars, each bred for flavor, resilience, and charm. Today's image captures that moment: branches heavy with ripe fruit, ready for harvest.
+> 
+> This land takes its apples seriously. The state apple, the Honeycrisp, now a world favorite, was born in the orchards of the University of Minnesota, where scientists have been cultivating apples for over a century. Throughout the fall, families flock to orchards not only for the fruit but also for hayrides, cider pressing, and the yearly ritual of choosing the perfect apple right from the tree.
+> 
+> Behind the simple joy lies rigorous cultivation science: here, apple breeding has shaped varieties tough enough for harsh winters and sweet enough to rival any grown elsewhere. There are more than 7,500 cultivars worldwide. Among them, Minnesota's contribution is distinctive—proof that innovation and tradition can flourish side by side, season after season.
+
+</details>
+
+| ![Apples ready for harvest in Minnesota](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Apples ready for harvest in Minnesota](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_1080x1920.jpg) |
+
 ### 20251018
 
 > Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Cedar Mesa, Utah, for Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cedar Mesa, Utah, for Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1080x1920.jpg) |
-
-### 20251012
-
-> Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Some places are just stops on the map, but Saranac Lake in New York's Adirondack Mountains is a destination that keeps people hooked year-round. Despite its name, this village isn't directly on the Saranac Lakes themselves but rather on Lake Flower, a wide section of the Saranac River. For centuries, the area—nicknamed 'The Capital of the Adirondacks'—was used by Indigenous peoples for hunting and travel. By the late 19th century, it gained fame as a health retreat, where Dr. Edward Livingston Trudeau pioneered fresh-air treatment for tuberculosis. The cure cottages from that era still stand today.
-> 
-> Today, Saranac Lake has shifted from curing patients to curing boredom. Visitors paddle the waterways, hike the High Peaks, and enjoy winter activities like skiing and ice fishing. The village also boasts a lively arts scene, with galleries, music, and community festivals making culture as central as the outdoors. Local shops and restaurants add flavor, serving everything from trout to craft beer. The annual Winter Carnival is a highlight, complete with an ice palace that looks like something out of a frosty fairy tale, proving this village knows how to make a cool impression—literally.
-> 
-> 
-
-</details>
-
-| ![Village of Saranac Lake, New York](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Saranac Lake, New York](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
