@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251020
+
+> A Hoffmann's two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> How good would it feel if you could just hang out and do absolutely nothing all day? That's exactly what sloths do, and today, we celebrate them. International Sloth Day honors these unhurried creatures and reminds us that life doesn't always need to be rushed. Sloths are tree-dwelling mammals native to Central and South America. Their deliberate movements conserve energy, avoid predators, and even allow algae to grow on their fur, creating green camouflage among the canopy. Hoffmann's two-toed sloth, pictured here, is a prime example of the slow-paced lifestyle typical of all sloths. It spends most of its time in the trees, occasionally descending to the ground to move to a new one.
+> 
+> Beyond their charm, sloths play a crucial role in tropical forests. Their presence signals a healthy ecosystem, and protecting their habitats benefits various other species, including frogs and birds. Yet these gentle creatures face growing threats due to rainforest degradation. Organizations like the Sloth Conservation Foundation are working tirelessly to develop initiatives to preserve their habitats, ensuring that future generations can continue to marvel at these slow-moving icons of nature.
+> 
+> 
+
+</details>
+
+| ![International Sloth Day](https://cn.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Sloth Day](https://cn.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_1080x1920.jpg) |
+
 ### 20251019
 
 > Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Village of Oia in Santorini, Greece](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Oia in Santorini, Greece](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1080x1920.jpg) |
-
-### 20251013
-
-> House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Canyons and mesas across the US hold more than striking scenery—they carry centuries of Indigenous history. Indigenous Peoples' Day, celebrated nationally on the second Monday of October, honors that history. The holiday began gaining ground in 1992, when Berkeley, California, became the first city to replace Columbus Day with a celebration of Native cultures. It recognizes Native nations as the earliest protectors of the land and acknowledges their ongoing cultural contributions.
-> 
-> In Utah, nations such as the Navajo, Ute, Paiute, and Hopi maintain deep cultural and spiritual connections to the mesas, rivers, and desert lands. For these communities, the land itself is part of a living heritage—one that reaches back to the Ancestral Puebloans, who lived in what is now the Four Corners region. Renowned for farming, pottery, and architecture, they built multi-room stone dwellings that still stand today. One such site is the House on Fire Ruin in Mule Canyon, pictured here. The rock ceiling above a small cliff dwelling appears ablaze, an illusion created when sunlight hits mineral-stained sandstone. What appears mesmerizing is geology paired with human craftsmanship—an architectural remnant in harmony with its setting.
-> 
-> 
-
-</details>
-
-| ![Cedar Mesa, Utah, for Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cedar Mesa, Utah, for Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
