@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251021
+
+> A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Diwali is a vibrant Hindu festival celebrating hope, prosperity, and the triumph of good over evil. It commemorates Prince Rama's victorious return to the kingdom of Ayodhya after defeating the demon king Ravana. The festival also honors the goddess Lakshmi, who is believed to bring wealth and well-being into homes, while some communities worship the goddess Kali. During Diwali, families clean and decorate their homes, exchange sweets, and gather for prayers, creating an atmosphere of joy. Central to the celebration are diyas, small oil lamps whose glowing flames symbolize light overcoming darkness and the promise of new beginnings.
+> 
+> Experiencing Diwali at the Golden Temple in Amritsar, India, is a spectacular sight to behold. The temple glows with thousands of diyas and fairy lights as devotees celebrate the Sikh festival of Bandi Chhor Divas, which often coincides with Diwali.
+> 
+> 
+
+</details>
+
+| ![Happy Diwali!](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Diwali!](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_1080x1920.jpg) |
+
 ### 20251020
 
 > A Hoffmann's two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)
@@ -112,24 +131,7 @@
 
 | ![National Mushroom Day](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Mushroom Day](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1080x1920.jpg) |
-
-### 20251014
-
-> Village of Oia, Santorini, Greece (© f9photos/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Ever wondered what it's like to live on a movie set? Oia is about as close as it gets, part of Greece's Santorini archipelago. This village has appeared in films like 'The Sisterhood of the Traveling Pants' and 'Tomb Raider,' thanks to its Cycladic houses—cube-shaped homes with flat roofs—and cliffside views that feel almost unreal. Its unique architecture has roots in the late 19th century. Sailors and merchants carved houses right into the volcanic cliffs—cool in summer and warm in winter. The white-and-blue theme is also more than just for show: houses were painted with lime wash so rainwater would run off and be collected. Today, visitors wander its cobbled lanes, explore the Naval Maritime Museum, or climb to the ruins of Agios Nikolaos Castle for unforgettable sunsets.
-> 
-> Nicknamed the 'Eagle's Nest,' Oia overlooks the volcanic islets of Palia and Nea Kameni, as well as Therasia, which was physically connected to Santorini before the Minoan eruption. And Santorini itself? Think of it as a crown of rock around the sea, a half-sunken caldera shaped by the eruption of 1600 BCE, one of the largest volcanic eruptions in human history.
-> 
-> 
-
-</details>
-
-| ![Village of Oia in Santorini, Greece](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Village of Oia in Santorini, Greece](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1080x1920.jpg) |ni_EN-US0585833457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
