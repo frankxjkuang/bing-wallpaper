@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251022
+
+> Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> In Bulgaria, on the western slopes of the Balkan Mountains, the Belogradchik Rocks stand like a natural gallery where every formation tells a tale. Shaped over millions of years by erosion, these sandstone and limestone pillars twist and tower into outlines that locals swear resemble people, animals, and even entire scenes. That's why names like 'The Horseman,' 'The Schoolgirl,' and 'The Monks' have stuck—it's a landscape where spotting shapes feels a bit like playing nature's version of charades.
+> 
+> The rocks, which are on UNESCO's Tentative List, stretch for more than 18 miles around the town of Belogradchik, their colors shifting from deep red to gold depending on the light. History found a use for them, too. The Belogradchik Fortress, first built by the Romans and later reinforced by Ottomans, leans on the rocks as natural defense. Why build walls when the mountain has already done the heavy lifting? Visitors today come to hike, climb, and photograph the unusual shapes, but they often leave with something extra: stories. The Belogradchik Rocks aren't just formations—they're legends frozen in stone.
+> 
+> 
+
+</details>
+
+| ![The Belogradchik Rocks in Bulgaria](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Belogradchik Rocks in Bulgaria](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1080x1920.jpg) |
+
 ### 20251021
 
 > A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![A Eurasian lynx in Siberia](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A Eurasian lynx in Siberia](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_1080x1920.jpg) |
-
-### 20251015
-
-> Amethyst laccaria mushrooms, Seabeck, Washington (© Danita Delimont/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Did you know there's a day just for mushrooms? Every October 15, National Mushroom Day invites us to discover their fascinating world. Take the amethyst laccaria, pictured here. Also known as the amethyst deceiver, its bright purple color is dazzling when young, but it fades with age and weathering, making it tricky to identify. Despite its delicate, ever-changing appearance, this jewel-toned fungus is edible and plays a vital role in the ecosystem.
-> 
-> Far more than pizza toppings or sautéed sides, these organisms are ecological powerhouses, essential for healthy forests. They break down dead matter, recycle nutrients, and support tree growth through underground networks called mycorrhizae. Some also help store carbon in the soil, playing a role in climate regulation. National Mushroom Day encourages curiosity. So, try a new mushroom recipe today, read about how they support our planet, or enjoy a foraging adventure. Just remember: Always harvest responsibly and never consume wild mushrooms without proper identification, as some can be poisonous.
-> 
-> 
-
-</details>
-
-| ![National Mushroom Day](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Mushroom Day](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1080x1920.jpg) |ni_EN-US0585833457_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_1080x1920.jpg) |315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
