@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251023
+
+> Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)
+
+<details>
+<summary>Description</summary>
+
+> Ever tried spotting a snow leopard in the wild? It's called the 'ghost of the mountains' for a reason—you're more likely to see its pawprints than the big cat itself. But every October 23, the species steps into the spotlight on International Day of the Snow Leopard, a day set aside to protect this elusive predator and its rugged home.
+> 
+> Snow leopards roam high-altitude ranges across 12 Asian countries, from Afghanistan to China. Their thick coats and long tails are built for survival in freezing, rocky terrain. Yet even these stealthy cats can't hide from threats like poaching, shrinking habitats, and climate change. With fewer than 7,000 left in the wild, conservation is a necessity. The image of a snow leopard mother sheltering her cubs in the rocky cliffs of the Cold Desert Biosphere Reserve in India illustrates what's at stake. That's why governments, conservation groups, and local communities team up to safeguard both the animals and their ecosystems. After all, saving snow leopards also protects water sources and biodiversity for millions of people living downstream: they act as keystone species in their alpine environment, maintaining the ecological balance through predation on herbivores. That prevents overgrazing and protects vegetation that helps retain snowmelt and maintain watershed health.
+> 
+> 
+
+</details>
+
+| ![International Day of the Snow Leopard](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the Snow Leopard](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1080x1920.jpg) |
+
 ### 20251022
 
 > Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![Rock River Falls, Upper Peninsula, Michigan](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rock River Falls, Upper Peninsula, Michigan](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1080x1920.jpg) |
-
-### 20251016
-
-> Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Think of a cat that can vanish into the forest without a sound—that's the Eurasian lynx. With its tufted ears and a piercing gaze, this feline is the largest of the four lynx species. Stretching up to 42 inches in length and standing as tall as 30 inches at the shoulder, the Eurasian lynx is built for power and precision. Its padded paws aren't just for sneaking; they act like snowshoes, spreading its weight so it can chase down prey in deep winter drifts. Mostly a nocturnal hunter, it spends its days tucked away in thickets or rocky dens, venturing out under the cover of darkness to stalk deer, hares, and squirrels.
-> 
-> The lynx lives a solitary life. Males and females carve out their own territories, marking them with scratches and scent—like secret notes left in the forest. Their elusive nature did not protect them from humans: during the 1970s and '80s, thousands of lynx pelts were exported from Russia and China, pushing populations toward dangerous lows. Though fur trade restrictions have eased the pressure, poaching, habitat loss, and shrinking prey numbers still pose threats today.
-> 
-> 
-
-</details>
-
-| ![A Eurasian lynx in Siberia](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A Eurasian lynx in Siberia](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_1080x1920.jpg) |315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1080x1920.jpg) |.MuleCanyon_EN-US0527899523_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
