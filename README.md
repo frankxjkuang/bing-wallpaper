@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251024
+
+> Night view of the RMS Queen Mary, Long Beach, California (© Kit Leong/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> She was never meant to fade away. When the RMS Queen Mary sailed in 1936, she stole the spotlight across the Atlantic—an Art Deco liner that broke speed records and carried celebrities, royalty, and dignitaries. War transformed her from a floating palace into the 'Grey Ghost,' stripped of luxury and loaded with Allied troops. In 1967, after 30 years at sea, she retired to Long Beach, where her decks now serve as hotel corridors, guided exhibits, and a living monument to maritime history.
+> 
+> But her legend did not dock with her anchors. Over the years, guests and crew have spoken of echoes in empty corridors, footsteps reverberating on metal floors, and the laughter of a child near the deserted pool. Ghost tours highlight these eerie stories, though historians note that deaths aboard were due to natural causes, with no murders ever recorded. Today, the Queen Mary stands as both a heritage landmark and a stage for folklore. So, is she haunted? There are no records confirming it, yet the whispers keep her stories very much alive.
+> 
+> 
+
+</details>
+
+| ![Night view of the RMS Queen Mary, Long Beach, California](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Night view of the RMS Queen Mary, Long Beach, California](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_1080x1920.jpg) |
+
 ### 20251023
 
 > Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)
@@ -112,26 +131,7 @@
 
 | ![Silbury Hill for International Archaeology Day](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Silbury Hill for International Archaeology Day](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_1080x1920.jpg) |
-
-### 20251017
-
-> Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Nestled within Michigan's Rock River Canyon Wilderness, Rock River Falls emerges amid a landscape shaped by glaciers, dense woods, and layers of history. In the Upper Peninsula, humans have left their traces for millennia: Indigenous Algonquian-speaking peoples were followed by French and British explorers, and waves of Finnish, Swedish, and French-Canadian immigrants settled there during the 19th-century mining and logging booms. Today, this sparsely populated region hosts barely 3% of Michigan's residents, cradling its forests and waterfalls in near-natural serenity.
-> 
-> Reaching the falls requires a moderately challenging hike along winding paths lined with towering pines and maples, their shade cooling the ferns and wildflowers below. Red squirrels dart, white-tailed deer move silently, and the calls of loons and pileated woodpeckers echo through the Hiawatha National Forest. At the trail's end, the 18-foot waterfall spills into a clear pool, transformed by seasonal shifts: summer light flickers across the water, autumn sets the canopy ablaze, and winter drapes ice over rocks in glistening formations. At Rock River Falls, each visit offers a fresh sensory journey through the wild soul of northern Michigan.
-> 
-> 
-
-</details>
-
-| ![Rock River Falls, Upper Peninsula, Michigan](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rock River Falls, Upper Peninsula, Michigan](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1080x1920.jpg) |.MuleCanyon_EN-US0527899523_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_1080x1920.jpg) |cape 4K](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1080x1920.jpg) |.MuleCanyon_EN-US0527899523_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
