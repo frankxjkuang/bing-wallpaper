@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251025
+
+> Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Today, we step into the Martimoaapa Mire Reserve in Finland, where wide, cold-climate wetlands and peatlands stretch across a landscape shaped over thousands of years. This reserve is more than just mires—it carries layers of history. During Finland's Prohibition era (1919–1932), smugglers hauled sacks of liquor from Sweden across these bogs, following a 'spirits' route that passed through Martimoaapa. Parts of that path can still be traced today. Imagine trekking with a heavy pack over soggy ground—would you have made it?
+> 
+> This is just the beginning. Here, archaeologists have discovered brackish pits once used to store meat, and a mysterious stone circle about 33 feet wide—like something out of a northern myth. Its purpose? Still unknown. More recent history lives on in the Saunasaari sauna, once part of a logging cabin built for men who worked these boreal forests. It gave them warmth, rest, and a place to dry off.
+> 
+> Wildlife, ever-present, completes the picture. Nearly 100 bird species nest here, from swans and cranes to owls and kestrels. Trails ranging from 1.9 to 8 miles, dotted with huts and campfire sites, invite you to explore—on foot or on skis in winter.
+
+</details>
+
+| ![Martimoaapa Mire Reserve, Finland](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martimoaapa Mire Reserve, Finland](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |
+
 ### 20251024
 
 > Night view of the RMS Queen Mary, Long Beach, California (© Kit Leong/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Apples ready for harvest in Minnesota](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Apples ready for harvest in Minnesota](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_1080x1920.jpg) |
-
-### 20251018
-
-> Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Each year, International Archaeology Day—observed on the third Saturday of October—invites us to literally look beneath the surface. Established in 2011 by the Archaeological Institute of America (AIA), it's celebrated worldwide through events, tours, and hands-on excavations.
-> 
-> Each year, International Archaeology Day—observed on the third Saturday of October—invites us to literally look beneath the surface. Established in 2011 by the Archaeological Institute of America, it's celebrated worldwide through events, tours, and hands-on excavations.
-> 
-> Was it a ceremonial site, a cosmic marker, a symbol of community? Its original purpose remains elusive, and for archaeology, the questions can be as valuable as the answers. Where written records fail, the land tells its story. Silbury Hill preserves these tales, reminding us why studying our past matters: it rewrites what we thought we knew, amplifies silenced voices, and shows us that history is never finished.
-
-</details>
-
-| ![Silbury Hill for International Archaeology Day](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Silbury Hill for International Archaeology Day](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_1080x1920.jpg) |cape 4K](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1080x1920.jpg) |.MuleCanyon_EN-US0527899523_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_1080x1920.jpg) |.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
