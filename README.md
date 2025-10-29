@@ -2,138 +2,136 @@
 
 ### 20251027
 
-> 被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国 (© Feng Wei Photography/Getty images)
+> Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 金塔沙漠胡杨林风景区位于甘肃省酒泉市金塔县西部巢湖林场，占地八万余亩，拥有西北地区最大的人工胡杨林。这些古老、耐寒耐旱的胡杨树，是第三纪遗留下来的，创造了“三千年古树”的生态奇观。金波湖水与胡杨林相映成趣，沙枣、柽柳等植物构成了多样的生态系统。
+> Perched high in the mountains of Ethiopia, Eritrea, and Somalia, the thick-billed raven holds the title of the world's largest raven. At nearly 28 inches in length and weighing more than 3 pounds, it is about a quarter heavier than the common raven. Its enormous, arched bill—pale at the base and close to 3.5 inches long—is the largest among perching birds. These ravens live mostly between 5,000 and 11,200 feet above sea level, found across farmland, rocky cliffs, and even rooftops in mountain towns.
 > 
-> 
+> Thick-billed ravens are versatile feeders, taking carrion, insects, beetle larvae, seeds, and crops like wheat, along with scraps from people. Observers have seen them pulling grubs from dung heaps and even forcing Verreaux's eagle-owls from their nests. Often seen in pairs or small groups, they build large stick nests on cliffs or tall trees, laying three to five bluish-green eggs. Their calls range from deep croaks to wheezy notes, and rare instances of mimicry have been recorded. Their plumage gleams purple in sunlight, a striking figure of the African highlands. Classified as 'least-concern' by the International Union for Conservation of Nature, the thick-billed raven continues to thrive.
 > 
 > 
 
 </details>
 
-| ![中国甘肃金塔胡杨林](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![中国甘肃金塔胡杨林](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Thick-billed raven, Simien Mountains, Ethiopia](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Thick-billed raven, Simien Mountains, Ethiopia](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg) |
 
 ### 20251026
 
-> 北卡罗来纳州的南瓜农场, 美国 (© Matthew H Irvin/Getty Images)
+> Pumpkin farm in North Carolina (© Matthew H Irvin/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 没有什么比一片等待采摘的南瓜田更能代表秋天了。这些圆滚滚的南瓜出现在南瓜派、门廊装饰、拿铁和游行中。美国一些地方更是把对南瓜的喜爱推向极致——伊利诺伊州莫顿镇自称为“世界南瓜之都”，因为其产量高且与罐装南瓜产业联系紧密。新罕布什尔州则紧随其后，将南瓜定为州水果。
+> Nothing says fall like spotting a field full of pumpkins waiting to be picked. These gourds have rolled their way into pies, porches, lattes, and parades, but today they get the spotlight: It's National Pumpkin Day. Some places go all out to show their affection—Morton, Illinois, calls itself the 'Pumpkin Capital of the World,' thanks to its high production and ties to canned pumpkin. New Hampshire follows closely, with pumpkin as its official state fruit.
 > 
-> 你是否好奇过，为什么要在南瓜上雕刻？这一传统源自爱尔兰的古老传说。故事里有个叫“吝啬杰克”的人，他多次戏弄魔鬼，结果既不能进天堂，也无法下地狱，只能提着一个挖空的萝卜和一块燃烧的煤炭，在人间游荡照亮前路。后来移民将这个故事带到美国，而南瓜因体积更大、更易雕刻，逐渐取代萝卜，成为南瓜灯的首选。康涅狄格田野南瓜因其体型硕大、表皮光滑和鲜艳的橙色，成为最常见的雕刻品种。南瓜的颜色来自 β-胡萝卜素，但并非都是橙色的，它们也可能长成白色、绿色甚至蓝色。南瓜的妙用不止于此：它们曾作为稻草人守护田野，被用于“抛南瓜”比赛，甚至被掏空当作小船参加竞赛。那么，今年你的雕刻工具准备好了吗？
+> Ever wondered why we carve this squash? The tradition comes from an old Irish story about a man called Stingy Jack. According to legend, Jack tricked the Devil multiple times and was denied entry to both heaven and hell, leaving him to wander the Earth with only a carved-out turnip and a glowing coal to light his way. Immigrants brought the tale to America, where pumpkins—larger and easier to carve than turnips—became the canvas for glowing jack-o'-lanterns. The Connecticut field pumpkin is the go-to variety thanks to its size, smooth skin, and bright orange hue. The color of pumpkins comes from beta-carotene, but not all are orange—some grow white, green, or even blue. Their utility doesn't end there—pumpkins have stood guard as scarecrows, been launched in pumpkin-chucking contests, and even hollowed out for boat races. So, have you sharpened your carving tools?
 > 
 > 
 
 </details>
 
-| ![北卡罗来纳州的南瓜农场](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![北卡罗来纳州的南瓜农场](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![National Pumpkin Day](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Pumpkin Day](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |
 
 ### 20251025
 
-> 马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰 (© romikatarina/Shutterstock)
+> Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 芬兰的沼泽大多是由泥炭地组成，它们源自大约 12,000 年前上一个冰河时期结束后，沉积物与苔藓不断堆积、分解而成。
+> Today, we step into the Martimoaapa Mire Reserve in Finland, where wide, cold-climate wetlands and peatlands stretch across a landscape shaped over thousands of years. This reserve is more than just mires—it carries layers of history. During Finland's Prohibition era (1919–1932), smugglers hauled sacks of liquor from Sweden across these bogs, following a 'spirits' route that passed through Martimoaapa. Parts of that path can still be traced today. Imagine trekking with a heavy pack over soggy ground—would you have made it?
 > 
-> 这仅仅是个开始。考古学家在这里发现了曾用来储存肉类的半咸水坑，以及一个约33英尺宽的神秘石圈——仿佛源自北方神话。它的用途？至今仍是谜。更近代的历史则留存在萨乌纳萨里桑拿屋中，它曾是伐木工小屋的一部分，为在这片北方森林中劳作的男人们提供温暖、休息，以及烘干身体的地方。
+> This is just the beginning. Here, archaeologists have discovered brackish pits once used to store meat, and a mysterious stone circle about 33 feet wide—like something out of a northern myth. Its purpose? Still unknown. More recent history lives on in the Saunasaari sauna, once part of a logging cabin built for men who worked these boreal forests. It gave them warmth, rest, and a place to dry off.
 > 
-> 在这里野生动物随处可见，为这片土地增添了生机。近百种鸟类在此筑巢，从天鹅、鹤到猫头鹰和红隼。保护区内设有多条长短不一的步道，长度从 1.9 英里到 8 英里不等，沿途散布着小屋与篝火点，邀请人们夏日徒步探索，或在冬季滑雪穿行。
+> Wildlife, ever-present, completes the picture. Nearly 100 bird species nest here, from swans and cranes to owls and kestrels. Trails ranging from 1.9 to 8 miles, dotted with huts and campfire sites, invite you to explore—on foot or on skis in winter.
 
 </details>
 
-| ![马蒂莫阿帕沼泽保护区，芬兰](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![马蒂莫阿帕沼泽保护区，芬兰](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Martimoaapa Mire Reserve, Finland](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martimoaapa Mire Reserve, Finland](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |
 
 ### 20251024
 
-> 玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国 (© Kit Leong/Shutterstock)
+> Night view of the RMS Queen Mary, Long Beach, California (© Kit Leong/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 她注定不会被遗忘。1936年，“玛丽女王号” 首次横渡大西洋时，便夺尽风采。这艘装饰艺术风格的巨轮打破了航速纪录，承载过无数名流、皇室成员与政要。二战期间，她的身份从“海上宫殿”骤然转变为“灰色幽灵”，奢华尽数褪去，取而代之的是装载盟军部队的使命。1967年，航行30年后，她退役停泊在加州长滩。如今，她的甲板化身为酒店走廊、导览展区，成为一座活生生的海事历史纪念碑。
+> She was never meant to fade away. When the RMS Queen Mary sailed in 1936, she stole the spotlight across the Atlantic—an Art Deco liner that broke speed records and carried celebrities, royalty, and dignitaries. War transformed her from a floating palace into the 'Grey Ghost,' stripped of luxury and loaded with Allied troops. In 1967, after 30 years at sea, she retired to Long Beach, where her decks now serve as hotel corridors, guided exhibits, and a living monument to maritime history.
 > 
-> 但她的传说并未随锚链一同沉寂。多年来，游客与船员都声称曾在空荡的走廊里听到回声，在金属甲板上听见脚步回荡，甚至在荒废的泳池边传来孩童的笑声。如今的“鬼魂之旅”常常以这些诡异故事为卖点，但历史学家指出，船上所有死亡事件均因自然原因，从未有过谋杀记录。今天的“玛丽女王号”既是历史的地标，也是传说的舞台。那么，她真的闹鬼吗？没有任何档案能够证实，但那些低语般的传闻，依旧让她的故事历久弥新。
+> But her legend did not dock with her anchors. Over the years, guests and crew have spoken of echoes in empty corridors, footsteps reverberating on metal floors, and the laughter of a child near the deserted pool. Ghost tours highlight these eerie stories, though historians note that deaths aboard were due to natural causes, with no murders ever recorded. Today, the Queen Mary stands as both a heritage landmark and a stage for folklore. So, is she haunted? There are no records confirming it, yet the whispers keep her stories very much alive.
 > 
 > 
 
 </details>
 
-| ![玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Night view of the RMS Queen Mary, Long Beach, California](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Night view of the RMS Queen Mary, Long Beach, California](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_1080x1920.jpg) |
 
 ### 20251023
 
-> 雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度 (© Oriol Alamany/naturepl.com)
+> Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)
 
 <details>
 <summary>Description</summary>
 
-> 你可曾尝试在野外寻找雪豹的踪迹？它被称为"山中幽灵"绝非空穴来风——你更可能看到它的爪印，而不是它本尊的身影。但每年10月23日，这位神秘的高原猎手会走到聚光灯下，因为这一天是专为它设立的“国际雪豹日”，旨在呼吁保护这种难得一见的掠食者及其崎岖的栖息地。
+> Ever tried spotting a snow leopard in the wild? It's called the 'ghost of the mountains' for a reason—you're more likely to see its pawprints than the big cat itself. But every October 23, the species steps into the spotlight on International Day of the Snow Leopard, a day set aside to protect this elusive predator and its rugged home.
 > 
-> 雪豹栖息在亚洲12个国家的高海拔山脉之间，从阿富汗到中国，足迹遍布广袤的高原地带。它们拥有厚实的皮毛和修长的尾巴，专为寒冷、崎岖的山地环境而生。然而，即便是如此隐秘的猎手，也无法躲避偷猎、栖息地缩减以及气候变化等威胁。如今，野外雪豹数量已不足7000只，保护工作刻不容缓。在印度寒冷沙漠生物圈保护区的岩壁间，一张雪豹母亲庇护幼崽的照片，生动展现了这一物种所面临的生存挑战。正因如此，各国政府、自然保护组织与当地社区携手合作，共同守护雪豹及其赖以生存的生态系统。
+> Snow leopards roam high-altitude ranges across 12 Asian countries, from Afghanistan to China. Their thick coats and long tails are built for survival in freezing, rocky terrain. Yet even these stealthy cats can't hide from threats like poaching, shrinking habitats, and climate change. With fewer than 7,000 left in the wild, conservation is a necessity. The image of a snow leopard mother sheltering her cubs in the rocky cliffs of the Cold Desert Biosphere Reserve in India illustrates what's at stake. That's why governments, conservation groups, and local communities team up to safeguard both the animals and their ecosystems. After all, saving snow leopards also protects water sources and biodiversity for millions of people living downstream: they act as keystone species in their alpine environment, maintaining the ecological balance through predation on herbivores. That prevents overgrazing and protects vegetation that helps retain snowmelt and maintain watershed health.
 > 
-> 毕竟，保护雪豹也意味着守护数百万下游居民的水源和生物多样性。作为高山生态系统中的关键物种，雪豹通过捕食食草动物维持生态平衡，防止过度啃食植被。而这些植被不仅能固定土壤，还能有效保留雪融水，维持流域健康。因此，保护雪豹，不只是拯救一种濒危动物，更是守护整个高原生态系统的命脉。
+> 
 
 </details>
 
-| ![国际雪豹日](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际雪豹日](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Day of the Snow Leopard](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the Snow Leopard](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1080x1920.jpg) |
 
 ### 20251022
 
-> 贝洛格拉齐克石林，保加利亚 (© EvaL Miko/Shutterstock)
+> Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 在保加利亚巴尔干山脉西麓，贝洛格拉奇克石林如同一座天然画廊，每一块岩石都诉说着独特的故事。这些砂岩与石灰岩柱经过数百万年的风化与侵蚀，形成了千姿百态的奇特造型，当地人坚信其中有些轮廓酷似人物、动物，甚至完整的场景。因此，这些岩石也被赋予了富有想象力的名字，如"骑手岩"、"女学生岩"、"僧侣岩"等。在这片土地上，辨认岩石形状就像在玩一场大自然版的猜谜游戏，既有趣又充满惊喜。
+> In Bulgaria, on the western slopes of the Balkan Mountains, the Belogradchik Rocks stand like a natural gallery where every formation tells a tale. Shaped over millions of years by erosion, these sandstone and limestone pillars twist and tower into outlines that locals swear resemble people, animals, and even entire scenes. That's why names like 'The Horseman,' 'The Schoolgirl,' and 'The Monks' have stuck—it's a landscape where spotting shapes feels a bit like playing nature's version of charades.
 > 
-> 这些岩石如今已被列入联合国教科文组织的世界遗产预备名单，绵延超过18英里，环绕着贝洛格拉奇克小镇。它们的色彩会随着光线变化，从深红到金黄，宛如一幅动态的自然画卷。历史也曾赋予它们实际用途——贝洛格拉奇克堡垒就是最好的例证。这座堡垒最早由罗马人修建，后来又被奥斯曼人加固，其结构巧妙地依托岩石作为天然屏障。毕竟，当山体已经筑起坚固防线，又何须再费力建墙？如今，游客们来到这里徒步、攀岩、拍照，探索那些奇形怪状的岩石。但他们往往带走的不只是照片，更是故事。贝洛格拉奇克石林不仅是地质构造，更是凝固在石头中的传说。
+> The rocks, which are on UNESCO's Tentative List, stretch for more than 18 miles around the town of Belogradchik, their colors shifting from deep red to gold depending on the light. History found a use for them, too. The Belogradchik Fortress, first built by the Romans and later reinforced by Ottomans, leans on the rocks as natural defense. Why build walls when the mountain has already done the heavy lifting? Visitors today come to hike, climb, and photograph the unusual shapes, but they often leave with something extra: stories. The Belogradchik Rocks aren't just formations—they're legends frozen in stone.
 > 
 > 
 
 </details>
 
-| ![贝洛格拉齐克石林，保加利亚](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![贝洛格拉齐克石林，保加利亚](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![The Belogradchik Rocks in Bulgaria](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Belogradchik Rocks in Bulgaria](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1080x1920.jpg) |
 
 ### 20251021
 
-> 哥斯达黎加的厚嘴巨嘴鸟 (© Juan Carlos Vindas/Getty Images)
+> A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 胸前闪着一抹亮黄，喙部宛如艺术家手绘——这就是厚嘴巨嘴鸟。它隶属于巨嘴鸟科，与巨嘴啄木鸟同属一个大家族，是40多种巨嘴鸟中的一种。厚嘴巨嘴鸟分布于墨西哥南部至哥伦比亚北部的热带地区，日常大部分时间都在用彩虹般的鸟喙采摘水果，偶尔也会捕食昆虫、鸟蛋和小爬行动物。它的鸟喙长度约占身体总长的三分之一，不仅用于觅食，还能通过内部血管散发多余热量。厚嘴巨嘴鸟性格活泼，常结伴活动，在树冠之间滑翔、鸣叫，它们的翅膀长达7至8英寸，每年仅换羽一次。
+> Diwali is a vibrant Hindu festival celebrating hope, prosperity, and the triumph of good over evil. It commemorates Prince Rama's victorious return to the kingdom of Ayodhya after defeating the demon king Ravana. The festival also honors the goddess Lakshmi, who is believed to bring wealth and well-being into homes, while some communities worship the goddess Kali. During Diwali, families clean and decorate their homes, exchange sweets, and gather for prayers, creating an atmosphere of joy. Central to the celebration are diyas, small oil lamps whose glowing flames symbolize light overcoming darkness and the promise of new beginnings.
 > 
-> 当繁殖季节到来时，一对厚嘴巨嘴鸟会占据一处树洞作为巢穴。雌鸟通常产下两到四枚卵，由雌雄共同轮流孵化。雏鸟孵化时全身无羽，眼睛紧闭，嘴喙细小而苍白。随着时间推移，它们逐渐长出羽毛，颜色也开始显现，并尝试短距离飞行。所以，如果你在热带雨林中偶遇这位色彩斑斓的鸟儿，请记住：它不仅仅是“颜值担当”，更是聪明、善于社交且装备精良的多面手。
+> Experiencing Diwali at the Golden Temple in Amritsar, India, is a spectacular sight to behold. The temple glows with thousands of diyas and fairy lights as devotees celebrate the Sikh festival of Bandi Chhor Divas, which often coincides with Diwali.
 > 
 > 
 
 </details>
 
-| ![厚嘴巨嘴鸟，哥斯达黎加](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![厚嘴巨嘴鸟，哥斯达黎加](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Happy Diwali!](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Diwali!](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1080x1920.jpg) |th?id=OHR.AppleHarvest_EN-US2977882687_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_1080x1920.jpg) |.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1080x1920.jpg) |://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1080x1920.jpg) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_1080x1920.jpg) |) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
 > 
 > 
 
