@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251028
+
+> The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> From 18th-century visitors to fire-carved trails, this rock city tells a story of survival. Hidden in Czechia's Hradec Králové Region, the Adršpach–Teplice Rocks form Central Europe's largest sandstone labyrinth. For centuries, the cliffs and passages lay cloaked in forest, until a great fire stripped the land bare. Arches, towers, and winding corridors emerged out of the ashes, and the first hiking paths were carved into the rock. Soon after, explorers and poets left their marks with stone inscriptions that captured a destination both wild and enchanting.
+> 
+> Today, the reserve stretches over 5 square miles, preserved within the Broumovsko Protected Landscape Area. Among its treasures stands the Gothic Gate, featured here, which was built in 1839. Commissioned by Ludvik Karel Nádherný along with a network of hiking paths, bridges, and stairways, this striking archway became the symbolic threshold to the City of Rocks. More than a relic of the past, the Gothic Gate still stands as guardian of the labyrinth, welcoming every visitor who steps into the park.
+> 
+> 
+
+</details>
+
+| ![The Gothic Gate in the Adršpach-Teplice Rocks, Czechia](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Gothic Gate in the Adršpach-Teplice Rocks, Czechia](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1080x1920.jpg) |
+
 ### 20251027
 
 > Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)
@@ -112,30 +131,7 @@
 
 | ![The Belogradchik Rocks in Bulgaria](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Belogradchik Rocks in Bulgaria](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1080x1920.jpg) |
-
-### 20251021
-
-> A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Diwali is a vibrant Hindu festival celebrating hope, prosperity, and the triumph of good over evil. It commemorates Prince Rama's victorious return to the kingdom of Ayodhya after defeating the demon king Ravana. The festival also honors the goddess Lakshmi, who is believed to bring wealth and well-being into homes, while some communities worship the goddess Kali. During Diwali, families clean and decorate their homes, exchange sweets, and gather for prayers, creating an atmosphere of joy. Central to the celebration are diyas, small oil lamps whose glowing flames symbolize light overcoming darkness and the promise of new beginnings.
-> 
-> Experiencing Diwali at the Golden Temple in Amritsar, India, is a spectacular sight to behold. The temple glows with thousands of diyas and fairy lights as devotees celebrate the Sikh festival of Bandi Chhor Divas, which often coincides with Diwali.
-> 
-> 
-
-</details>
-
-| ![Happy Diwali!](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Diwali!](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_1080x1920.jpg) |) |6537355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1080x1920.jpg) |com/th?id=OHR.ToucanForest_EN-US8319635845_1080x1920.jpg) |ing to ensure future generations can thrive on a planet with finite resources.
-> 
-> 
-
-</details>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
