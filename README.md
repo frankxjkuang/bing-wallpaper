@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251029
+
+> Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> The Portuguese island of Madeira—about 600 miles southwest of mainland Portugal—hides a forest unlike any other. On its northern slopes lies Fanal Forest, where veils of mist drift through centuries-old til trees. These are part of the Laurissilva of Madeira—an outstanding relict of a once widespread laurel forest type. Laurissilva is the largest surviving area of its kind, with about 90% considered primary forest. Home to a unique array of plants and animals, including endemic species such as the Madeiran long-toed pigeon, it remains a living museum of natural history.
+> 
+> In Fanal, the gnarled, moss-draped trunks stand as guardians of this ancient heritage, where nature has preserved its vitality for centuries. Beyond the trails, these woods also offer quiet corners to pause and enjoy. Between scenic viewpoints, a leisure area with a public barbecue, and even a winter lake born from an ancient crater, this is a place to be dazzled, to wander, to play—or simply to breathe and relax.
+> 
+> 
+
+</details>
+
+| ![Ancient til trees in Fanal Forest, Madeira, Portugal](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ancient til trees in Fanal Forest, Madeira, Portugal](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_1080x1920.jpg) |
+
 ### 20251028
 
 > The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Day of the Snow Leopard](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the Snow Leopard](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1080x1920.jpg) |
-
-### 20251022
-
-> Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> In Bulgaria, on the western slopes of the Balkan Mountains, the Belogradchik Rocks stand like a natural gallery where every formation tells a tale. Shaped over millions of years by erosion, these sandstone and limestone pillars twist and tower into outlines that locals swear resemble people, animals, and even entire scenes. That's why names like 'The Horseman,' 'The Schoolgirl,' and 'The Monks' have stuck—it's a landscape where spotting shapes feels a bit like playing nature's version of charades.
-> 
-> The rocks, which are on UNESCO's Tentative List, stretch for more than 18 miles around the town of Belogradchik, their colors shifting from deep red to gold depending on the light. History found a use for them, too. The Belogradchik Fortress, first built by the Romans and later reinforced by Ottomans, leans on the rocks as natural defense. Why build walls when the mountain has already done the heavy lifting? Visitors today come to hike, climb, and photograph the unusual shapes, but they often leave with something extra: stories. The Belogradchik Rocks aren't just formations—they're legends frozen in stone.
-> 
-> 
-
-</details>
-
-| ![The Belogradchik Rocks in Bulgaria](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Belogradchik Rocks in Bulgaria](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1080x1920.jpg) |=OHR.BulgariaRocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
