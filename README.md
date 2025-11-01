@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251030
+
+> Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Every fall, the desert town of Pushkar in Rajasthan, India, comes alive with one of the most colorful gatherings—the Pushkar Camel Fair. Timed with the Hindu lunar month of Kartik, it usually takes place between late October and early November on the Gregorian calendar. This year, the celebrations stretch from today until November 5, marking the region's most anticipated season.
+> 
+> What began as one of the world's largest camel and cattle markets has gradually transformed into a grand celebration of culture and community. Alongside the trading of cattle and camels, visitors now enjoy quirky competitions like 'matka phod' (pot breaking), longest mustache contest, and even bridal shows. Rural families explore vibrant stalls overflowing with textiles, clothes, and glittering bracelets, while the fair itself kicks off with a high-spirited camel race, followed by traditional songs, dances, and lively performances. Among the highlights is the camel showcase, where participants take turns riding the animals in an animated display that adds to the festive charm. In recent years, the fair has introduced new attractions too, including a friendly football match between the local Pushkar Club and teams of foreign tourists.
+> 
+> 
+
+</details>
+
+| ![Camels at Jaisalmer, Rajasthan, India](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Camels at Jaisalmer, Rajasthan, India](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_1080x1920.jpg) |
+
 ### 20251029
 
 > Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Night view of the RMS Queen Mary, Long Beach, California](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Night view of the RMS Queen Mary, Long Beach, California](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_1080x1920.jpg) |
-
-### 20251023
-
-> Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)
-
-<details>
-<summary>Description</summary>
-
-> Ever tried spotting a snow leopard in the wild? It's called the 'ghost of the mountains' for a reason—you're more likely to see its pawprints than the big cat itself. But every October 23, the species steps into the spotlight on International Day of the Snow Leopard, a day set aside to protect this elusive predator and its rugged home.
-> 
-> Snow leopards roam high-altitude ranges across 12 Asian countries, from Afghanistan to China. Their thick coats and long tails are built for survival in freezing, rocky terrain. Yet even these stealthy cats can't hide from threats like poaching, shrinking habitats, and climate change. With fewer than 7,000 left in the wild, conservation is a necessity. The image of a snow leopard mother sheltering her cubs in the rocky cliffs of the Cold Desert Biosphere Reserve in India illustrates what's at stake. That's why governments, conservation groups, and local communities team up to safeguard both the animals and their ecosystems. After all, saving snow leopards also protects water sources and biodiversity for millions of people living downstream: they act as keystone species in their alpine environment, maintaining the ecological balance through predation on herbivores. That prevents overgrazing and protects vegetation that helps retain snowmelt and maintain watershed health.
-> 
-> 
-
-</details>
-
-| ![International Day of the Snow Leopard](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the Snow Leopard](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1080x1920.jpg) |=OHR.BulgariaRocks_EN-US3184562282_1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_1080x1920.jpg) |=OHR.SnowLeopard_EN-US3294064537_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1080x1920.jpg) |=OHR.BulgariaRocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
