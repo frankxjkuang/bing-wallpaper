@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251031
+
+> Entrance of Bran Castle in Bran, Brașov, Romania (© blue sky in my pocket/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Tonight, Halloween casts its spell—and only a few places on Earth carry a mystery quite like Bran Castle in Romania. The fortress was built in the 14th century and has withstood wars, monarchs, and shifting empires. But here, legends speak louder than history. Perched between the regions of Transylvania—renowned for its chilling tales—and Wallachia, once ruled by Vlad III Dracula, the castle evokes a haunting legacy. Vlad's ruthless reputation inspired Bram Stoker's 1897 Gothic novel 'Dracula.' Though the story is not set at Bran Castle, its looming form and persistent rumors of Vlad's presence blur fact and legend, forever linking it to one of humanity's most enduring tales.
+> 
+> Beyond the pages of storybooks, Bran Castle whispers many other haunted narratives. According to local accounts, the sorrowful White Lady drifts through the courtyard; a monk's muffled steps echo from behind the walls that sealed him in; and the playful laughter of unseen children carries through the corridors. Reports of flickering lights, sudden chills, and disembodied voices heighten the unease. On this Halloween, Bran Castle rises beyond the stones that shape it. Here, memory twists into myth, and the line between reality and the supernatural grows thrillingly thin.
+> 
+> 
+
+</details>
+
+| ![Happy Halloween!](https://cn.bing.com/th?id=OHR.BranCastle_EN-US5914201029_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Halloween!](https://cn.bing.com/th?id=OHR.BranCastle_EN-US5914201029_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BranCastle_EN-US5914201029_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BranCastle_EN-US5914201029_1080x1920.jpg) |
+
 ### 20251030
 
 > Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Martimoaapa Mire Reserve, Finland](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martimoaapa Mire Reserve, Finland](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |
-
-### 20251024
-
-> Night view of the RMS Queen Mary, Long Beach, California (© Kit Leong/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> She was never meant to fade away. When the RMS Queen Mary sailed in 1936, she stole the spotlight across the Atlantic—an Art Deco liner that broke speed records and carried celebrities, royalty, and dignitaries. War transformed her from a floating palace into the 'Grey Ghost,' stripped of luxury and loaded with Allied troops. In 1967, after 30 years at sea, she retired to Long Beach, where her decks now serve as hotel corridors, guided exhibits, and a living monument to maritime history.
-> 
-> But her legend did not dock with her anchors. Over the years, guests and crew have spoken of echoes in empty corridors, footsteps reverberating on metal floors, and the laughter of a child near the deserted pool. Ghost tours highlight these eerie stories, though historians note that deaths aboard were due to natural causes, with no murders ever recorded. Today, the Queen Mary stands as both a heritage landmark and a stage for folklore. So, is she haunted? There are no records confirming it, yet the whispers keep her stories very much alive.
-> 
-> 
-
-</details>
-
-| ![Night view of the RMS Queen Mary, Long Beach, California](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Night view of the RMS Queen Mary, Long Beach, California](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_1080x1920.jpg) |=OHR.SnowLeopard_EN-US3294064537_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1080x1920.jpg) |=OHR.BulgariaRocks_EN-US3184562282_1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
