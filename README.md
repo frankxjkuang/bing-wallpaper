@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251101
+
+> Bison grazing at thermal hot springs, Yellowstone National Park, Wyoming (© Cheryl Ramalho/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The bison embodies a paradox: immense strength paired with quiet calm. Weighing up to 2,000 pounds and standing 6 feet tall, these giants roam North America's grasslands and river valleys in mobile herds. Photographed here in Yellowstone National Park, Wyoming, they once numbered in the tens of millions but were nearly eradicated in the 19th century—a loss that reshaped ecosystems and disrupted lifeways.
+> 
+> Today, on National Bison Day, observed each year in early November, we honor this iconic species' persistence and profound significance. It's only fitting that this celebration falls at the start of Native American Heritage Month: for countless Native Nations, these animals have been revered as teachers, providers, and spiritual relatives, with every part used thoughtfully for sustenance, clothing, tools, and fuel. That's why tribal communities lead efforts to help them reclaim prairie, wetland, and forest habitats, forming social herds led by matriarchs, sparring males, and curious calves.
+> 
+> 
+
+</details>
+
+| ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_1080x1920.jpg) |
+
 ### 20251031
 
 > Entrance of Bran Castle in Bran, Brașov, Romania (© blue sky in my pocket/Getty Images)
@@ -112,25 +131,7 @@
 
 | ![National Pumpkin Day](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Pumpkin Day](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |
-
-### 20251025
-
-> Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Today, we step into the Martimoaapa Mire Reserve in Finland, where wide, cold-climate wetlands and peatlands stretch across a landscape shaped over thousands of years. This reserve is more than just mires—it carries layers of history. During Finland's Prohibition era (1919–1932), smugglers hauled sacks of liquor from Sweden across these bogs, following a 'spirits' route that passed through Martimoaapa. Parts of that path can still be traced today. Imagine trekking with a heavy pack over soggy ground—would you have made it?
-> 
-> This is just the beginning. Here, archaeologists have discovered brackish pits once used to store meat, and a mysterious stone circle about 33 feet wide—like something out of a northern myth. Its purpose? Still unknown. More recent history lives on in the Saunasaari sauna, once part of a logging cabin built for men who worked these boreal forests. It gave them warmth, rest, and a place to dry off.
-> 
-> Wildlife, ever-present, completes the picture. Nearly 100 bird species nest here, from swans and cranes to owls and kestrels. Trails ranging from 1.9 to 8 miles, dotted with huts and campfire sites, invite you to explore—on foot or on skis in winter.
-
-</details>
-
-| ![Martimoaapa Mire Reserve, Finland](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martimoaapa Mire Reserve, Finland](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
