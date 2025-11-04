@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251102
+
+> Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today, we travel to the Arashiyama district in Kyoto, renowned for its captivating seasonal landscapes. Here, vibrant Japanese maple trees and serene bamboo forests create a harmonious blend of color and tranquility. These maples, known for their delicate, deeply lobed leaves, turn fiery shades of red, orange, and gold during fall, attracting visitors from around the world. They are celebrated not only for their beauty but also for their cultural symbolism—representing elegance, peace, and the fleeting nature of life.
+> 
+> The Sagano Bamboo Forest is equally iconic, where towering stalks of madake and mosochiku varieties of bamboo sway gently in the breeze. Bamboo has been integral to Japanese life for centuries, used in everything from architecture and crafts to traditional ceremonies. Its rapid growth and resilience symbolize strength and flexibility, and bamboo groves were historically planted to protect against natural disasters.
+> 
+> 
+
+</details>
+
+| ![Maple and bamboo forests in Arashiyama, Kyoto, Japan](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Maple and bamboo forests in Arashiyama, Kyoto, Japan](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_1080x1920.jpg) |
+
 ### 20251101
 
 > Bison grazing at thermal hot springs, Yellowstone National Park, Wyoming (© Cheryl Ramalho/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Thick-billed raven, Simien Mountains, Ethiopia](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Thick-billed raven, Simien Mountains, Ethiopia](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg) |
-
-### 20251026
-
-> Pumpkin farm in North Carolina (© Matthew H Irvin/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Nothing says fall like spotting a field full of pumpkins waiting to be picked. These gourds have rolled their way into pies, porches, lattes, and parades, but today they get the spotlight: It's National Pumpkin Day. Some places go all out to show their affection—Morton, Illinois, calls itself the 'Pumpkin Capital of the World,' thanks to its high production and ties to canned pumpkin. New Hampshire follows closely, with pumpkin as its official state fruit.
-> 
-> Ever wondered why we carve this squash? The tradition comes from an old Irish story about a man called Stingy Jack. According to legend, Jack tricked the Devil multiple times and was denied entry to both heaven and hell, leaving him to wander the Earth with only a carved-out turnip and a glowing coal to light his way. Immigrants brought the tale to America, where pumpkins—larger and easier to carve than turnips—became the canvas for glowing jack-o'-lanterns. The Connecticut field pumpkin is the go-to variety thanks to its size, smooth skin, and bright orange hue. The color of pumpkins comes from beta-carotene, but not all are orange—some grow white, green, or even blue. Their utility doesn't end there—pumpkins have stood guard as scarecrows, been launched in pumpkin-chucking contests, and even hollowed out for boat races. So, have you sharpened your carving tools?
-> 
-> 
-
-</details>
-
-| ![National Pumpkin Day](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Pumpkin Day](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg) |n.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
