@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251103
+
+> Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> They don't have brains, bones, or even hearts, yet jellyfish have pulsed through Earth's oceans for half a billion years. Today, on World Jellyfish Day, these wobbly wonders get their moment in the sun—or at least under the sea. The day promotes efforts to protect jellyfish habitats from threats like pollution, nutrient-rich runoff, and ocean acidification.
+> 
+> Don't be fooled by the 'fish' in their name: they belong to the invertebrate club called Cnidaria, and they're made up of about 95% water. With their bell-shaped bodies and trailing tentacles, they're more like ocean drifters than deep-sea athletes. Some glow like the one pictured here in the Pacific Ocean off Guerrero, Mexico, others pack stings, and a select few, like the 'immortal jellyfish,' can reset their life cycle and start again.
+> 
+> Jellyfish are vital links in the food chain, feeding turtles, sunfish, and seabirds. Their sudden population booms also act as alarms, signaling changes in the ocean caused by warming waters and overfishing. So today, let's give credit where credit is due—to the brainless blobs that have outlived dinosaurs, mastered the art of drifting, and proved that sometimes being spineless is actually a strength.
+
+</details>
+
+| ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1080x1920.jpg) |
+
 ### 20251102
 
 > Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![The Gothic Gate in the Adršpach-Teplice Rocks, Czechia](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Gothic Gate in the Adršpach-Teplice Rocks, Czechia](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1080x1920.jpg) |
-
-### 20251027
-
-> Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Perched high in the mountains of Ethiopia, Eritrea, and Somalia, the thick-billed raven holds the title of the world's largest raven. At nearly 28 inches in length and weighing more than 3 pounds, it is about a quarter heavier than the common raven. Its enormous, arched bill—pale at the base and close to 3.5 inches long—is the largest among perching birds. These ravens live mostly between 5,000 and 11,200 feet above sea level, found across farmland, rocky cliffs, and even rooftops in mountain towns.
-> 
-> Thick-billed ravens are versatile feeders, taking carrion, insects, beetle larvae, seeds, and crops like wheat, along with scraps from people. Observers have seen them pulling grubs from dung heaps and even forcing Verreaux's eagle-owls from their nests. Often seen in pairs or small groups, they build large stick nests on cliffs or tall trees, laying three to five bluish-green eggs. Their calls range from deep croaks to wheezy notes, and rare instances of mimicry have been recorded. Their plumage gleams purple in sunlight, a striking figure of the African highlands. Classified as 'least-concern' by the International Union for Conservation of Nature, the thick-billed raven continues to thrive.
-> 
-> 
-
-</details>
-
-| ![Thick-billed raven, Simien Mountains, Ethiopia](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Thick-billed raven, Simien Mountains, Ethiopia](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg) |n.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1080x1920.jpg) |d=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg) |n.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
