@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251104
+
+> Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Some bridges connect two sides. Tower Bridge connects history, engineering, and a flair for drama. Standing next to the Tower of London and rising over the River Thames since 1894, this London icon literally knows how to lift spirits—and traffic. With its twin towers, blue-and-white paintwork, and bascules that open like a giant's drawbridge, Tower Bridge is less a traffic solution and more a stage performer.
+> 
+> When it was first built, London needed a crossing that wouldn't block river trade. The answer? A bridge that could split in half and rise high enough for sailing ships to pass through. Victorian ingenuity powered the hydraulics with steam engines; today, oil and electricity do the heavy lifting. Visitors can step inside to explore its engine rooms and stroll across the high-level glass walkways for a bird's-eye view of the Thames. From its Gothic-style towers to its lifting bascules, the structure continues to bridge the gap between past and present, proving that sometimes, the best way forward is to raise the road.
+> 
+> 
+
+</details>
+
+| ![Tower Bridge, London, England](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tower Bridge, London, England](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_1080x1920.jpg) |
+
 ### 20251103
 
 > Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Ancient til trees in Fanal Forest, Madeira, Portugal](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ancient til trees in Fanal Forest, Madeira, Portugal](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_1080x1920.jpg) |
-
-### 20251028
-
-> The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> From 18th-century visitors to fire-carved trails, this rock city tells a story of survival. Hidden in Czechia's Hradec Králové Region, the Adršpach–Teplice Rocks form Central Europe's largest sandstone labyrinth. For centuries, the cliffs and passages lay cloaked in forest, until a great fire stripped the land bare. Arches, towers, and winding corridors emerged out of the ashes, and the first hiking paths were carved into the rock. Soon after, explorers and poets left their marks with stone inscriptions that captured a destination both wild and enchanting.
-> 
-> Today, the reserve stretches over 5 square miles, preserved within the Broumovsko Protected Landscape Area. Among its treasures stands the Gothic Gate, featured here, which was built in 1839. Commissioned by Ludvik Karel Nádherný along with a network of hiking paths, bridges, and stairways, this striking archway became the symbolic threshold to the City of Rocks. More than a relic of the past, the Gothic Gate still stands as guardian of the labyrinth, welcoming every visitor who steps into the park.
-> 
-> 
-
-</details>
-
-| ![The Gothic Gate in the Adršpach-Teplice Rocks, Czechia](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Gothic Gate in the Adršpach-Teplice Rocks, Czechia](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1080x1920.jpg) |d=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg) |n.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1080x1920.jpg) |d=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg) |n.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
