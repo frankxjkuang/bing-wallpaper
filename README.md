@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251105
+
+> Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)
+
+<details>
+<summary>Description</summary>
+
+> Spain's Aragon region isn't exactly famous for its forests—it's more 'sun and scrub' than 'shade and shuffle.' And yet, climb the slopes of Moncayo and you'll walk straight into a twist ending: a dense, whispering beech forest. The mountain is a climate roller coaster. At the bottom? Mediterranean shrubs. Midway up? Oaks and pines. Push further? Suddenly you're in Peña Roya, a beech wonderland that seems to say, 'Surprise, leaf it to me!'
+> 
+> Fall is their show-off season. The forest becomes a patchwork quilt of red, gold, and orange, while hikers crunch happily through the leaves. Deer tiptoe through the trees, wild boar snuffle in the undergrowth, and birds like Eurasian goshawks and golden eagles supply the soundtrack. And just when you think it's all about trees, Moncayo reminds you of its human side: monasteries tucked into the mountainside, hermitages clinging to rocks, and villages that once treated the forest as their pantry. Today, people come not for timber, but for trails, photos, and that sweet mountain air.
+> 
+> 
+
+</details>
+
+| ![Peña Roya beech forest, Moncayo Natural Park, Aragon, Spain](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Peña Roya beech forest, Moncayo Natural Park, Aragon, Spain](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_1080x1920.jpg) |
+
 ### 20251104
 
 > Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Camels at Jaisalmer, Rajasthan, India](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Camels at Jaisalmer, Rajasthan, India](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_1080x1920.jpg) |
-
-### 20251029
-
-> Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> The Portuguese island of Madeira—about 600 miles southwest of mainland Portugal—hides a forest unlike any other. On its northern slopes lies Fanal Forest, where veils of mist drift through centuries-old til trees. These are part of the Laurissilva of Madeira—an outstanding relict of a once widespread laurel forest type. Laurissilva is the largest surviving area of its kind, with about 90% considered primary forest. Home to a unique array of plants and animals, including endemic species such as the Madeiran long-toed pigeon, it remains a living museum of natural history.
-> 
-> In Fanal, the gnarled, moss-draped trunks stand as guardians of this ancient heritage, where nature has preserved its vitality for centuries. Beyond the trails, these woods also offer quiet corners to pause and enjoy. Between scenic viewpoints, a leisure area with a public barbecue, and even a winter lake born from an ancient crater, this is a place to be dazzled, to wander, to play—or simply to breathe and relax.
-> 
-> 
-
-</details>
-
-| ![Ancient til trees in Fanal Forest, Madeira, Portugal](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ancient til trees in Fanal Forest, Madeira, Portugal](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1080x1920.jpg) |d=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg) |n.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_1080x1920.jpg) |22_1080x1920.jpg) |d=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg) |n.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
