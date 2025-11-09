@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251108
+
+> 班登海滩的海蚀柱，俄勒冈州，美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> 驶出101号公路，俄勒冈州的班登便迎来了来访者，这里弥漫着咸咸的空气和轻柔的港口钟声。这座小镇始建于19世纪50年代，最初只是个小聚居地，后来发展成为木材和鲑鱼捕捞中心。蔓越莓成为当地的主要作物，至今仍是每年九月蔓越莓节的庆祝活动。老城区的木板路咖啡馆和画廊反映了那段历史，而科基尔河灯塔则矗立在布拉兹海滩，经过修复，依然屹立在那里，提醒着人们当年它曾指引船只的航向。
+> 
+> 从灯塔步行一小段路即可到达海滩，那里展现着令人回味的海岸景观：班登的海蚀柱，正如今天图片中所展现的那样。这些地貌经过数千年的海浪、风蚀和缓慢崩塌的侵蚀，讲述着一段地质故事。面岩（Face Rock）形似当地传说中少女翘起的下巴。附近的巫师帽（Wizard's Hat）像一顶尖顶的帽子，直冲云霄；大象岩（Elephant Rock）拱起，如同一条伸向潮水的象鼻。其他值得注意的景观包括贝壳角（Coquille Point）、桌岩（Table Rock）以及猫和小猫（Cat and Kittens）海蚀柱。作为俄勒冈群岛国家野生动物保护区的一部分，这些海蚀柱为海鸟提供了庇护，并展现了海洋和时间的坚韧力量。
+> 
+> 
+
+</details>
+
+| ![俄勒冈州的班登海滩](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![俄勒冈州的班登海滩](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1080x1920.jpg) |
+
 ### 20251107
 
 > 丘吉尔的北极熊，曼尼托巴省，加拿大 (© karen crewe/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![日本京都岚山地区的枫林与竹林](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![日本京都岚山地区的枫林与竹林](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1080x1920.jpg) |
-
-### 20251101
-
-> 野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国 (© Cheryl Ramalho/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 野牛体现了一种矛盾：巨大的力量与沉静的气质并存。这些体型庞大的动物体重可达200​​0磅，身高6英尺（约1.8米），成群结队地漫游在北美的草原和河谷。这张照片拍摄于怀俄明州的黄石国家公园，它们的数量曾达数千万头，但在19世纪几乎灭绝——这一灭绝事件重塑了生态系统，扰乱了人们的生活方式。
-> 
-> 对于无数原住民来说，这些动物一直被尊崇为导师、供养者和精神上的亲人，它们的每一部分都被精心利用，被用作食物、衣物、工具和燃料。正因如此，部落社区带头努力恢复草原、湿地和森林栖息地，形成由母牛、争吵的公牛和好奇的幼牛领导的社会群体。
-> 
-> 站在它们面前，感受古老、中断与复兴在一瞬间交汇。野牛的幸存提醒我们，遗产不仅被铭记，它还被传承，交织在崎岖的地貌和经久不衰的传统之中。
-
-</details>
-
-| ![黄石公园的野牛](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![黄石公园的野牛](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1080x1920.jpg) | race, followed by traditional songs, dances, and lively performances. Among the highlights is the camel showcase, where participants take turns riding the animals in an animated display that adds to the festive charm. In recent years, the fair has introduced new attractions too, including a friendly football match between the local Pushkar Club and teams of foreign tourists.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1080x1920.jpg) | and teams of foreign tourists.
 > 
 > 
 
