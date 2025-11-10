@@ -2,144 +2,136 @@
 
 ### 20251108
 
-> 班登海滩的海蚀柱，俄勒冈州，美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+> Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 驶出101号公路，俄勒冈州的班登便迎来了来访者，这里弥漫着咸咸的空气和轻柔的港口钟声。这座小镇始建于19世纪50年代，最初只是个小聚居地，后来发展成为木材和鲑鱼捕捞中心。蔓越莓成为当地的主要作物，至今仍是每年九月蔓越莓节的庆祝活动。老城区的木板路咖啡馆和画廊反映了那段历史，而科基尔河灯塔则矗立在布拉兹海滩，经过修复，依然屹立在那里，提醒着人们当年它曾指引船只的航向。
+> Pull off of Highway 101, and Bandon, Oregon, greets you with salty air and the clang of harbor bells. The town began as a small settlement in the 1850s and grew into a center for timber and salmon fishing. Cranberries became a key crop and are still celebrated each September during the Cranberry Festival. Old Town reflects that past with boardwalk cafés and galleries, while the Coquille River Lighthouse stands restored at Bullards Beach as a reminder of the days when its beacon guided ships.
 > 
-> 从灯塔步行一小段路即可到达海滩，那里展现着令人回味的海岸景观：班登的海蚀柱，正如今天图片中所展现的那样。这些地貌经过数千年的海浪、风蚀和缓慢崩塌的侵蚀，讲述着一段地质故事。面岩（Face Rock）形似当地传说中少女翘起的下巴。附近的巫师帽（Wizard's Hat）像一顶尖顶的帽子，直冲云霄；大象岩（Elephant Rock）拱起，如同一条伸向潮水的象鼻。其他值得注意的景观包括贝壳角（Coquille Point）、桌岩（Table Rock）以及猫和小猫（Cat and Kittens）海蚀柱。作为俄勒冈群岛国家野生动物保护区的一部分，这些海蚀柱为海鸟提供了庇护，并展现了海洋和时间的坚韧力量。
+> A short walk from the lighthouse leads to the beach where an evocative coastal landscape unfolds: Bandon's sea stacks, featured in today's image. Sculpted over millennia by waves, wind, and the slow collapse of arches, these formations tell a geologic story. Face Rock resembles the tilted chin of a maiden from local legend. Nearby, Wizard's Hat rises like a pointed cap against the sky, and Elephant Rock arches like a trunk reaching for the tide. Other notable shapes include Coquille Point, Table Rock, and the Cat and Kittens stacks. Protected as part of the Oregon Islands National Wildlife Refuge, these stones shelter seabirds and reveal the patient force of ocean and time.
 > 
 > 
 
 </details>
 
-| ![俄勒冈州的班登海滩](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![俄勒冈州的班登海滩](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Bandon Beach in Bandon, Oregon](https://cn.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bandon Beach in Bandon, Oregon](https://cn.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_1080x1920.jpg) |
 
 ### 20251107
 
-> 丘吉尔的北极熊，曼尼托巴省，加拿大 (© karen crewe/Getty Images)
+> Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 北极熊是一种大型熊类，原产于北极及其附近地区。加拿大曼尼托巴省的丘吉尔是一个北极熊出没的地方。每年秋天，数百只北极熊聚集在这里，等待海湾结冰，以便再次捕猎海豹——它们的主要食物来源。有没有想过它们是如何保暖的？厚厚的脂肪层和浓密的底毛可以锁住热量。它们游过后，不易缠结的毛发会被甩干，天然油脂可以防止皮毛结冻。遗憾的是，气温升高会延缓结冰过程，迫使北极熊禁食更长时间。为了应对延迟，它们会休息、保存能量，有时还会在附近游荡。科学家们追踪它们的行踪，以了解迁徙模式每年的变化。北极熊周在纪念这些哺乳动物的同时，也提醒我们，它们的未来取决于我们如何应对全球变暖。
+> What's drawing scientists, travelers, and cameras to Manitoba, Canada, this week? Polar Bear Week is here, and it's more than a date on the calendar. For over a decade, Polar Bears International—a non-profit organization—has invited people to stream live cams and follow daily updates as the bears head to Hudson Bay. It's a week of learning and a call to protect a fragile ecosystem.
 > 
-> 
+> The town of Churchill takes center stage. Each fall, hundreds of polar bears gather near here, waiting for the bay to freeze so they can hunt seals again—their primary food source. Ever wonder how they stay warm? A thick layer of fat and a dense undercoat trap heat. Their tangle-resistant hairs shake dry after swimming, and natural oils stop the coat from freezing. Sadly, warmer temperatures delay that freeze, forcing the bears to fast longer. To cope with the delay, they rest, conserve energy, and sometimes wander the area. Scientists track their movements to learn how migration patterns shift each year. Polar Bear Week celebrates these mammals while reminding us that their future depends on what we do about a warming planet.
 > 
 > 
 
 </details>
 
-| ![北极熊](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![北极熊](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Polar Bear Week](https://cn.bing.com/th?id=OHR.WillowBear_EN-US6995170630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.WillowBear_EN-US6995170630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WillowBear_EN-US6995170630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WillowBear_EN-US6995170630_1080x1920.jpg) |
 
 ### 20251106
 
-> 哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国 (© MR. ANUJAK JAIMOOK/Getty Images)
+> Colorful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 如果一盏天灯能承载你的心愿，你会许下什么？今晚，在泰国北部，义蓬节为你带来这样的机会。这个延续数百年的兰纳传统，在农历十二月举行，人们点亮孔明灯以纪念佛陀。相传每一盏灯都能带走厄运，照亮通往美好未来的道路。孩子们扶稳灯架，长者低声祈福，成百上千的灯火缓缓升起，越过树梢，点亮夜空。同一轮满月下，南方的水灯节也在进行，烛光点点的花船在水面缓缓漂流。
+> What would you wish for if a single lantern could carry your heart's desire skyward? Tonight, in northern Thailand, the Yi Peng festival offers that chance. This centuries-old Lanna tradition celebrates the 12th lunar month with glowing paper lanterns—khom loi—that are released to honor the Buddha. Each lantern is believed to carry away misfortune and light the way toward a brighter future. Children steady the lantern frames, elders whisper blessings, and the crowd pauses as hundreds of lights drift higher than the trees. Farther south, the same full moon watches over Loy Krathong, a sister festival, where candlelit rafts glide across the water.
 > 
-> 在泰国北部的南奔府，有一座历史悠久的寺庙——哈里朋柴佛塔寺，它是欣赏义蓬节灯会的热门地点。寺庙的历史可以追溯到公元897年，当时哈里朋柴国王建造这座佛塔，用来供奉佛陀的一缕头发。佛塔至今仍矗立在寺院中央，周围的建筑则在后来的几个世纪逐渐完善，形成了如今的格局。寺庙的殿堂里，精美的木雕工艺展示了代代匠人的技艺。每年义蓬节期间，成千上万盏孔明灯缓缓升空，古老的祈愿与现代的祝福在夜空交织，让人仿佛穿越千年，感受文化与信仰的延续。
+> One striking place to witness Yi Peng is the temple of Phra That Hariphunchai, Lamphun, as seen in today's image. Its origins date back to 897, when the Hariphunchai king built a stupa to enshrine a strand of the Buddha's hair. That same stupa still stands at the center, with the rest of the complex built around it over centuries. Surrounding halls feature woodwork showcasing generations of craftsmanship. During the festival, the temple becomes a bridge between past and present, joining ancient prayers with quiet hopes in the sky.
 > 
 > 
 
 </details>
 
-| ![庆祝义蓬节](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![庆祝义蓬节](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Celebrating Yi Peng](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Yi Peng](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_1080x1920.jpg) |
 
 ### 20251105
 
-> 佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙 (© David Santiago Garcia/DEEPOL by plainpicture)
+> Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)
 
 <details>
 <summary>Description</summary>
 
-> 西班牙的阿拉贡地区，一般让人想到的是阳光和灌木，而不是森林的阴凉与静谧。然而，当你沿着蒙卡约山坡向上攀登，故事会出现意想不到的转折：一片浓密、低语的山毛榉林悄然迎面而来。这座山犹如气候过山车：山脚是地中海灌木，半山腰是橡树和松林，再往上，霎时间你便置身佩尼亚罗亚，这片山毛榉仙境仿佛在宣告："由我来演绎秋天吧！"
+> Spain's Aragon region isn't exactly famous for its forests—it's more 'sun and scrub' than 'shade and shuffle.' And yet, climb the slopes of Moncayo and you'll walk straight into a twist ending: a dense, whispering beech forest. The mountain is a climate roller coaster. At the bottom? Mediterranean shrubs. Midway up? Oaks and pines. Push further? Suddenly you're in Peña Roya, a beech wonderland that seems to say, 'Surprise, leaf it to me!'
 > 
-> 秋天，是它们最耀眼的季节。森林像一床拼接的彩色被子，铺满红、金、橙的斑斓。徒步者踩着落叶，发出欢快的“咔嚓”声；鹿儿在林间轻盈穿行，野猪在灌木丛中拱食，苍鹰、金雕等猛禽的鸣叫，为这片山林配上了背景乐。正当你以为这里只有树木时，蒙卡约却展现出人文风情：山腰间隐匿着修道院，岩壁上依偎着小小的隐修所，还有那些曾把森林当作粮仓的古老村落。如今，人们来这里，不再是为了木材，而是为了徒步、拍照，和那一口甘甜的山间空气。
+> Fall is their show-off season. The forest becomes a patchwork quilt of red, gold, and orange, while hikers crunch happily through the leaves. Deer tiptoe through the trees, wild boar snuffle in the undergrowth, and birds like Eurasian goshawks and golden eagles supply the soundtrack. And just when you think it's all about trees, Moncayo reminds you of its human side: monasteries tucked into the mountainside, hermitages clinging to rocks, and villages that once treated the forest as their pantry. Today, people come not for timber, but for trails, photos, and that sweet mountain air.
 > 
 > 
 
 </details>
 
-| ![佩尼亚罗亚山毛榉森林，西班牙](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![佩尼亚罗亚山毛榉森林，西班牙](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Peña Roya beech forest, Moncayo Natural Park, Aragon, Spain](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Peña Roya beech forest, Moncayo Natural Park, Aragon, Spain](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_1080x1920.jpg) |
 
 ### 20251104
 
-> 塔桥, 伦敦, 英格兰 (© Nick Brundle Photography/Getty Images)
+> Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 有些桥梁只是连接两岸，而伦敦塔桥则连接着历史、工程与戏剧张力。自1894年起，这座伦敦地标矗立于伦敦塔旁，横跨泰晤士河，既能振奋人心，又能疏导交通。双塔矗立，蓝白相间的漆面，以及能像巨型吊桥般开启的活动桥面，塔桥不仅是交通解决方案，更像是一位舞台表演者。
+> Some bridges connect two sides. Tower Bridge connects history, engineering, and a flair for drama. Standing next to the Tower of London and rising over the River Thames since 1894, this London icon literally knows how to lift spirits—and traffic. With its twin towers, blue-and-white paintwork, and bascules that open like a giant's drawbridge, Tower Bridge is less a traffic solution and more a stage performer.
 > 
-> 在塔桥建成之初，伦敦需要一座不会阻碍河上贸易的跨河通道。解决方案是什么？一座能从中间分开并抬升到足够高度，让帆船顺利通过的桥梁。维多利亚时代的巧思，用蒸汽机驱动液压系统；如今，重任则由油压和电力承担。游客可以走进桥体，探索它的机房，并漫步在高空玻璃走道，俯瞰泰晤士河的壮丽景色。从哥特式双塔到可升起的活动桥面，这座建筑始终连接着过去与现在，印证着有时通往前方的最佳方式就是将阻碍高高抬起。
+> When it was first built, London needed a crossing that wouldn't block river trade. The answer? A bridge that could split in half and rise high enough for sailing ships to pass through. Victorian ingenuity powered the hydraulics with steam engines; today, oil and electricity do the heavy lifting. Visitors can step inside to explore its engine rooms and stroll across the high-level glass walkways for a bird's-eye view of the Thames. From its Gothic-style towers to its lifting bascules, the structure continues to bridge the gap between past and present, proving that sometimes, the best way forward is to raise the road.
 > 
 > 
 
 </details>
 
-| ![塔桥, 伦敦, 英格兰](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![塔桥, 伦敦, 英格兰](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Tower Bridge, London, England](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tower Bridge, London, England](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_1080x1920.jpg) |
 
 ### 20251103
 
-> 在太平洋中游泳的水母, 格雷罗, 墨西哥 (© Christian Vizl/TANDEM Stills + Motion)
+> Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> 它们没有大脑、骨骼，甚至没有心脏，却已在地球海洋中游弋了五亿年。今天，世界水母日，这些摇曳生姿的奇妙生物终于迎来了属于它们的高光时刻——至少在海底世界如此。这一节日旨在推动保护水母栖息地，抵御污染、富营养化径流和海洋酸化等威胁。
+> They don't have brains, bones, or even hearts, yet jellyfish have pulsed through Earth's oceans for half a billion years. Today, on World Jellyfish Day, these wobbly wonders get their moment in the sun—or at least under the sea. The day promotes efforts to protect jellyfish habitats from threats like pollution, nutrient-rich runoff, and ocean acidification.
 > 
-> 别被它们名字里的“鱼”骗了：水母其实属于无脊椎动物门中的刺胞动物类，体内约95%是水。钟形躯体配上拖曳的触手，它们更像海洋中的漂泊者，而非深海健将。有些水母会发光，比如图中拍摄于墨西哥格雷罗外海的这一只；有些则带有毒刺；还有极少数，如“永生水母”，甚至能重置生命循环，重新开始。
+> Don't be fooled by the 'fish' in their name: they belong to the invertebrate club called Cnidaria, and they're made up of about 95% water. With their bell-shaped bodies and trailing tentacles, they're more like ocean drifters than deep-sea athletes. Some glow like the one pictured here in the Pacific Ocean off Guerrero, Mexico, others pack stings, and a select few, like the 'immortal jellyfish,' can reset their life cycle and start again.
 > 
-> 水母是食物链中至关重要的环节，它们为海龟、太阳鱼和海鸟提供食物。其种群数量的突然激增也如同警报，提醒我们海洋因水温升高和过度捕捞而发生的变化。所以，今天让我们给予这些“无脑软体”应有的赞赏——它们比恐龙活得更久，精通漂流的艺术，并证明了有时候“没有脊梁”反而是一种力量。
+> Jellyfish are vital links in the food chain, feeding turtles, sunfish, and seabirds. Their sudden population booms also act as alarms, signaling changes in the ocean caused by warming waters and overfishing. So today, let's give credit where credit is due—to the brainless blobs that have outlived dinosaurs, mastered the art of drifting, and proved that sometimes being spineless is actually a strength.
 
 </details>
 
-| ![世界水母日](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界水母日](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1080x1920.jpg) |
 
 ### 20251102
 
-> 岚山缤纷的枫叶与竹林, 京都, 日本 (© DoctorEgg/Getty Images)
+> Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 今日，我们前往京都岚山地区，这里以迷人的四季风光闻名于世。此处，鲜艳的日本红枫与静谧的竹林交织出色彩与宁静的和谐画卷。这些以纤细深裂叶片著称的枫树，每逢秋日便幻化成炽烈的红、橙、金三色，吸引着全球游客纷至沓来。它们不仅因绝美姿态备受推崇，更承载着象征优雅、平和与生命无常的文化意蕴。
+> Today, we travel to the Arashiyama district in Kyoto, renowned for its captivating seasonal landscapes. Here, vibrant Japanese maple trees and serene bamboo forests create a harmonious blend of color and tranquility. These maples, known for their delicate, deeply lobed leaves, turn fiery shades of red, orange, and gold during fall, attracting visitors from around the world. They are celebrated not only for their beauty but also for their cultural symbolism—representing elegance, peace, and the fleeting nature of life.
 > 
-> 嵯峨野竹林同样具有标志性，高耸的真竹和毛竹在微风中轻轻摇曳。几个世纪以来，竹子一直是日本人生活中不可或缺的一部分，从建筑、手工艺到传统仪式，竹子都得到广泛应用。竹子的快速生长和韧性象征着力量和柔韧性，历史上人们种植竹林是为了抵御自然灾害。
-> 
-> 
-
-</details>
-
-| ![日本京都岚山地区的枫林与竹林](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![日本京都岚山地区的枫林与竹林](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1080x1920.jpg) | and teams of foreign tourists.
+> The Sagano Bamboo Forest is equally iconic, where towering stalks of madake and mosochiku varieties of bamboo sway gently in the breeze. Bamboo has been integral to Japanese life for centuries, used in everything from architecture and crafts to traditional ceremonies. Its rapid growth and resilience symbolize strength and flexibility, and bamboo groves were historically planted to protect against natural disasters.
 > 
 > 
 
 </details>
 
-| ![Camels at Jaisalmer, Rajasthan, India](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Camels at Jaisalmer, Rajasthan, India](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Maple and bamboo forests in Arashiyama, Kyoto, Japan](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Maple and bamboo forests in Arashiyama, Kyoto, Japan](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_1080x1920.jpg) |22_1080x1920.jpg) |d=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg) |n.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_1080x1920.jpg) |d=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg) |n.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
