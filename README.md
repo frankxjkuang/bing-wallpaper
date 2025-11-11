@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251109
+
+> Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)
+
+<details>
+<summary>Description</summary>
+
+> The universe hums with creation. Featured here, in the Lagoon Nebula, a cluster called NGC 6530 is kindling newborn stars, a glowing reminder that beginnings are woven into the fabric of the cosmos. About 4,350 light-years away and a few million years old, it is a stellar formation still in its earliest chapter.
+> 
+> The world celebrates Carl Sagan Day every November 9 to honor the astronomer who shared distant wonders through stories people could understand. Founded in 2009, the day is observed worldwide, marked by lectures, planetarium shows, and stargazing nights that carry Sagan's call for scientific curiosity.
+> 
+> Carl Sagan's legacy stretches from NASA's Voyager missions and the Golden Record to his Cosmos television series, inspiring millions to see science as both reason and a source of endless possibilities. At Cornell University, home to the Carl Sagan Institute, his vision continues through the search for habitable worlds and the celebration of cosmic discovery. In the night sky, NGC 6530 offers a fitting tribute: a nursery of suns forming within clouds of gas and dust, echoing Sagan's reminder that 'We are made of star stuff.'
+
+</details>
+
+| ![Carl Sagan Day](https://cn.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Carl Sagan Day](https://cn.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_1080x1920.jpg) |
+
 ### 20251108
 
 > Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1080x1920.jpg) |
-
-### 20251102
-
-> Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today, we travel to the Arashiyama district in Kyoto, renowned for its captivating seasonal landscapes. Here, vibrant Japanese maple trees and serene bamboo forests create a harmonious blend of color and tranquility. These maples, known for their delicate, deeply lobed leaves, turn fiery shades of red, orange, and gold during fall, attracting visitors from around the world. They are celebrated not only for their beauty but also for their cultural symbolism—representing elegance, peace, and the fleeting nature of life.
-> 
-> The Sagano Bamboo Forest is equally iconic, where towering stalks of madake and mosochiku varieties of bamboo sway gently in the breeze. Bamboo has been integral to Japanese life for centuries, used in everything from architecture and crafts to traditional ceremonies. Its rapid growth and resilience symbolize strength and flexibility, and bamboo groves were historically planted to protect against natural disasters.
-> 
-> 
-
-</details>
-
-| ![Maple and bamboo forests in Arashiyama, Kyoto, Japan](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Maple and bamboo forests in Arashiyama, Kyoto, Japan](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_1080x1920.jpg) |d=OHR.AfricanRaven_EN-US4057369898_1080x1920.jpg) |n.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1080x1920.jpg) |rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
