@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251110
+
+> Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On November 10, 47 years ago, a stark stretch of South Dakota prairie gained recognition as one of America's natural treasures. Badlands National Park, carved by wind and water, was redesignated from national monument to national park status in 1978, securing stronger protection within the National Park System. Its cliffs and spires rise above fossil beds that reveal ancient rhinoceroses, camels, and subtropical seas. Yet the park is not only a window into the past; it also safeguards one of the largest remaining tracts of mixed-grass prairie in the US.
+> 
+> The prairie hums with life. Bison roam the open range, bighorn sheep climb steep bluffs, and prairie dogs build underground colonies, known as 'towns,' that can stretch for miles. Roberts Prairie Dog Town, where today's image was captured, is the park's largest accessible colony, supporting nearly 200 plant and animal species. Once labeled pests, prairie dogs are now recognized as keystone species, as they give rise to soil aeration and plant diversity. The park's anniversary marks its redesignation, but also reminds us that the Badlands endures not just as a rugged formation, but as a living and breathing prairie.
+> 
+> 
+
+</details>
+
+| ![47 years of Badlands National Park](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![47 years of Badlands National Park](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_1080x1920.jpg) |
+
 ### 20251109
 
 > Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)
@@ -112,28 +131,7 @@
 
 | ![Tower Bridge, London, England](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tower Bridge, London, England](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_1080x1920.jpg) |
-
-### 20251103
-
-> Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> They don't have brains, bones, or even hearts, yet jellyfish have pulsed through Earth's oceans for half a billion years. Today, on World Jellyfish Day, these wobbly wonders get their moment in the sun—or at least under the sea. The day promotes efforts to protect jellyfish habitats from threats like pollution, nutrient-rich runoff, and ocean acidification.
-> 
-> Don't be fooled by the 'fish' in their name: they belong to the invertebrate club called Cnidaria, and they're made up of about 95% water. With their bell-shaped bodies and trailing tentacles, they're more like ocean drifters than deep-sea athletes. Some glow like the one pictured here in the Pacific Ocean off Guerrero, Mexico, others pack stings, and a select few, like the 'immortal jellyfish,' can reset their life cycle and start again.
-> 
-> Jellyfish are vital links in the food chain, feeding turtles, sunfish, and seabirds. Their sudden population booms also act as alarms, signaling changes in the ocean caused by warming waters and overfishing. So today, let's give credit where credit is due—to the brainless blobs that have outlived dinosaurs, mastered the art of drifting, and proved that sometimes being spineless is actually a strength.
-
-</details>
-
-| ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Jellyfish Day](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1080x1920.jpg) |rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
