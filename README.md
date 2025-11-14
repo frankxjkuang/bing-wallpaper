@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251112
+
+> Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Think modern sports are dramatic? Ancient Romans had front-row seats to spectacles far more intense inside the Colosseum. Commissioned by the Flavian emperor Vespasian in 72 CE and finished by his son Titus in 80 CE, this amphitheater broke tradition with its predecessors that were built into hillsides for natural support. Instead, the Colosseum was a fully free-standing architectural giant. Crafted from stone and concrete, its arches and vaults supported an arena that could host up to 50,000 spectators. Gladiators, exotic animals, and even staged sea battles thrilled the crowds, while hidden elevators and trapdoors created sudden, dramatic appearances.
+> 
+> During the Middle Ages, the Colosseum found new purposes: first as a church, later as a fortress. Over the centuries, it endured damage from lightning strikes, earthquakes, and pollution. Much of its marble and travertine was also reused in palaces, fortifications, and even churches—a practice known as 'spolia,' which quite literally wove pieces of the structure into the evolving city of Rome. It wasn't until the 19th century that serious preservation began. Today, recognized as a protected monument and welcoming nearly 7 million visitors annually, the Colosseum remains one of Italy's most iconic landmarks.
+> 
+> 
+
+</details>
+
+| ![Colosseum, Rome, Italy](https://cn.bing.com/th?id=OHR.ColosseumRome_EN-US6932882124_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Colosseum, Rome, Italy](https://cn.bing.com/th?id=OHR.ColosseumRome_EN-US6932882124_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColosseumRome_EN-US6932882124_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColosseumRome_EN-US6932882124_1080x1920.jpg) |
+
 ### 20251111
 
 > Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Celebrating Yi Peng](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Yi Peng](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_1080x1920.jpg) |
-
-### 20251105
-
-> Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)
-
-<details>
-<summary>Description</summary>
-
-> Spain's Aragon region isn't exactly famous for its forests—it's more 'sun and scrub' than 'shade and shuffle.' And yet, climb the slopes of Moncayo and you'll walk straight into a twist ending: a dense, whispering beech forest. The mountain is a climate roller coaster. At the bottom? Mediterranean shrubs. Midway up? Oaks and pines. Push further? Suddenly you're in Peña Roya, a beech wonderland that seems to say, 'Surprise, leaf it to me!'
-> 
-> Fall is their show-off season. The forest becomes a patchwork quilt of red, gold, and orange, while hikers crunch happily through the leaves. Deer tiptoe through the trees, wild boar snuffle in the undergrowth, and birds like Eurasian goshawks and golden eagles supply the soundtrack. And just when you think it's all about trees, Moncayo reminds you of its human side: monasteries tucked into the mountainside, hermitages clinging to rocks, and villages that once treated the forest as their pantry. Today, people come not for timber, but for trails, photos, and that sweet mountain air.
-> 
-> 
-
-</details>
-
-| ![Peña Roya beech forest, Moncayo Natural Park, Aragon, Spain](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Peña Roya beech forest, Moncayo Natural Park, Aragon, Spain](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_1080x1920.jpg) |EN-US6871236865_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_1080x1920.jpg) |andscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
