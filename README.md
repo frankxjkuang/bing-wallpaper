@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251113
+
+> Quiver trees under the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)
+
+<details>
+<summary>Description</summary>
+
+> Of all the plants on Earth, the quiver tree looks the most like a vision from the future. Found in Southern Africa, including parts of Namibia, these striking giants are not true trees but a species of aloe adapted to life under the desert's scorching sun. Their thick trunks store water, while their branches reflect heat, helping them endure harsh conditions. Reaching up to 23 feet in height, with some living for more than 100 years, quiver trees are also vital to their ecosystem. They offer rare perches and nesting sites for birds in landscapes where few other trees exist.
+> 
+> The name 'quiver' comes from the Indigenous San people, who once hollowed out the branches to craft lightweight arrow holders, or quivers. The Quiver Tree Forest near Keetmanshoop is a national monument and one of Namibia's most photographed sites. With some of the clearest skies on Earth, the desert provides a perfect backdrop for stargazing. In today's image, quiver trees stand silhouetted against the Milky Way. Though climate shifts are altering their natural range, these trees remain a symbol of Namibia's rugged beauty—and a reminder of how nature adapts in the most imaginative ways.
+> 
+> 
+
+</details>
+
+| ![Quiver trees, Keetmanshoop, Namibia](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Quiver trees, Keetmanshoop, Namibia](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |
+
 ### 20251112
 
 > Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.WillowBear_EN-US6995170630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.WillowBear_EN-US6995170630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WillowBear_EN-US6995170630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WillowBear_EN-US6995170630_1080x1920.jpg) |
-
-### 20251106
-
-> Colorful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> What would you wish for if a single lantern could carry your heart's desire skyward? Tonight, in northern Thailand, the Yi Peng festival offers that chance. This centuries-old Lanna tradition celebrates the 12th lunar month with glowing paper lanterns—khom loi—that are released to honor the Buddha. Each lantern is believed to carry away misfortune and light the way toward a brighter future. Children steady the lantern frames, elders whisper blessings, and the crowd pauses as hundreds of lights drift higher than the trees. Farther south, the same full moon watches over Loy Krathong, a sister festival, where candlelit rafts glide across the water.
-> 
-> One striking place to witness Yi Peng is the temple of Phra That Hariphunchai, Lamphun, as seen in today's image. Its origins date back to 897, when the Hariphunchai king built a stupa to enshrine a strand of the Buddha's hair. That same stupa still stands at the center, with the rest of the complex built around it over centuries. Surrounding halls feature woodwork showcasing generations of craftsmanship. During the festival, the temple becomes a bridge between past and present, joining ancient prayers with quiet hopes in the sky.
-> 
-> 
-
-</details>
-
-| ![Celebrating Yi Peng](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Yi Peng](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_1080x1920.jpg) |andscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WillowBear_EN-US6995170630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WillowBear_EN-US6995170630_1080x1920.jpg) |74347_1080x1920.jpg) |andscape 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
