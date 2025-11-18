@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251116
+
+> A traboule in Lyon, France (© TPopova/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In Lyon, France, you don't just walk through the city—you glide through it. The traboules, a network of hidden passageways threading between courtyards and buildings, turn a simple stroll into a treasure hunt. They were the original shortcuts, allowing residents to dodge rain, carry goods, or move discreetly through the medieval quarters. Today, they're less about practicality and more about discovery. These passages date back to the fourth century but became essential during the Renaissance, when silk traders used them to shuttle delicate fabrics safely from workshops to the river without braving the weather. Later, during World War II, Resistance fighters used the traboules as escape routes.
+> 
+> Most of Lyon's traboules are tucked away in the Vieux Lyon and Croix-Rousse districts. Push open what looks like an ordinary wooden door, and you might step into a courtyard with spiral staircases, arched galleries, and stone corridors that snake between buildings. Some passages are public, some private, and all of them blur the line between indoors and outdoors. Walking a traboule is like flipping through the city's footnotes. You're right in the heart of a living neighborhood, yet moving through centuries of history.
+> 
+> 
+
+</details>
+
+| ![A traboule in Lyon, France](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A traboule in Lyon, France](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_1080x1920.jpg) |
+
 ### 20251115
 
 > Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![47 years of Badlands National Park](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![47 years of Badlands National Park](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_1080x1920.jpg) |
-
-### 20251109
-
-> Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)
-
-<details>
-<summary>Description</summary>
-
-> The universe hums with creation. Featured here, in the Lagoon Nebula, a cluster called NGC 6530 is kindling newborn stars, a glowing reminder that beginnings are woven into the fabric of the cosmos. About 4,350 light-years away and a few million years old, it is a stellar formation still in its earliest chapter.
-> 
-> The world celebrates Carl Sagan Day every November 9 to honor the astronomer who shared distant wonders through stories people could understand. Founded in 2009, the day is observed worldwide, marked by lectures, planetarium shows, and stargazing nights that carry Sagan's call for scientific curiosity.
-> 
-> Carl Sagan's legacy stretches from NASA's Voyager missions and the Golden Record to his Cosmos television series, inspiring millions to see science as both reason and a source of endless possibilities. At Cornell University, home to the Carl Sagan Institute, his vision continues through the search for habitable worlds and the celebration of cosmic discovery. In the night sky, NGC 6530 offers a fitting tribute: a nursery of suns forming within clouds of gas and dust, echoing Sagan's reminder that 'We are made of star stuff.'
-
-</details>
-
-| ![Carl Sagan Day](https://cn.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Carl Sagan Day](https://cn.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
