@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251117
+
+> Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> National Take a Hike Day is more than a date—it's an invitation to step away from screens and into the rhythm of nature. Created by the American Hiking Society, this day celebrates the simple act of walking under open skies and reminds us that health and happiness often begin with a single stride. Across 60,000 miles of US trails, hikers rediscover the quiet magic of forests, the strength in their own breath, and the promise of unspoiled landscapes.
+> 
+> And then there's Shenandoah National Park, Virginia's mountain jewel. Here, the Blue Ridge Mountains wear their finest colors—golden hickories, crimson maples, and oaks brushed in bronze. By November, the air turns crisp, and the last embers of fall cling to the hillsides like whispered secrets. Skyline Drive winds for 105 miles, offering vistas where clouds drift like thoughts across endless valleys. Trails—more than 500 miles of them—lead to places where waterfalls tumble and summits greet the horizon. Stony Man, Hawksbill, Dark Hollow Falls—each a poem written in stone and leaf, waiting for footsteps to rhyme with the wind.
+> 
+> 
+
+</details>
+
+| ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_1080x1920.jpg) |
+
 ### 20251116
 
 > A traboule in Lyon, France (© TPopova/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Marine Corps War Memorial, Arlington, Virginia](https://cn.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Marine Corps War Memorial, Arlington, Virginia](https://cn.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_1080x1920.jpg) |
-
-### 20251110
-
-> Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On November 10, 47 years ago, a stark stretch of South Dakota prairie gained recognition as one of America's natural treasures. Badlands National Park, carved by wind and water, was redesignated from national monument to national park status in 1978, securing stronger protection within the National Park System. Its cliffs and spires rise above fossil beds that reveal ancient rhinoceroses, camels, and subtropical seas. Yet the park is not only a window into the past; it also safeguards one of the largest remaining tracts of mixed-grass prairie in the US.
-> 
-> The prairie hums with life. Bison roam the open range, bighorn sheep climb steep bluffs, and prairie dogs build underground colonies, known as 'towns,' that can stretch for miles. Roberts Prairie Dog Town, where today's image was captured, is the park's largest accessible colony, supporting nearly 200 plant and animal species. Once labeled pests, prairie dogs are now recognized as keystone species, as they give rise to soil aeration and plant diversity. The park's anniversary marks its redesignation, but also reminds us that the Badlands endures not just as a rugged formation, but as a living and breathing prairie.
-> 
-> 
-
-</details>
-
-| ![47 years of Badlands National Park](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![47 years of Badlands National Park](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_1080x1920.jpg) |DogTown_EN-US6854295076_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
