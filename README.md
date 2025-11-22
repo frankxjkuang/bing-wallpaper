@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251120
+
+> Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> On the lawns of the United Nations headquarters in Geneva, two children lean over a blank page, sketching the world as they dream it could be. This scene unfolds in 'World in Progress II,' a monumental land art painting created by Swiss-French artist Saype in 2020. Made with biodegradable paint, the artwork depicts the vision and innocence at the heart of World Children's Day—a spirit mirrored in today's featured image. Look closer, and you'll spot the artist himself posing with his artwork.
+> 
+> Each year on November 20, the world unites to celebrate children and defend their rights. What began in 1954 as a UN initiative grew into a landmark observance anchored by two historic milestones: the 1959 Declaration and the 1989 Convention on the Rights of the Child. These commitments have carved a global promise—one that speaks of education, equality, safety, and the simple right to be heard.
+> 
+> Today, UNICEF and communities around the world carry this vision forward through campaigns, conversations, and moments that encourage adults to pause—and truly listen to what children have to say.
+
+</details>
+
+| ![World Children's Day](https://cn.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Children's Day](https://cn.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_1080x1920.jpg) |
+
 ### 20251119
 
 > Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Manatee Awareness Month](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Manatee Awareness Month](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg) |
-
-### 20251113
-
-> Quiver trees under the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)
-
-<details>
-<summary>Description</summary>
-
-> Of all the plants on Earth, the quiver tree looks the most like a vision from the future. Found in Southern Africa, including parts of Namibia, these striking giants are not true trees but a species of aloe adapted to life under the desert's scorching sun. Their thick trunks store water, while their branches reflect heat, helping them endure harsh conditions. Reaching up to 23 feet in height, with some living for more than 100 years, quiver trees are also vital to their ecosystem. They offer rare perches and nesting sites for birds in landscapes where few other trees exist.
-> 
-> The name 'quiver' comes from the Indigenous San people, who once hollowed out the branches to craft lightweight arrow holders, or quivers. The Quiver Tree Forest near Keetmanshoop is a national monument and one of Namibia's most photographed sites. With some of the clearest skies on Earth, the desert provides a perfect backdrop for stargazing. In today's image, quiver trees stand silhouetted against the Milky Way. Though climate shifts are altering their natural range, these trees remain a symbol of Namibia's rugged beauty—and a reminder of how nature adapts in the most imaginative ways.
-> 
-> 
-
-</details>
-
-| ![Quiver trees, Keetmanshoop, Namibia](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Quiver trees, Keetmanshoop, Namibia](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
