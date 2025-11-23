@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251121
+
+> Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> This harbor seal, photographed at Robert Moses State Park on Long Island, New York, seems to be onto something—spreading good vibes, one wave at a time. That's exactly the spirit of World Hello Day, celebrated every November 21. This cheerful observance began in 1973 when two American brothers, Brian and Michael McCormack, launched it as a peaceful response to global tensions. They mailed 1,360 letters in seven languages to world leaders, inviting them to join the first celebration. Their message was simple yet powerful: personal communication can help preserve peace. Today, people in more than 180 countries participate.
+> 
+> Seals, it turns out, raise their flippers primarily for thermoregulation. But to us, it looks like they're saying 'hello,' making them the perfect mascots for the day. So, as you look at this waving seal, take its cue: say hello to someone new today—a neighbor, a coworker, or even a passerby. One word might just make a ripple of peace across your own little sea.
+> 
+> 
+
+</details>
+
+| ![World Hello Day](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Hello Day](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_1080x1920.jpg) |
+
 ### 20251120
 
 > Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Irohazaka Road in fall, Nikko, Tochigi, Japan](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Irohazaka Road in fall, Nikko, Tochigi, Japan](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_1080x1920.jpg) |
-
-### 20251114
-
-> Mother manatee and calf, Crystal River, Florida (© Gregory Sweeney/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> November isn't just about turkey dinners and pumpkin pie—it's also Manatee Awareness Month, when we show some love to the ocean's chillest stars. Forget dolphins doing flips or sharks stealing headlines—manatees win hearts by doing, well, almost nothing. And that's the charm.
-> 
-> Manatees are found in the warm coastal waters of the Caribbean Sea, the Gulf of Mexico, the Amazon Basin, and West Africa. They can weigh up to 1,200 pounds, yet their diet is strictly vegetarian. These whiskered mammals are slow swimmers in a fast-paced world. They cruise at around 5 miles per hour—great for relaxing, not so great when speedboats come charging through. That's why 'no-wake zones,' or sections of waterways with a strict speed limit, are there to keep manatees safe.
-> 
-> Despite the 'sea cow' nickname, these marine animals are closer genetically to elephants than cattle. And like elephants, they're gentle giants with no interest in picking fights. Their biggest battles are against human-made threats: pollution, habitat loss, and boat collisions. So, what can you do? Support conservation, spread the word, and if you're boating in their waters, channel your inner manatee and take it slow.
-
-</details>
-
-| ![Manatee Awareness Month](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Manatee Awareness Month](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
