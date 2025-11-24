@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251122
+
+> Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> There are big statues—and then there's the Leshan Giant Buddha. Carved into a riverside cliff at the confluence of the Min, Qingyi, and Dadu Rivers in Sichuan, China, this statue is an ancient engineering marvel. Construction began in 713 CE under a monk named Hai Tong, who hoped that the Buddha's presence would calm dangerous river currents that threatened passing boats. He was so devoted that when funding ran out, he reportedly gouged out his own eyes to prove his sincerity. Construction took roughly 90 years and was completed long after Hai Tong's death. At 233 feet tall, it is the largest stone Buddha in the world. Its shoulders stretch about 92 feet wide, its ears measure nearly 23 feet long, and each foot extends over 28 feet. Drainage channels built inside the statue protect it from erosion, helping explain its remarkable preservation for more than 12 centuries.
+> 
+> Together with the Mount Emei Scenic Area, the Leshan Giant Buddha became a UNESCO World Heritage Site in 1996. Although time, weather, and pollution have taken their toll, continuous conservation work ensures it remains one of China's most treasured cultural landmarks.
+> 
+> 
+
+</details>
+
+| ![Leshan Giant Buddha, Sichuan, China](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Leshan Giant Buddha, Sichuan, China](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1080x1920.jpg) |
+
 ### 20251121
 
 > Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![A traboule in Lyon, France](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A traboule in Lyon, France](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_1080x1920.jpg) |
-
-### 20251115
-
-> Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> If you think the alphabet is straightforward, Japan's Irohazaka Road in Nikko will twist that belief right out of you. Named after the old Japanese syllabary 'Iroha,' this mountain pass once had 48 hairpin bends—each curve matched to a character of the alphabet. Today, it's a pair of separate one-way roads—one goes up, the other comes down, and both make drivers feel as if they're spelling out a story with every turn.
-> 
-> Fall is when Irohazaka truly shows off, as captured in today's image. From late October to early November, maple reds, ginkgo golds, and larch yellows spill down the slopes. The winding route also leads to some of Nikko's greatest hits. Climb up, and you'll reach the Akechidaira Plateau. Here, a ropeway gives you sweeping views of Lake Chuzenji and the powerful Kegon Falls. At the top, Lake Chuzenji offers a calm contrast to the dizzying drive, while the waterfall roars below. Centuries ago, pilgrims took this same route to reach sacred shrines and temples. Today, travelers follow in their tracks, though probably with more camera clicks than chants.
-> 
-> 
-
-</details>
-
-| ![Irohazaka Road in fall, Nikko, Tochigi, Japan](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Irohazaka Road in fall, Nikko, Tochigi, Japan](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_1080x1920.jpg) |_EN-US5594953777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
