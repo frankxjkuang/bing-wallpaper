@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251123
+
+> Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Look closely at this ammonite fossil. Its swirling shell, once home to a prehistoric sea creature, holds a mathematical secret—a spiral pattern. Each new chamber is proportionally larger than the previous one, maintaining a consistent growth ratio, often associated with the Fibonacci sequence.
+> 
+> Each November 23, we celebrate Fibonacci Day, named after the 13th-century Italian mathematician Leonardo Bonacci (Fibonacci), who introduced the concept to Europe. The pattern 1, 1, 2, 3, 5, 8…—where each number is the sum of the two before it—was, however, first described in India as early as 200 BCE by the ancient poet-mathematician Pingala. The Fibonacci sequence appears widely in nature, including pineapples, artichokes, pinecones, and the arrangement of leaves on a stem.
+> 
+> Ammonites were mollusks that lived between 400 and 66 million years ago, gliding through ancient seas inside coiled shells that protected their soft bodies. When ammonites perished, sediment buried their shells, and minerals slowly turned them to stone, preserving this natural geometry for millions of years. Today, the ammonite fossil is a striking reminder that math and nature speak the same language.
+
+</details>
+
+| ![Fibonacci Day](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fibonacci Day](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1080x1920.jpg) |
+
 ### 20251122
 
 > Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_1080x1920.jpg) |
-
-### 20251116
-
-> A traboule in Lyon, France (© TPopova/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In Lyon, France, you don't just walk through the city—you glide through it. The traboules, a network of hidden passageways threading between courtyards and buildings, turn a simple stroll into a treasure hunt. They were the original shortcuts, allowing residents to dodge rain, carry goods, or move discreetly through the medieval quarters. Today, they're less about practicality and more about discovery. These passages date back to the fourth century but became essential during the Renaissance, when silk traders used them to shuttle delicate fabrics safely from workshops to the river without braving the weather. Later, during World War II, Resistance fighters used the traboules as escape routes.
-> 
-> Most of Lyon's traboules are tucked away in the Vieux Lyon and Croix-Rousse districts. Push open what looks like an ordinary wooden door, and you might step into a courtyard with spiral staircases, arched galleries, and stone corridors that snake between buildings. Some passages are public, some private, and all of them blur the line between indoors and outdoors. Walking a traboule is like flipping through the city's footnotes. You're right in the heart of a living neighborhood, yet moving through centuries of history.
-> 
-> 
-
-</details>
-
-| ![A traboule in Lyon, France](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A traboule in Lyon, France](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_1080x1920.jpg) |_EN-US5594953777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_1080x1920.jpg) |raboules_EN-US9432784340_1080x1920.jpg) |_EN-US5594953777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
