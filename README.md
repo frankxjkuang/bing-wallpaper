@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251124
+
+> Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Gwalior, in Madhya Pradesh, is not just a city; it is a chapter of India's history. Towering over the skyline, Gwalior Fort is a 6th-century hill fort shaped by generations of rulers and wrapped in legend. Nicknamed 'the Gibraltar of India,' this fort was praised by Mughal emperor Babur as the 'pearl among the fortresses of Hind' for its strength and grandeur. The fort has seen rulers from the Tomars to the Mughals and is linked to battles, royal intrigue, and hidden treasures.
+> 
+> The fort has six palaces, two of which were built by Raja Man Singh Tomar, who reigned from 1486 to 1516. The architecture reflects a blend of Hindu and Mughal styles. Key landmarks include the Man Mandir Palace, with its turquoise-tiled exterior, and the Sas-Bahu Temples, dedicated to Lord Aniruddha and Lord Shiva. Teli Temple, a rectangular shrine without pillared pavilions, stands out among other such structures. Secret passages and hidden vaults hint at treasures long rumored to be stored inside.
+> 
+> As the sun sets behind the walls, a sound and light show brings the fort alive, narrating stories of kings, warriors, and dynasties. The majestic Gwalior Fort draws visitors into history that lingers long after they have left.
+
+</details>
+
+| ![Gwalior Fort, Madhya Pradesh, India](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gwalior Fort, Madhya Pradesh, India](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1080x1920.jpg) |
+
 ### 20251123
 
 > Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Male hooded merganser, Oregon](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Male hooded merganser, Oregon](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_1080x1920.jpg) |
-
-### 20251117
-
-> Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> National Take a Hike Day is more than a date—it's an invitation to step away from screens and into the rhythm of nature. Created by the American Hiking Society, this day celebrates the simple act of walking under open skies and reminds us that health and happiness often begin with a single stride. Across 60,000 miles of US trails, hikers rediscover the quiet magic of forests, the strength in their own breath, and the promise of unspoiled landscapes.
-> 
-> And then there's Shenandoah National Park, Virginia's mountain jewel. Here, the Blue Ridge Mountains wear their finest colors—golden hickories, crimson maples, and oaks brushed in bronze. By November, the air turns crisp, and the last embers of fall cling to the hillsides like whispered secrets. Skyline Drive winds for 105 miles, offering vistas where clouds drift like thoughts across endless valleys. Trails—more than 500 miles of them—lead to places where waterfalls tumble and summits greet the horizon. Stony Man, Hawksbill, Dark Hollow Falls—each a poem written in stone and leaf, waiting for footsteps to rhyme with the wind.
-> 
-> 
-
-</details>
-
-| ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_1080x1920.jpg) |raboules_EN-US9432784340_1080x1920.jpg) |_EN-US5594953777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_1080x1920.jpg) |bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
