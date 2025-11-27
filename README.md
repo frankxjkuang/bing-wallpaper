@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251125
+
+> The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Ever heard coins clinking louder than applause? That's the Trevi Fountain in Rome, Italy, for you—a spot where history, hope, and selfie sticks collide. Completed in 1762, it marks the endpoint of one of ancient Rome's earliest aqueducts, the Aqua Virgo, which still supplies water today. The name 'Trevi' comes from Tre Vie—'three roads'—signifying the junction where it stands. Designed by Italian architect Nicola Salvi and finished by Giuseppe Pannini, this 86-foot marvel is the largest Baroque fountain in the city and one of the most famous in the world. Its sculptures show Oceanus, the god of the sea, surrounded by Tritons and horses.
+> 
+> Visitors come for the view but stay for the ritual: toss a coin over your left shoulder and make a wish. Legend says one coin guarantees a return to Rome, two bring love, and three lead to marriage. Around $3,000 to $4,000 worth of coins are thrown daily—roughly $1.5 million a year—all donated to charity. From the iconic 1960 film 'La Dolce Vita' to LEGO's Trevi Fountain set, and even a replica near Caesars Palace in Las Vegas, this masterpiece still inspires. So, what would you wish for?
+> 
+> 
+
+</details>
+
+| ![Trevi Fountain, Rome, Italy](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Trevi Fountain, Rome, Italy](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_1080x1920.jpg) |
+
 ### 20251124
 
 > Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Hungarian Parliament Building, Budapest, Hungary](https://cn.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hungarian Parliament Building, Budapest, Hungary](https://cn.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_1080x1920.jpg) |
-
-### 20251118
-
-> Male hooded merganser, Oregon (© Eric Vogt/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Each fall, Oregon's quiet waterways become seasonal waypoints for hooded mergansers—small diving ducks native to North America. They are agile divers, plunging beneath the surface to catch fish and other prey. Males, known as drakes, stand out with their fan-shaped white crests, dark heads, and chestnut-brown sides, while females, called hens, are brownish gray with smaller crests. Oregon's lakes and wetlands provide sheltered feeding grounds as these birds migrate or winter across the continent.
-> 
-> Among the six living merganser species, hooded mergansers are the second smallest. They are known for their striking courtship displays, where males raise their crests dramatically to attract mates, creating unmistakable shapes on still water. They nest in tree cavities near wetlands, and soon after hatching, ducklings leap to the ground to follow their mother to water. Classified as Least Concern on the International Union for Conservation of Nature's Red List, their populations remain stable across their range. First described in 1758, their genus name, 'Lophodytes,' means 'crest diver' in Greek—a nod to both their plumage and underwater hunting skill.
-> 
-> 
-
-</details>
-
-| ![Male hooded merganser, Oregon](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Male hooded merganser, Oregon](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_1080x1920.jpg) |bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_1080x1920.jpg) |51_1080x1920.jpg) |bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
