@@ -1,138 +1,137 @@
 ## bing wallpaper
 
-### 20251125
+### 20251127
 
-> The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)
+> 伊斯特本码头, 东萨塞克斯郡, 英格兰 (© Tolga_TEZCAN/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Ever heard coins clinking louder than applause? That's the Trevi Fountain in Rome, Italy, for you—a spot where history, hope, and selfie sticks collide. Completed in 1762, it marks the endpoint of one of ancient Rome's earliest aqueducts, the Aqua Virgo, which still supplies water today. The name 'Trevi' comes from Tre Vie—'three roads'—signifying the junction where it stands. Designed by Italian architect Nicola Salvi and finished by Giuseppe Pannini, this 86-foot marvel is the largest Baroque fountain in the city and one of the most famous in the world. Its sculptures show Oceanus, the god of the sea, surrounded by Tritons and horses.
+> 作为英国海滨的地标之一，伊斯特本码头不仅掀起浪花，更在浪潮中屹立了150余年。它于 1870年正式开放，这座维多利亚时代的奇迹经历了风暴、火灾，甚至战争的洗礼。码头优雅地伸向英吉利海峡，最初作为蒸汽船的停靠点，后来随着时间的推移，逐渐演变为一处可以漫步于海面之上，在游戏机前投入几枚硬币，收获几段美好回忆的休闲胜地。
 > 
-> Visitors come for the view but stay for the ritual: toss a coin over your left shoulder and make a wish. Legend says one coin guarantees a return to Rome, two bring love, and three lead to marriage. Around $3,000 to $4,000 worth of coins are thrown daily—roughly $1.5 million a year—all donated to charity. From the iconic 1960 film 'La Dolce Vita' to LEGO's Trevi Fountain set, and even a replica near Caesars Palace in Las Vegas, this masterpiece still inspires. So, what would you wish for?
+> 1877年，一场猛烈的风暴摧毁了码头靠岸的一半结构，重建时，人们将其抬高并架设在桩柱上，使其能在恶劣天气中轻微摇动，从而抵御冲击。二战期间，部分甲板被拆除，以安装机枪用于沿岸防御。2014年的一场火灾几乎让码头毁于一旦，但修复工作使它重新开放，咖啡馆、商店一应俱全，与海鸥的鸣声再次为其增添了生气。除了展现出强大的生命力，伊斯特本码头还成为影视作品的常客，从经典剧集《波洛》到《郎心如铁》，再到《艺术创想》，它以独特的英伦魅力持续闪耀在荧幕与现实之间。
 > 
 > 
 
 </details>
 
-| ![Trevi Fountain, Rome, Italy](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Trevi Fountain, Rome, Italy](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![伊斯特本码头, 东萨塞克斯郡, 英格兰](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![伊斯特本码头, 东萨塞克斯郡, 英格兰](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_1080x1920.jpg) |
+
+### 20251126
+
+> 特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙 (© cinoby/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 古老而充满生机，扭曲却坚韧不拔，橄榄树可以存活超过一千年。即便树干伤痕累累、内部中空，它们依然年复一年抽出新叶，成为记录风霜、旱灾与烈火的生命见证。2019年，联合国教科文组织将11月26日定为世界橄榄树日，以纪念这种自约公元前6000年起就被人类栽培的树种。橄榄自古以来不仅承载着实用价值，也蕴含着深刻的象征意义：橄榄油被用于涂抹仪式、医药与日常食用；橄榄叶编织的花环曾加冕奥运冠军；而橄榄枝，更成为延续至今的和平象征。
+> 
+> 位于巴利阿里海中的西班牙马略卡岛，正是这段悠久历史的缩影。岛上遍布如今日图片中特拉蒙塔纳山脉般的古老橄榄林，其中一些树木的年岁甚至早于岛上的中世纪大教堂。这里的橄榄被轻柔采摘、数小时内压榨成油，因其果香、杏仁香与草本香而备受珍视。每一场收获都延续着千年的传承：果实滋养生命，木材燃起炉火，根系稳固山坡。跨越千年，橄榄树作为人类文明的见证者，与我们一同走过岁月：始终坚韧、持久，且绿意盎然。
+> 
+> 
+
+</details>
+
+| ![世界橄榄树日](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界橄榄树日](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_1080x1920.jpg) |
+
+### 20251125
+
+> 罗马的特雷维喷泉, 意大利 (© Nico De Pasquale Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 你是否听过比掌声更响亮的硬币碰撞声？这正是意大利罗马的特莱维喷泉的独特旋律。一个历史、希望与自拍杆交织的地方。喷泉建于1762年，标志着古罗马最早的引水渠之一维尔戈水道的终点，这条水道至今仍在供水。名称“特莱维”源自意大利语 Tre Vie，意为“三条道路”，象征它所处的三路交汇之地。喷泉由建筑师尼古拉·萨尔维设计，后由朱塞佩·潘尼尼完成。这座高达86英尺的巴洛克式杰作，是罗马最大的喷泉，也是世界上最著名的喷泉之一。其雕塑群描绘了海神奥克阿诺斯的威严形象，周围环绕着特里同与骏马，展现出壮丽的神话气势。
+> 
+> 游客们为景而来，却因仪式而留：将一枚硬币从左肩后方抛入喷泉，并许下心愿。传说中，一枚硬币代表你将重返罗马，两枚象征爱情，三枚则预示婚姻。每天约有3,000至4,000美元的硬币投入喷泉，一年累计约150万美元，全部捐赠给慈善机构。从1960年的经典电影《甜蜜的生活》，到乐高的特雷维喷泉模型，甚至拉斯维加斯凯撒宫旁的复制品，这座杰作始终令人神往。
+> 
+> 
+
+</details>
+
+| ![特雷维喷泉, 罗马, 意大利](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![特雷维喷泉, 罗马, 意大利](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_1080x1920.jpg) |
 
 ### 20251124
 
-> Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)
+> 瓜廖尔堡, ‌中央邦, 印度 (© ImagesofIndia/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> Gwalior, in Madhya Pradesh, is not just a city; it is a chapter of India's history. Towering over the skyline, Gwalior Fort is a 6th-century hill fort shaped by generations of rulers and wrapped in legend. Nicknamed 'the Gibraltar of India,' this fort was praised by Mughal emperor Babur as the 'pearl among the fortresses of Hind' for its strength and grandeur. The fort has seen rulers from the Tomars to the Mughals and is linked to battles, royal intrigue, and hidden treasures.
+> 位于印度中央邦的瓜廖尔，不仅是一座城市，更是印度历史篇章中浓墨重彩的一页。高耸入云的瓜廖尔堡建于公元6世纪是一座历经无数王朝兴衰、充满传奇色彩的山地堡垒。凭借其坚固与宏伟，这座堡垒被誉为“印度的直布罗陀”，并曾获莫卧儿皇帝巴布尔盛赞，称其为“印度所有堡垒中的明珠”。从托马尔王朝到莫卧儿王朝，瓜廖尔堡见证了无数权力更迭、战争纷争与宫廷秘事，也流传着关于隐藏宝藏的神秘传说。
 > 
-> The fort has six palaces, two of which were built by Raja Man Singh Tomar, who reigned from 1486 to 1516. The architecture reflects a blend of Hindu and Mughal styles. Key landmarks include the Man Mandir Palace, with its turquoise-tiled exterior, and the Sas-Bahu Temples, dedicated to Lord Aniruddha and Lord Shiva. Teli Temple, a rectangular shrine without pillared pavilions, stands out among other such structures. Secret passages and hidden vaults hint at treasures long rumored to be stored inside.
+> 这座古堡有六座宫殿，其中两座是由1486年至1516年在位的拉贾·曼·辛格·托马尔建造的。其建筑风格融合了印度教和莫卧儿风格。主要景点包括外观铺有蓝绿色瓷砖的曼曼迪尔宫，以及供奉着阿尼鲁杜和湿婆神的萨斯-巴胡庙。特利庙是一座没有柱廊的长方形神殿，在同类建筑中独树一帜。城堡中还有密道和隐秘的金库，据说里面藏有大量财宝。
 > 
-> As the sun sets behind the walls, a sound and light show brings the fort alive, narrating stories of kings, warriors, and dynasties. The majestic Gwalior Fort draws visitors into history that lingers long after they have left.
+> 当夕阳洒落在城墙之上，夜幕降临，一场声光秀让古堡重新焕发生机，诉说着国王、勇士与王朝的故事。雄伟的瓜廖尔堡吸引着无数游客，也让历史在他们离开后仍久久回荡。
 
 </details>
 
-| ![Gwalior Fort, Madhya Pradesh, India](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gwalior Fort, Madhya Pradesh, India](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![瓜廖尔堡, ‌中央邦, 印度](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![瓜廖尔堡, ‌中央邦, 印度](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_1080x1920.jpg) |
 
 ### 20251123
 
-> Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)
+> 马达加斯加菊石化石 (© ThomasLENNE/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> Look closely at this ammonite fossil. Its swirling shell, once home to a prehistoric sea creature, holds a mathematical secret—a spiral pattern. Each new chamber is proportionally larger than the previous one, maintaining a consistent growth ratio, often associated with the Fibonacci sequence.
+> 仔细观察这块菊石化石。它那优雅盘旋的螺壳，曾是史前海洋生物的家，如今却蕴藏着一个数学的秘密：螺旋结构。每一个新的壳室都比前一个按比例增大，保持着恒定的生长比，这种规律常被认为与斐波那契数列密切相关。
 > 
-> Each November 23, we celebrate Fibonacci Day, named after the 13th-century Italian mathematician Leonardo Bonacci (Fibonacci), who introduced the concept to Europe. The pattern 1, 1, 2, 3, 5, 8…—where each number is the sum of the two before it—was, however, first described in India as early as 200 BCE by the ancient poet-mathematician Pingala. The Fibonacci sequence appears widely in nature, including pineapples, artichokes, pinecones, and the arrangement of leaves on a stem.
+> 每年的11月23日，人们都会庆祝斐波那契日，以纪念这位13世纪的意大利数学家。然而，这一数列的最早记载可追溯至公元前200年，由古印度诗人兼数学家品迦拉首次提出。他描述了这样的序列：1、1、2、3、5、8……每个数字都是前两个数字之和。斐波那契数列广泛存在于自然界之中，从菠萝、洋蓟、松果到植物茎上的排序，都能看到它的影子。
 > 
-> Ammonites were mollusks that lived between 400 and 66 million years ago, gliding through ancient seas inside coiled shells that protected their soft bodies. When ammonites perished, sediment buried their shells, and minerals slowly turned them to stone, preserving this natural geometry for millions of years. Today, the ammonite fossil is a striking reminder that math and nature speak the same language.
+> 菊石是一类生活在距今约4亿年至6600万年前的软体动物，它们在远古海洋中滑行，螺旋壳保护柔软的身体。死亡后，壳体被沉积物掩埋，矿物质在漫长岁月中渗入其中，将这份自然的几何美永久定格。如今，菊石化石静静提醒着我们：数学与自然，其实说着同一种语言。
 
 </details>
 
-| ![Fibonacci Day](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fibonacci Day](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![斐波那契日](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![斐波那契日](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1080x1920.jpg) |
 
 ### 20251122
 
-> Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)
+> 乐山大佛, 四川, 中国 (© www.anotherdayattheoffice.org/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> There are big statues—and then there's the Leshan Giant Buddha. Carved into a riverside cliff at the confluence of the Min, Qingyi, and Dadu Rivers in Sichuan, China, this statue is an ancient engineering marvel. Construction began in 713 CE under a monk named Hai Tong, who hoped that the Buddha's presence would calm dangerous river currents that threatened passing boats. He was so devoted that when funding ran out, he reportedly gouged out his own eyes to prove his sincerity. Construction took roughly 90 years and was completed long after Hai Tong's death. At 233 feet tall, it is the largest stone Buddha in the world. Its shoulders stretch about 92 feet wide, its ears measure nearly 23 feet long, and each foot extends over 28 feet. Drainage channels built inside the statue protect it from erosion, helping explain its remarkable preservation for more than 12 centuries.
+> 世上有许多巨像，但没有一座能与乐山大佛相比。它坐落于中国四川省岷江、青衣江与大渡河三江汇流处的峭壁之上，是古代工程学的奇迹。建造始于公元713年，由一位名叫海通的僧人发起，他希望佛像的存在能平息险恶的水流，庇护来往的船只。据传，当工程因资金短缺而停滞时，海通为表诚心，甚至挖去了自己的双眼。整项工程历时约90年，直至他去世多年后才告完工。这尊佛像高达71米，是世界上最大的石刻佛像。其双肩宽约28米，耳长近7米，每只脚掌的长度超过8.5米。佛像内部设有隐蔽的排水系统，能有效防止雨水侵蚀，也因此得以在 1200多年的岁月里屹立不倒。
 > 
-> Together with the Mount Emei Scenic Area, the Leshan Giant Buddha became a UNESCO World Heritage Site in 1996. Although time, weather, and pollution have taken their toll, continuous conservation work ensures it remains one of China's most treasured cultural landmarks.
+> 1996年，乐山大佛与峨眉山风景区一同被列入联合国教科文组织世界遗产名录。尽管岁月、风雨与污染在其身上留下了痕迹，但持续的修复与保护工作，使这尊巍然大佛依然庄严矗立，成为中国最珍贵的文化地标之一。静静守望着滔滔江水，见证信仰与时光的流转。
 > 
 > 
 
 </details>
 
-| ![Leshan Giant Buddha, Sichuan, China](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Leshan Giant Buddha, Sichuan, China](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![乐山大佛, 四川, 中国](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![乐山大佛, 四川, 中国](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_1080x1920.jpg) |
 
 ### 20251121
 
-> Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+> 罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> This harbor seal, photographed at Robert Moses State Park on Long Island, New York, seems to be onto something—spreading good vibes, one wave at a time. That's exactly the spirit of World Hello Day, celebrated every November 21. This cheerful observance began in 1973 when two American brothers, Brian and Michael McCormack, launched it as a peaceful response to global tensions. They mailed 1,360 letters in seven languages to world leaders, inviting them to join the first celebration. Their message was simple yet powerful: personal communication can help preserve peace. Today, people in more than 180 countries participate.
+> 每只港海豹身上都有独一无二的斑点花纹：浅色背景上点缀深色斑，或深色底上布满浅色斑。它们的体色从棕黑到浅褐、灰色不等，腹部通常颜色较浅。这只拍摄于纽约长岛罗伯特·摩西州立公园的港海豹，似乎正在用自己的方式传递友好，一次挥动，一份好心情。这正是每年11月21日 “世界问候日” 所倡导的精神。这个充满善意的节日诞生于1973年，由两位美国兄弟布莱恩和迈克尔·麦考马克发起，作为对全球紧张局势的和平回应。那一年，他们用七种语言向世界各国领导人寄出1360封信，邀请他们参与首次庆祝活动。两人的信念简单却有力：沟通能够守护和平。 如今，已有180多个国家的人们参与其中。
 > 
-> Seals, it turns out, raise their flippers primarily for thermoregulation. But to us, it looks like they're saying 'hello,' making them the perfect mascots for the day. So, as you look at this waving seal, take its cue: say hello to someone new today—a neighbor, a coworker, or even a passerby. One word might just make a ripple of peace across your own little sea.
+> 至于海豹，它们举起鳍肢的真正原因其实是为了调节体温。但在我们看来，那动作更像是在说“你好”。这也让它们成为这一天最合适的吉祥物。当你看到这只挥手的海豹时，不妨也跟随它的示范：今天向某个新认识的人说声“你好”吧！也许是邻居、同事，或者只是擦肩而过的陌生人。一个简单温暖的问候，或许就能在你的生活中荡起一圈和平的涟漪。
 > 
 > 
 
 </details>
 
-| ![World Hello Day](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Hello Day](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![世界问候日](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界问候日](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_1080x1920.jpg) |
-
-### 20251120
-
-> Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> On the lawns of the United Nations headquarters in Geneva, two children lean over a blank page, sketching the world as they dream it could be. This scene unfolds in 'World in Progress II,' a monumental land art painting created by Swiss-French artist Saype in 2020. Made with biodegradable paint, the artwork depicts the vision and innocence at the heart of World Children's Day—a spirit mirrored in today's featured image. Look closer, and you'll spot the artist himself posing with his artwork.
-> 
-> Each year on November 20, the world unites to celebrate children and defend their rights. What began in 1954 as a UN initiative grew into a landmark observance anchored by two historic milestones: the 1959 Declaration and the 1989 Convention on the Rights of the Child. These commitments have carved a global promise—one that speaks of education, equality, safety, and the simple right to be heard.
-> 
-> Today, UNICEF and communities around the world carry this vision forward through campaigns, conversations, and moments that encourage adults to pause—and truly listen to what children have to say.
-
-</details>
-
-| ![World Children's Day](https://cn.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Children's Day](https://cn.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_1080x1920.jpg) |
-
-### 20251119
-
-> Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Step closer, and the details begin to speak—every stone, spire, and statue seems to hold a story of its own. Conceived in the late 19th century, the Hungarian Parliament Building was designed to reflect a nation's ambition, blending Gothic Revival elegance with distinctly Hungarian motifs. Architect Imre Steindl's vision took shape over two decades through the work of more than 1,000 craftsmen. Even the central dome, rising 315 feet (96 meters) high, carries meaning: the height honors the year of Hungary's millennium anniversary in 1896. Completed in 1904, the building still dominates Budapest's skyline as a powerful national symbol.
-> 
-> Step inside, and the richness deepens. Gold leaf shimmers across staircases and halls, while statues of rulers and national figures line the corridors, turning history into spectacle. Beyond its political role, the Parliament has become a cultural emblem—hosting state ceremonies, welcoming millions of visitors annually, and earning UNESCO World Heritage status. More than a landmark, it continues to tell Hungary's story through the details that first inspired its creation.
-> 
-> 
-
-</details>
-
-| ![Hungarian Parliament Building, Budapest, Hungary](https://cn.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hungarian Parliament Building, Budapest, Hungary](https://cn.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_1080x1920.jpg) |51_1080x1920.jpg) |bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1080x1920.jpg) |cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1080x1920.jpg) |-:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_1080x1920.jpg) |d_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
