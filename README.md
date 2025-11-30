@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251128
+
+> Collection of silver Native American concho belts, Santa Fe, New Mexico (© julien mcroberts/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Think Thanksgiving weekend is just about turkey and leftovers? Think again—today is Native American Heritage Day. Established in 2009, it celebrates the voices, art, and achievements of Indigenous peoples across the United States. This day is a reminder to look beyond parades and sales and learn from the experiences of those who first shaped this land. Communities host cultural events, storytelling sessions, and feasts featuring dishes like Three Sisters soup, wild rice, pemmican, beans, squash, and buffalo stew—each carrying centuries of legacy.
+> 
+> Among the many traditions that shine today is the concho belt. Developed by Navajo artisans in the late 1860s, these belts combine skill and style. Originally made from Mexican silver pesos melted down and formed into ingots, they are now also crafted from nickel silver or German silver. The oval discs are stamped with designs that often represent natural elements like water, the sun, or butterflies, and some are adorned with turquoise stones. More than a fashion accessory, they are symbols of identity—stories worn proudly and passed down through generations like treasured heirlooms.
+> 
+> 
+
+</details>
+
+| ![Celebrating Native American Heritage Day](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Native American Heritage Day](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_1080x1920.jpg) |
+
 ### 20251127
 
 > Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Leshan Giant Buddha, Sichuan, China](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Leshan Giant Buddha, Sichuan, China](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1080x1920.jpg) |
-
-### 20251121
-
-> Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This harbor seal, photographed at Robert Moses State Park on Long Island, New York, seems to be onto something—spreading good vibes, one wave at a time. That's exactly the spirit of World Hello Day, celebrated every November 21. This cheerful observance began in 1973 when two American brothers, Brian and Michael McCormack, launched it as a peaceful response to global tensions. They mailed 1,360 letters in seven languages to world leaders, inviting them to join the first celebration. Their message was simple yet powerful: personal communication can help preserve peace. Today, people in more than 180 countries participate.
-> 
-> Seals, it turns out, raise their flippers primarily for thermoregulation. But to us, it looks like they're saying 'hello,' making them the perfect mascots for the day. So, as you look at this waving seal, take its cue: say hello to someone new today—a neighbor, a coworker, or even a passerby. One word might just make a ripple of peace across your own little sea.
-> 
-> 
-
-</details>
-
-| ![World Hello Day](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Hello Day](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_1080x1920.jpg) |ealWaving_ZH-CN2467723602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_1080x1920.jpg) |d_EN-US3685817058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
