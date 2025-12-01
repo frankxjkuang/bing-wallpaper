@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251129
+
+> Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Picture 21 square miles of open land, wildlife on the move, and a stag flaunting its crown of antlers. In 1909, husband and wife Anton Kröller and Helene Kröller-Müller began building a private estate in Gelderland, Netherlands—what we now know as De Hoge Veluwe National Park. Their vision? To merge art and nature. They brought it to life by placing artwork within the landscape, like 'Three Upright Motives' by English sculptor Henry Moore in the Pampelse Zand and the President Steyn stone bench by Belgian architect Henry van de Velde, among others.
+> 
+> Today, the park's forests, woodlands, sand dunes, and heathlands shelter wild boar, roe deer, mouflon, wolves, and countless birds. Yet red deer stags steal the show. Adult males weigh 350 to 530 pounds and stand about 40 to 50 inches at the shoulder. They graze on grass, leaves, and shoots, but also won't say no to fruit or acorns. During the rut, stags display their antlers and bellow to claim territory. They may not travel far, but their search for food and mates keeps the park alive with movement.
+> 
+> 
+
+</details>
+
+| ![Red deer stag in De Hoge Veluwe National Park, Netherlands](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red deer stag in De Hoge Veluwe National Park, Netherlands](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_1080x1920.jpg) |
+
 ### 20251128
 
 > Collection of silver Native American concho belts, Santa Fe, New Mexico (© julien mcroberts/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Fibonacci Day](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fibonacci Day](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1080x1920.jpg) |
-
-### 20251122
-
-> Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> There are big statues—and then there's the Leshan Giant Buddha. Carved into a riverside cliff at the confluence of the Min, Qingyi, and Dadu Rivers in Sichuan, China, this statue is an ancient engineering marvel. Construction began in 713 CE under a monk named Hai Tong, who hoped that the Buddha's presence would calm dangerous river currents that threatened passing boats. He was so devoted that when funding ran out, he reportedly gouged out his own eyes to prove his sincerity. Construction took roughly 90 years and was completed long after Hai Tong's death. At 233 feet tall, it is the largest stone Buddha in the world. Its shoulders stretch about 92 feet wide, its ears measure nearly 23 feet long, and each foot extends over 28 feet. Drainage channels built inside the statue protect it from erosion, helping explain its remarkable preservation for more than 12 centuries.
-> 
-> Together with the Mount Emei Scenic Area, the Leshan Giant Buddha became a UNESCO World Heritage Site in 1996. Although time, weather, and pollution have taken their toll, continuous conservation work ensures it remains one of China's most treasured cultural landmarks.
-> 
-> 
-
-</details>
-
-| ![Leshan Giant Buddha, Sichuan, China](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Leshan Giant Buddha, Sichuan, China](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1080x1920.jpg) |uddha_EN-US6412307232_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
