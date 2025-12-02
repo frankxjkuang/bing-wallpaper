@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251130
+
+> Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Do you know what people bought at Christmas markets 567 years ago? Not costly ornaments or fancy souvenirs but candles, spices, local goods, knitted items, and toys. Leipzig's Christmas market began in 1458 and quickly became a favorite stop for merchants and locals alike. Today, with its cultural and culinary offerings spread across the historic old town and about 300 stalls, it is one of the largest Christmas markets in Germany. Imagine streets buzzing with the chatter of traders and children following the scent of 'Lebkuchen'—honey-sweetened cakes. This is where townsfolk gather to celebrate winter and catch up on news while sipping mulled wine. These markets have always symbolized more than shopping—they offer an escape from the everyday routine.
+> 
+> And what is a Christmas market without Santa Claus? In Leipzig, his grand arrival is a tradition. On the Saturday before Advent Sunday, families welcome Santa and his entourage, who arrive on a special train at the main station. Every corner of this city tells a story, from the historic St. Thomas Church to the merry-go-rounds that have delighted children for generations. As you walk through it, the festive spirit feels like a living story, blending centuries of customs with modern celebrations.
+> 
+> 
+
+</details>
+
+| ![Christmas market in Leipzig, Germany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas market in Leipzig, Germany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |
+
 ### 20251129
 
 > Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Gwalior Fort, Madhya Pradesh, India](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gwalior Fort, Madhya Pradesh, India](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1080x1920.jpg) |
-
-### 20251123
-
-> Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Look closely at this ammonite fossil. Its swirling shell, once home to a prehistoric sea creature, holds a mathematical secret—a spiral pattern. Each new chamber is proportionally larger than the previous one, maintaining a consistent growth ratio, often associated with the Fibonacci sequence.
-> 
-> Each November 23, we celebrate Fibonacci Day, named after the 13th-century Italian mathematician Leonardo Bonacci (Fibonacci), who introduced the concept to Europe. The pattern 1, 1, 2, 3, 5, 8…—where each number is the sum of the two before it—was, however, first described in India as early as 200 BCE by the ancient poet-mathematician Pingala. The Fibonacci sequence appears widely in nature, including pineapples, artichokes, pinecones, and the arrangement of leaves on a stem.
-> 
-> Ammonites were mollusks that lived between 400 and 66 million years ago, gliding through ancient seas inside coiled shells that protected their soft bodies. When ammonites perished, sediment buried their shells, and minerals slowly turned them to stone, preserving this natural geometry for millions of years. Today, the ammonite fossil is a striking reminder that math and nature speak the same language.
-
-</details>
-
-| ![Fibonacci Day](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fibonacci Day](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1080x1920.jpg) |uddha_EN-US6412307232_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1080x1920.jpg) |ocks_EN-US3184562282_1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1080x1920.jpg) ||ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
