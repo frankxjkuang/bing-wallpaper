@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251201
+
+> Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> Some photos capture nature's grand acts. Great photos reveal even more in a single frame: the delicate balance between immense power and fragile beauty that surrounds us on Earth. Today's image of a natural arch carved into an Antarctic iceberg does exactly that—a conversation starter about grandeur, vulnerability, our environment, and its present and future.
+> 
+> Antarctica Day, celebrated on December 1, marks the anniversary of the 1959 Antarctic Treaty—a pact that transformed an entire continent—almost 10% of Earth's land surface—into a sanctuary for peace and science. Antarctica, Earth's coldest and most remote wilderness, holds 60% of the planet's freshwater, silently shaping global climate and sea levels. The Antarctic ice sheet is Earth's largest continuous body of ice. Its frozen heart whispers ancient stories through ice cores, guiding us toward the future. To honor this day is to acknowledge the truth: what seems eternal is never beyond reach. The fate of this white expanse is intertwined with ours—its silence is not absence, but a question: what will we choose to answer with?
+> 
+> 
+
+</details>
+
+| ![Antarctica Day](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Antarctica Day](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_1080x1920.jpg) |
+
 ### 20251130
 
 > Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Trevi Fountain, Rome, Italy](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Trevi Fountain, Rome, Italy](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_1080x1920.jpg) |
-
-### 20251124
-
-> Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Gwalior, in Madhya Pradesh, is not just a city; it is a chapter of India's history. Towering over the skyline, Gwalior Fort is a 6th-century hill fort shaped by generations of rulers and wrapped in legend. Nicknamed 'the Gibraltar of India,' this fort was praised by Mughal emperor Babur as the 'pearl among the fortresses of Hind' for its strength and grandeur. The fort has seen rulers from the Tomars to the Mughals and is linked to battles, royal intrigue, and hidden treasures.
-> 
-> The fort has six palaces, two of which were built by Raja Man Singh Tomar, who reigned from 1486 to 1516. The architecture reflects a blend of Hindu and Mughal styles. Key landmarks include the Man Mandir Palace, with its turquoise-tiled exterior, and the Sas-Bahu Temples, dedicated to Lord Aniruddha and Lord Shiva. Teli Temple, a rectangular shrine without pillared pavilions, stands out among other such structures. Secret passages and hidden vaults hint at treasures long rumored to be stored inside.
-> 
-> As the sun sets behind the walls, a sound and light show brings the fort alive, narrating stories of kings, warriors, and dynasties. The majestic Gwalior Fort draws visitors into history that lingers long after they have left.
-
-</details>
-
-| ![Gwalior Fort, Madhya Pradesh, India](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gwalior Fort, Madhya Pradesh, India](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1080x1920.jpg) ||ocks_EN-US3184562282_1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_1080x1920.jpg) |wailorFort_EN-US6671653416_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1080x1920.jpg) ||ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
