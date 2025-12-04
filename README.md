@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251202
+
+> Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska (© Patrick J. Endres/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On December 2, 1980, the Alaska National Interest Lands Conservation Act (ANILCA) reshaped America's conservation history. With one sweeping law, more than 104 million acres of Alaska's wild lands gained lasting protection, like the Wrangell–St. Elias National Park and Preserve, seen here, now the largest national park in the United States. ANILCA balanced preservation with tradition, safeguarding ecosystems while honoring rural subsistence rights.
+> 
+> Wrangell–St. Elias is a realm of extremes: its glaciers sprawling like frozen rivers, volcanic peaks piercing the sky. Among them stands Mount Blackburn, a 16,390-foot sentinel of ice and ancient fire. Its snow-mantled slopes feed vast glacier systems, a silent monument to geological time. Just beyond the park boundary, Willow Lake rests in the Copper River Basin—a roadside jewel along the Richardson Highway. On clear days, its glassy surface reflects the Wrangell Mountains in a panorama that feels endless: Blackburn's white shoulders rising against cobalt skies, mirrored in still waters where swans drift like living brushstrokes. This view tells ANILCA's story without words—a law that turned landscapes into legacies.
+> 
+> 
+
+</details>
+
+| ![Alaska National Interest Lands Conservation Act anniversary](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska National Interest Lands Conservation Act anniversary](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1080x1920.jpg) |
+
 ### 20251201
 
 > Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)
@@ -112,26 +131,7 @@
 
 | ![World Olive Tree Day](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Olive Tree Day](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1080x1920.jpg) |
-
-### 20251125
-
-> The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Ever heard coins clinking louder than applause? That's the Trevi Fountain in Rome, Italy, for you—a spot where history, hope, and selfie sticks collide. Completed in 1762, it marks the endpoint of one of ancient Rome's earliest aqueducts, the Aqua Virgo, which still supplies water today. The name 'Trevi' comes from Tre Vie—'three roads'—signifying the junction where it stands. Designed by Italian architect Nicola Salvi and finished by Giuseppe Pannini, this 86-foot marvel is the largest Baroque fountain in the city and one of the most famous in the world. Its sculptures show Oceanus, the god of the sea, surrounded by Tritons and horses.
-> 
-> Visitors come for the view but stay for the ritual: toss a coin over your left shoulder and make a wish. Legend says one coin guarantees a return to Rome, two bring love, and three lead to marriage. Around $3,000 to $4,000 worth of coins are thrown daily—roughly $1.5 million a year—all donated to charity. From the iconic 1960 film 'La Dolce Vita' to LEGO's Trevi Fountain set, and even a replica near Caesars Palace in Las Vegas, this masterpiece still inspires. So, what would you wish for?
-> 
-> 
-
-</details>
-
-| ![Trevi Fountain, Rome, Italy](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Trevi Fountain, Rome, Italy](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_1080x1920.jpg) |wailorFort_EN-US6671653416_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1080x1920.jpg) ||ocks_EN-US3184562282_1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1080x1920.jpg) |||ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
