@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251203
+
+> Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico (© Jack Dykinga/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Every December, as morning unfolds, a chorus of rattling calls fills the marshes of the Bosque del Apache National Wildlife Refuge. This 57,000-acre sanctuary in central New Mexico prepares to stage one of nature's most stirring performances as sandhill cranes return from their seasonal journey. Soon, tens of thousands of snow geese and other migratory birds join the scene, filling the sky with movement and sound.
+> 
+> We're in the midst of a migration that has carried sandhill cranes across continents for millennia. Each winter, they travel south from their breeding grounds in the northern plains. Beyond the spectacle lies a story of resilience. The sandhill crane is among the oldest living bird species. It descends from a lineage that stretches back over 2.5 million years, enduring ice ages and countless climate shifts. Once nearly extinct, they have rebounded thanks to decades of conservation. Today, thousands find refuge in this New Mexico wetland—a reminder that when life is nurtured and given space, it always finds its way home.
+> 
+> 
+
+</details>
+
+| ![Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico](https://cn.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico](https://cn.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_1080x1920.jpg) |
+
 ### 20251202
 
 > Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska (© Patrick J. Endres/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_1080x1920.jpg) |
-
-### 20251126
-
-> Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Ancient yet vibrant, twisted yet resilient, olive trees can live for over a thousand years. Even when scarred or hollowed, their trunks still send out fresh leaves each season—a living record of survival through drought, wind, and fire. In 2019, UNESCO established November 26 as World Olive Tree Day, recognizing these trees that have been cultivated by humans since about 6,000 BCE. Olives have carried both practical and symbolic weight through the ages: their oil was pressed for anointing, medicine, and daily sustenance; crowns of their leaves graced Olympic victors; and their branches became a lasting emblem of peace.
-> 
-> Nestled in the Balearic Sea, the Spanish island of Mallorca embodies this long story, flourishing with groves like those in the Serra de Tramuntana, photographed here. Some trees across the island are older than its medieval cathedrals. Here, olives are gently picked, pressed within hours, and transformed into an oil prized for its fruity, almond, and herbal notes. Each harvest continues a legacy: the fruit nourishes, the wood fuels fires, and the roots stabilize steep slopes. Across millennia, these companions of civilization have witnessed our progress as we witness their endurance—remaining unyielding, persistent, and remarkably green.
-> 
-> 
-
-</details>
-
-| ![World Olive Tree Day](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Olive Tree Day](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1080x1920.jpg) |||ocks_EN-US3184562282_1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_1080x1920.jpg) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1080x1920.jpg) |||ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
