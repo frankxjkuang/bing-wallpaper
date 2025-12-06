@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251204
+
+> Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)
+
+<details>
+<summary>Description</summary>
+
+> High atop a termite mound in the Maasai Mara National Reserve—a protected savanna in southwestern Kenya—a cheetah scans the plains. Its sleek body can reach speeds of up to 70 mph, making it the fastest land mammal on Earth. Long legs and a flexible spine allow incredible acceleration, while its strong tail helps maintain balance during high-speed chases. Today is International Cheetah Day—an event that couldn't have arrived any quicker. With fewer than 7,100 individuals left in the wild, these are among Africa's most vulnerable big cats.
+> 
+> The cheetah's survival depends not only on its agility and instincts but also on the well-being of the ecosystems it calls home, making it all the more fitting that Cheetah Day coincides with World Wildlife Conservation Day. Every sprint, hunt, and instinct-driven movement of this iconic predator reflects the interconnected world around it: wetlands feeding migratory birds, forests sheltering elephants, and grasslands sustaining countless species. December 4 celebrates this choreography of life, as conservationists work tirelessly to restore habitats, enforce protections, and collaborate with local communities, turning awareness into action.
+> 
+> 
+
+</details>
+
+| ![International Cheetah Day](https://cn.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Cheetah Day](https://cn.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_1080x1920.jpg) |
+
 ### 20251203
 
 > Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico (© Jack Dykinga/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Celebrating Native American Heritage Day](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Native American Heritage Day](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_1080x1920.jpg) |
-
-### 20251127
-
-> Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> The wild turkey's iridescent plumage, seen here at Aransas National Wildlife Refuge in Texas, isn't just striking—it carries the shimmer of history. Today is Thanksgiving, when many Americans gather around the table, enjoying roast turkey stuffed with savory bread dressing, mashed potatoes, cranberry sauce, and pumpkin pie. Football games hum in the background, parades march down city streets, and kitchens buzz with the familiar aromas of holiday cooking.
-> 
-> Accounts trace Thanksgiving back to 1621, when the Wampanoag people, the Indigenous stewards of the region, shared a meal with English settlers in Plymouth, Massachusetts and helped them survive their first harsh year. Yet the practice of giving thanks through feasting stretches much further back. Across North America, Indigenous communities held seasonal gatherings to honor the land, harvest, and social bonds—often including wild turkeys on the menu, long before the Pilgrims arrived.
-> 
-> Thanksgiving became a national holiday in 1863, proclaimed by President Lincoln amid the Civil War as a call for unity. Today, let's savor each bite, recognize the hands and labor that brought it to our plates, and embrace the rich histories intertwined in this tradition.
-
-</details>
-
-| ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_1080x1920.jpg) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1080x1920.jpg) |||ocks_EN-US3184562282_1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_1080x1920.jpg) |EN-US7401521602_1080x1920.jpg) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1080x1920.jpg) |||ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
