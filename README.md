@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251205
+
+> Maya site of Copán, Honduras (© diegograndi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In a quiet valley of western Honduras lie the ruins of Copán—a city of the ancient Maya civilization. Its sky served as both compass and calendar, guiding celestial events and shaping temples, rituals, and the rhythm of life. Around 426 CE, K'inich Yax K'uk' Mo', a warrior from the Maya heartland, founded Copán and established its royal dynasty. The city became a center of Maya art, astronomy, and power.
+> 
+> At the heart of Copán stand two monuments—stories in stone—that reflect its artistic and political brilliance: the Hieroglyphic Stairway and Altar Q. The stairway rises in 63 carved steps covered with more than 2,000 glyphs—the longest Maya inscription ever found—recording reigns, ceremonies, and ambitions that shaped the city's power. Altar Q, standing beside it, translates that history into sculpture, portraying 16 rulers in sequence, preserving the story of a dynasty in stone. Rediscovered in the 19th century and designated as a UNESCO World Heritage Site in 1980, Copán remains one of the finest achievements of the ancient Maya. Today, it endures in the precision of its stonework—proof that art can outlast even the world that built it.
+> 
+> 
+
+</details>
+
+| ![Maya site of Copán](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Maya site of Copán](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_1080x1920.jpg) |
+
 ### 20251204
 
 > Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)
@@ -112,26 +131,7 @@
 
 | ![Red deer stag in De Hoge Veluwe National Park, Netherlands](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red deer stag in De Hoge Veluwe National Park, Netherlands](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_1080x1920.jpg) |
-
-### 20251128
-
-> Collection of silver Native American concho belts, Santa Fe, New Mexico (© julien mcroberts/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Think Thanksgiving weekend is just about turkey and leftovers? Think again—today is Native American Heritage Day. Established in 2009, it celebrates the voices, art, and achievements of Indigenous peoples across the United States. This day is a reminder to look beyond parades and sales and learn from the experiences of those who first shaped this land. Communities host cultural events, storytelling sessions, and feasts featuring dishes like Three Sisters soup, wild rice, pemmican, beans, squash, and buffalo stew—each carrying centuries of legacy.
-> 
-> Among the many traditions that shine today is the concho belt. Developed by Navajo artisans in the late 1860s, these belts combine skill and style. Originally made from Mexican silver pesos melted down and formed into ingots, they are now also crafted from nickel silver or German silver. The oval discs are stamped with designs that often represent natural elements like water, the sun, or butterflies, and some are adorned with turquoise stones. More than a fashion accessory, they are symbols of identity—stories worn proudly and passed down through generations like treasured heirlooms.
-> 
-> 
-
-</details>
-
-| ![Celebrating Native American Heritage Day](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Native American Heritage Day](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_1080x1920.jpg) |EN-US7401521602_1080x1920.jpg) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1080x1920.jpg) |||ocks_EN-US3184562282_1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_1080x1920.jpg) |/cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_1080x1920.jpg) |EN-US7401521602_1080x1920.jpg) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1080x1920.jpg) |||ocks_EN-US3184562282_1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
