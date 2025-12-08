@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251206
+
+> Spider webs in Everglades National Park, Florida (© Troy Harrison/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On Florida's southern tip lies one of the United States' most unusual landscapes. The Everglades is not a typical swamp or river. It is a slow, shallow sheet of water that drifts south across flat grasslands toward Florida Bay, linking forests, marshes, mangroves, and coastal prairies. This subtropical wilderness supports hundreds of species, including alligators, manatees, and the endangered Florida panther. On December 6, 1947, the United States established the Everglades National Park, protecting over 1.5 million acres and shifting conservation toward preserving entire ecosystems rather than isolated landmarks.
+> 
+> Spider webs stretch between reeds, catching light in fine reflections in the image featured today. The park is now a UNESCO World Heritage Site, yet its balance remains fragile: pollution, development, and altered water flow still threaten its habitats. Major restoration efforts, including the Comprehensive Everglades Restoration Plan, aim to restore natural water patterns, reduce pollution, and limit urban expansion. Within this mosaic, over 350 bird species live, both American crocodiles and alligators share its waters, and panthers move through its quiet corridors. The Everglades endures as a working landscape, proof that protection means letting life keep moving.
+> 
+> 
+
+</details>
+
+| ![Celebrating 78 years of Everglades National Park](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating 78 years of Everglades National Park](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1080x1920.jpg) |
+
 ### 20251205
 
 > Maya site of Copán, Honduras (© diegograndi/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Christmas market in Leipzig, Germany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas market in Leipzig, Germany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |
-
-### 20251129
-
-> Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Picture 21 square miles of open land, wildlife on the move, and a stag flaunting its crown of antlers. In 1909, husband and wife Anton Kröller and Helene Kröller-Müller began building a private estate in Gelderland, Netherlands—what we now know as De Hoge Veluwe National Park. Their vision? To merge art and nature. They brought it to life by placing artwork within the landscape, like 'Three Upright Motives' by English sculptor Henry Moore in the Pampelse Zand and the President Steyn stone bench by Belgian architect Henry van de Velde, among others.
-> 
-> Today, the park's forests, woodlands, sand dunes, and heathlands shelter wild boar, roe deer, mouflon, wolves, and countless birds. Yet red deer stags steal the show. Adult males weigh 350 to 530 pounds and stand about 40 to 50 inches at the shoulder. They graze on grass, leaves, and shoots, but also won't say no to fruit or acorns. During the rut, stags display their antlers and bellow to claim territory. They may not travel far, but their search for food and mates keeps the park alive with movement.
-> 
-> 
-
-</details>
-
-| ![Red deer stag in De Hoge Veluwe National Park, Netherlands](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red deer stag in De Hoge Veluwe National Park, Netherlands](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_1080x1920.jpg) |/cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_1080x1920.jpg) |EN-US7401521602_1080x1920.jpg) |.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1080x1920.jpg) |||ocks_EN-US3184562282_1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
