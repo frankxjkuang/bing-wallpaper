@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251207
+
+> USS Arizona Memorial, Pearl Harbor, Honolulu, Hawaii (© Jessica O. Blackwell/APFootage/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> At 7:55 AM on December 7, 1941, Japanese aircraft appeared over Pearl Harbor, Hawaii, and the course of history changed. In less than two hours, 19 ships were sunk or damaged, nearly 200 aircraft destroyed, and 2,403 Americans lost their lives. The battleship USS Arizona suffered the most devastating hit: a bomb struck its forward deck, igniting ammunition below and sending the ship to the harbor floor. The surprise assault crippled the US Pacific Fleet and ended America's neutrality in World War II. The next day, President Franklin D. Roosevelt told Congress it was 'a date which will live in infamy,' and the US entered the war.
+> 
+> Today's image shows the USS Arizona Memorial in Honolulu, a white span above the sunken ship. Beneath it, thin ribbons of oil rise—the 'black tears of the Arizona.' Each December 7, flags fly at half-staff as families and visitors gather in silence to honor the fallen and the courage that emerged from loss.
+> 
+> 
+
+</details>
+
+| ![Pearl Harbor Day](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pearl Harbor Day](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_1080x1920.jpg) |
+
 ### 20251206
 
 > Spider webs in Everglades National Park, Florida (© Troy Harrison/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Antarctica Day](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Antarctica Day](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_1080x1920.jpg) |
-
-### 20251130
-
-> Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Do you know what people bought at Christmas markets 567 years ago? Not costly ornaments or fancy souvenirs but candles, spices, local goods, knitted items, and toys. Leipzig's Christmas market began in 1458 and quickly became a favorite stop for merchants and locals alike. Today, with its cultural and culinary offerings spread across the historic old town and about 300 stalls, it is one of the largest Christmas markets in Germany. Imagine streets buzzing with the chatter of traders and children following the scent of 'Lebkuchen'—honey-sweetened cakes. This is where townsfolk gather to celebrate winter and catch up on news while sipping mulled wine. These markets have always symbolized more than shopping—they offer an escape from the everyday routine.
-> 
-> And what is a Christmas market without Santa Claus? In Leipzig, his grand arrival is a tradition. On the Saturday before Advent Sunday, families welcome Santa and his entourage, who arrive on a special train at the main station. Every corner of this city tells a story, from the historic St. Thomas Church to the merry-go-rounds that have delighted children for generations. As you walk through it, the festive spirit feels like a living story, blending centuries of customs with modern celebrations.
-> 
-> 
-
-</details>
-
-| ![Christmas market in Leipzig, Germany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas market in Leipzig, Germany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
