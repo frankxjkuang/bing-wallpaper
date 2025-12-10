@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251208
+
+> Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> When the twinkling reflections on Italy's Lake Como outshine the stars, you know Christmas has docked in Domaso. Once a fishing village, this lakeside town now transforms each winter into a glittering display of holiday cheer, where pastel houses, old churches, and waterfront villas are wrapped in ribbons of light. The result? A picturesque Christmas scene.
+> 
+> The main waterfront, or lungolago, becomes the star attraction. Churches chime with carols, and market stalls pop up selling handmade crafts, warm chestnuts, and enough panettone to keep everyone running on sweet energy until the New Year.
+> 
+> At the heart of it all is community. Residents around Lake Como take pride in making the season special, from organizing live music in the piazza to staging nativity scenes that look straight out of a Renaissance painting. Even visitors feel part of the celebration—after all, nothing says 'Buon Natale' (Merry Christmas) like being handed a steaming cup of vin brulé, or mulled wine, and a smile.
+
+</details>
+
+| ![Christmas lights in Domaso, Lake Como, Italy](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas lights in Domaso, Lake Como, Italy](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_1080x1920.jpg) |
+
 ### 20251207
 
 > USS Arizona Memorial, Pearl Harbor, Honolulu, Hawaii (© Jessica O. Blackwell/APFootage/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Alaska National Interest Lands Conservation Act anniversary](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska National Interest Lands Conservation Act anniversary](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1080x1920.jpg) |
-
-### 20251201
-
-> Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> Some photos capture nature's grand acts. Great photos reveal even more in a single frame: the delicate balance between immense power and fragile beauty that surrounds us on Earth. Today's image of a natural arch carved into an Antarctic iceberg does exactly that—a conversation starter about grandeur, vulnerability, our environment, and its present and future.
-> 
-> Antarctica Day, celebrated on December 1, marks the anniversary of the 1959 Antarctic Treaty—a pact that transformed an entire continent—almost 10% of Earth's land surface—into a sanctuary for peace and science. Antarctica, Earth's coldest and most remote wilderness, holds 60% of the planet's freshwater, silently shaping global climate and sea levels. The Antarctic ice sheet is Earth's largest continuous body of ice. Its frozen heart whispers ancient stories through ice cores, guiding us toward the future. To honor this day is to acknowledge the truth: what seems eternal is never beyond reach. The fate of this white expanse is intertwined with ours—its silence is not absence, but a question: what will we choose to answer with?
-> 
-> 
-
-</details>
-
-| ![Antarctica Day](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Antarctica Day](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1080x1920.jpg) |tarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
