@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251209
+
+> Guanaco in Punta Norte, Argentina (© Sylvain Cordier/naturepl.com)
+
+<details>
+<summary>Description</summary>
+
+> If llamas are the laid-back stars of the Andes, their cousins, the guanacos, are the free spirits of Patagonia. And what better day to give them the spotlight than National Llama Day? Guanacos are part of the same camelid family as llamas, alpacas, and vicuñas. But unlike their domesticated relatives, they keep things wild. Found mainly in Argentina, Chile, Peru, and Bolivia, they're built for life at high altitude. Their thick coats help them handle chilly winds, while their padded feet give them the grip to trek across rocky terrain that would make even mountain goats nervous.
+> 
+> Social creatures, guanacos usually hang out in herds—led by a dominant male who keeps a close eye on the group. Communication is key in their world. Spot a predator, and a guanaco will let out a sharp bleat that basically means, 'Run for it!' These wild wanderers also play an important ecological role. As grazers, they help maintain grassland balance, and their droppings enrich the soil, keeping Patagonia's ecosystem healthy. So today, while llamas bask in attention—decked out on mugs, memes, and Christmas sweaters—take a moment to nod to their untamed kin.
+> 
+> 
+
+</details>
+
+| ![National Llama Day](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Llama Day](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_1080x1920.jpg) |
+
 ### 20251208
 
 > Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico](https://cn.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico](https://cn.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_1080x1920.jpg) |
-
-### 20251202
-
-> Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska (© Patrick J. Endres/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On December 2, 1980, the Alaska National Interest Lands Conservation Act (ANILCA) reshaped America's conservation history. With one sweeping law, more than 104 million acres of Alaska's wild lands gained lasting protection, like the Wrangell–St. Elias National Park and Preserve, seen here, now the largest national park in the United States. ANILCA balanced preservation with tradition, safeguarding ecosystems while honoring rural subsistence rights.
-> 
-> Wrangell–St. Elias is a realm of extremes: its glaciers sprawling like frozen rivers, volcanic peaks piercing the sky. Among them stands Mount Blackburn, a 16,390-foot sentinel of ice and ancient fire. Its snow-mantled slopes feed vast glacier systems, a silent monument to geological time. Just beyond the park boundary, Willow Lake rests in the Copper River Basin—a roadside jewel along the Richardson Highway. On clear days, its glassy surface reflects the Wrangell Mountains in a panorama that feels endless: Blackburn's white shoulders rising against cobalt skies, mirrored in still waters where swans drift like living brushstrokes. This view tells ANILCA's story without words—a law that turned landscapes into legacies.
-> 
-> 
-
-</details>
-
-| ![Alaska National Interest Lands Conservation Act anniversary](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Alaska National Interest Lands Conservation Act anniversary](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1080x1920.jpg) |tarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_1080x1920.jpg) |andscape 4K](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1080x1920.jpg) |tarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
