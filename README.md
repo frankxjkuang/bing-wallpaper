@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251211
+
+> Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Every December 11, we celebrate International Mountain Day, honoring the majestic peaks that shape our planet and the glaciers that support life. From the rolling Alps to the towering Himalayas, mountains cover nearly a quarter of Earth's land and host 15% of the world's population and nearly half of its biodiversity hotspots. Mount Everest, the world's highest peak at over 29,000 feet, stands as a symbol of human aspiration and natural beauty. Its glaciers feed rivers sustaining millions, showing that mountains are more than scenery—they are lifelines.
+> 
+> Glaciers, holding about 70% of the world's fresh water, are melting rapidly due to rising global temperatures. This threatens agriculture, water security, energy production, and the livelihoods of billions. Retreating glaciers and thawing permafrost also heighten hazards like floods, landslides, and erosion, putting communities and infrastructure at risk.
+> 
+> This year, International Mountain Day is themed 'Glaciers matter for water, food, and livelihoods in mountains and beyond,' which emphasizes the urgent need to protect these vital ecosystems. Whether marveling at Everest or hiking a local ridge, the day invites us to reconnect with Earth's vertical landscapes and recognize their essential role in life, climate, and biodiversity.
+
+</details>
+
+| ![International Mountain Day](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Mountain Day](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |
+
 ### 20251210
 
 > Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Maya site of Copán](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Maya site of Copán](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_1080x1920.jpg) |
-
-### 20251204
-
-> Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)
-
-<details>
-<summary>Description</summary>
-
-> High atop a termite mound in the Maasai Mara National Reserve—a protected savanna in southwestern Kenya—a cheetah scans the plains. Its sleek body can reach speeds of up to 70 mph, making it the fastest land mammal on Earth. Long legs and a flexible spine allow incredible acceleration, while its strong tail helps maintain balance during high-speed chases. Today is International Cheetah Day—an event that couldn't have arrived any quicker. With fewer than 7,100 individuals left in the wild, these are among Africa's most vulnerable big cats.
-> 
-> The cheetah's survival depends not only on its agility and instincts but also on the well-being of the ecosystems it calls home, making it all the more fitting that Cheetah Day coincides with World Wildlife Conservation Day. Every sprint, hunt, and instinct-driven movement of this iconic predator reflects the interconnected world around it: wetlands feeding migratory birds, forests sheltering elephants, and grasslands sustaining countless species. December 4 celebrates this choreography of life, as conservationists work tirelessly to restore habitats, enforce protections, and collaborate with local communities, turning awareness into action.
-> 
-> 
-
-</details>
-
-| ![International Cheetah Day](https://cn.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Cheetah Day](https://cn.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_1080x1920.jpg) |756735_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1080x1920.jpg) |tarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_1080x1920.jpg) |35_1080x1920.jpg) |tarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
