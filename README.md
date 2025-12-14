@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251212
+
+> Spotted poinsettia (© DigiPub/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Some plants simply sit quietly on windowsills. The poinsettia? It demands the spotlight. Bright, bold, and as red as Rudolph's nose, this December diva even has its own holiday—National Poinsettia Day, celebrated on December 12. Prior to becoming a popular Christmas decoration, this shrub had quite a journey. Long before it appeared in living rooms, it grew wild in Mexico, where the Aztecs used it for dyes and medicine. Then, in the 1820s, US diplomat Joel Roberts Poinsett spotted the plant, fell for its charm, and sent it home. The rest, as they say, is history—and botany.
+> 
+> Despite its festive fame, the poinsettia still has to fight off some myths. The biggest one? That it's poisonous. It won't make you feel great if you eat one (and your cat won't thank you either), but it's far from deadly. Did you know the poinsettia's red parts aren't actually flowers? They're leaves called bracts. The real flowers are those tiny yellow buds in the middle. Today, poinsettias come in over a hundred shades—pink, white, marbled, even speckled. Whatever your style, there's a poinsettia to match your mood.
+> 
+> 
+
+</details>
+
+| ![National Poinsettia Day](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Poinsettia Day](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_1080x1920.jpg) |
+
 ### 20251211
 
 > Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Celebrating 78 years of Everglades National Park](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating 78 years of Everglades National Park](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1080x1920.jpg) |
-
-### 20251205
-
-> Maya site of Copán, Honduras (© diegograndi/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In a quiet valley of western Honduras lie the ruins of Copán—a city of the ancient Maya civilization. Its sky served as both compass and calendar, guiding celestial events and shaping temples, rituals, and the rhythm of life. Around 426 CE, K'inich Yax K'uk' Mo', a warrior from the Maya heartland, founded Copán and established its royal dynasty. The city became a center of Maya art, astronomy, and power.
-> 
-> At the heart of Copán stand two monuments—stories in stone—that reflect its artistic and political brilliance: the Hieroglyphic Stairway and Altar Q. The stairway rises in 63 carved steps covered with more than 2,000 glyphs—the longest Maya inscription ever found—recording reigns, ceremonies, and ambitions that shaped the city's power. Altar Q, standing beside it, translates that history into sculpture, portraying 16 rulers in sequence, preserving the story of a dynasty in stone. Rediscovered in the 19th century and designated as a UNESCO World Heritage Site in 1980, Copán remains one of the finest achievements of the ancient Maya. Today, it endures in the precision of its stonework—proof that art can outlast even the world that built it.
-> 
-> 
-
-</details>
-
-| ![Maya site of Copán](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Maya site of Copán](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_1080x1920.jpg) |35_1080x1920.jpg) |tarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1080x1920.jpg) |ins_EN-US5517813382_1080x1920.jpg) |35_1080x1920.jpg) |tarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
