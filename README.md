@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251213
+
+> Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Every masterpiece needs a brushstroke to tie it together. For Yosemite National Park, that stroke is the Merced River—painting reflections of granite cliffs, pine forests, and waterfalls across its canvas. One of the National Wild and Scenic Rivers, this waterway begins high in the Sierra Nevada. It gathers meltwater and winds 145 miles west through Yosemite Valley into California's Central Valley.
+> 
+> Its Spanish name, 'El Río de Nuestra Señora de la Merced,' translates to 'River of Our Lady of Mercy,' and suits it well: it offers both calm and chaos depending on the season. Spring turns the river into Yosemite's main act, as snowmelt sends torrents rushing beneath stone bridges and past roaring waterfalls like Vernal and Nevada Falls. Summer brings a gentler flow that attracts rafters and swimmers. Fall adds a hint of gold as leaves drift downstream, and winter slows everything to a reflective stillness. Interestingly, it feeds Lake McClure, where a ghost town rises when water levels drop in fall and winter. Along its lower stretches once stood Merced Falls, a bustling mill town during the Gold Rush era, now lying quiet.
+> 
+> 
+
+</details>
+
+| ![Merced River, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Merced River, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_1080x1920.jpg) |
+
 ### 20251212
 
 > Spotted poinsettia (© DigiPub/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Pearl Harbor Day](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pearl Harbor Day](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_1080x1920.jpg) |
-
-### 20251206
-
-> Spider webs in Everglades National Park, Florida (© Troy Harrison/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On Florida's southern tip lies one of the United States' most unusual landscapes. The Everglades is not a typical swamp or river. It is a slow, shallow sheet of water that drifts south across flat grasslands toward Florida Bay, linking forests, marshes, mangroves, and coastal prairies. This subtropical wilderness supports hundreds of species, including alligators, manatees, and the endangered Florida panther. On December 6, 1947, the United States established the Everglades National Park, protecting over 1.5 million acres and shifting conservation toward preserving entire ecosystems rather than isolated landmarks.
-> 
-> Spider webs stretch between reeds, catching light in fine reflections in the image featured today. The park is now a UNESCO World Heritage Site, yet its balance remains fragile: pollution, development, and altered water flow still threaten its habitats. Major restoration efforts, including the Comprehensive Everglades Restoration Plan, aim to restore natural water patterns, reduce pollution, and limit urban expansion. Within this mosaic, over 350 bird species live, both American crocodiles and alligators share its waters, and panthers move through its quiet corridors. The Everglades endures as a working landscape, proof that protection means letting life keep moving.
-> 
-> 
-
-</details>
-
-| ![Celebrating 78 years of Everglades National Park](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating 78 years of Everglades National Park](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1080x1920.jpg) |ins_EN-US5517813382_1080x1920.jpg) |35_1080x1920.jpg) |tarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_1080x1920.jpg) |com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1080x1920.jpg) |ins_EN-US5517813382_1080x1920.jpg) |35_1080x1920.jpg) |tarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
