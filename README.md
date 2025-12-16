@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251214
+
+> Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Each December, thousands swap wrapping paper for binoculars and step outside for a different kind of holiday tradition: the Audubon Christmas Bird Count. Instead of hunting for bargains, they hunt for birds—with pencils, rather than pellets. Started in 1900 by ornithologist Frank M. Chapman, the count offered a peaceful alternative to the Christmas 'side hunts,' where people competed to shoot the most animals. Chapman had a better idea: count them instead. Over a century later, that simple shift has grown into the world's longest-running citizen-science project.
+> 
+> Between December 14 and January 5, volunteers across the Americas head into designated 15-mile circles to tally every bird they see or hear. From bustling cities to remote forests, participants—known affectionately as 'birders'—log species like chickadees, hawks, and tufted titmice (seen in today's image). The data helps scientists track long-term trends in bird populations, migration patterns, and climate impacts. So this holiday season, if you hear people chirping about Christmas counts, don't assume they're talking calories.
+> 
+> 
+
+</details>
+
+| ![Audubon Christmas Bird Count](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Audubon Christmas Bird Count](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_1080x1920.jpg) |
+
 ### 20251213
 
 > Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Christmas lights in Domaso, Lake Como, Italy](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas lights in Domaso, Lake Como, Italy](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_1080x1920.jpg) |
-
-### 20251207
-
-> USS Arizona Memorial, Pearl Harbor, Honolulu, Hawaii (© Jessica O. Blackwell/APFootage/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> At 7:55 AM on December 7, 1941, Japanese aircraft appeared over Pearl Harbor, Hawaii, and the course of history changed. In less than two hours, 19 ships were sunk or damaged, nearly 200 aircraft destroyed, and 2,403 Americans lost their lives. The battleship USS Arizona suffered the most devastating hit: a bomb struck its forward deck, igniting ammunition below and sending the ship to the harbor floor. The surprise assault crippled the US Pacific Fleet and ended America's neutrality in World War II. The next day, President Franklin D. Roosevelt told Congress it was 'a date which will live in infamy,' and the US entered the war.
-> 
-> Today's image shows the USS Arizona Memorial in Honolulu, a white span above the sunken ship. Beneath it, thin ribbons of oil rise—the 'black tears of the Arizona.' Each December 7, flags fly at half-staff as families and visitors gather in silence to honor the fallen and the courage that emerged from loss.
-> 
-> 
-
-</details>
-
-| ![Pearl Harbor Day](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pearl Harbor Day](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_1080x1920.jpg) |com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1080x1920.jpg) |ins_EN-US5517813382_1080x1920.jpg) |35_1080x1920.jpg) |tarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_1080x1920.jpg) |82_1080x1920.jpg) |35_1080x1920.jpg) |tarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
