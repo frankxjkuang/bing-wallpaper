@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251215
+
+> Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Have you ever wondered how canals changed the way cities developed? For thousands of years, people have built canals to transport goods, control water flow, and connect places. From ancient Mesopotamia and Egypt to medieval Europe, they transformed cities like Venice and Bruges into trade hubs. The Netherlands took this even further—by the 17th century, they were designing waterways that shaped cities such as Amsterdam.
+> 
+> It's no wonder Amsterdam is nicknamed the 'Venice of the North.' The city's 60-mile-long network of canals forms part of the UNESCO-listed Canal District. Mostly flanked by roads on both sides, these routes are now used for tourism and recreation. In the center of the city is the Spiegelgracht canal seen in today's image. It is famous for its art galleries, antique shops, and serene reflections that inspired its name, 'Mirror Canal.' As night falls, bridges and trees glow with festive lights, their reflections shimmering across the calm water. With Christmas just around the corner, these canals resemble glowing strings of history—proof that the past still shines bright in the present.
+> 
+> 
+
+</details>
+
+| ![Spiegelgracht canal in Amsterdam, Netherlands](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spiegelgracht canal in Amsterdam, Netherlands](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_1080x1920.jpg) |
+
 ### 20251214
 
 > Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![National Llama Day](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Llama Day](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_1080x1920.jpg) |
-
-### 20251208
-
-> Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> When the twinkling reflections on Italy's Lake Como outshine the stars, you know Christmas has docked in Domaso. Once a fishing village, this lakeside town now transforms each winter into a glittering display of holiday cheer, where pastel houses, old churches, and waterfront villas are wrapped in ribbons of light. The result? A picturesque Christmas scene.
-> 
-> The main waterfront, or lungolago, becomes the star attraction. Churches chime with carols, and market stalls pop up selling handmade crafts, warm chestnuts, and enough panettone to keep everyone running on sweet energy until the New Year.
-> 
-> At the heart of it all is community. Residents around Lake Como take pride in making the season special, from organizing live music in the piazza to staging nativity scenes that look straight out of a Renaissance painting. Even visitors feel part of the celebration—after all, nothing says 'Buon Natale' (Merry Christmas) like being handed a steaming cup of vin brulé, or mulled wine, and a smile.
-
-</details>
-
-| ![Christmas lights in Domaso, Lake Como, Italy](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas lights in Domaso, Lake Como, Italy](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_1080x1920.jpg) |82_1080x1920.jpg) |35_1080x1920.jpg) |tarcticArch_EN-US6560308300_1080x1920.jpg) |ermany](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_1080x1920.jpg) |6_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
