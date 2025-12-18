@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251216
+
+> Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> They've got long beards, red hats, and a knack for stealing a tad bit of Santa's thunder every Christmas. Meet the gnome—known as 'tomte' in Sweden and 'nisse' in Norway—whose traditions vary across regions. Rooted in Scandinavian folklore, these tiny guardians watch over homes and farms, keeping families safe through long, dark winters. But there's a catch: treat them kindly, or they may play tricks. A warm bowl of porridge on Christmas Eve is their favorite reward. Said to bring luck and laughter, they might even befriend your garden gnomes, since they often resemble them.
+> 
+> Gnomes are also believed to possess deep knowledge of nature and the secrets of the earth, which explains their role as loyal protectors. Over time, these helpers have swapped their work clothes for red hats and festive charm, evolving into the Christmas gnomes we know today. Handmade with wool, felt, and faux fur, they now fill Christmas markets with color and character. Look closely and you'll notice no two are the same—some mischievous, others sweet, all with stories woven into every seam. So, the next time one catches your eye at a Christmas market, take it as a quiet offer of protection.
+> 
+> 
+
+</details>
+
+| ![Handmade gnomes at a Christmas market](https://cn.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Handmade gnomes at a Christmas market](https://cn.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_1080x1920.jpg) |
+
 ### 20251215
 
 > Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Mosque-Cathedral of Córdoba, Andalusia, Spain](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mosque-Cathedral of Córdoba, Andalusia, Spain](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |
-
-### 20251209
-
-> Guanaco in Punta Norte, Argentina (© Sylvain Cordier/naturepl.com)
-
-<details>
-<summary>Description</summary>
-
-> If llamas are the laid-back stars of the Andes, their cousins, the guanacos, are the free spirits of Patagonia. And what better day to give them the spotlight than National Llama Day? Guanacos are part of the same camelid family as llamas, alpacas, and vicuñas. But unlike their domesticated relatives, they keep things wild. Found mainly in Argentina, Chile, Peru, and Bolivia, they're built for life at high altitude. Their thick coats help them handle chilly winds, while their padded feet give them the grip to trek across rocky terrain that would make even mountain goats nervous.
-> 
-> Social creatures, guanacos usually hang out in herds—led by a dominant male who keeps a close eye on the group. Communication is key in their world. Spot a predator, and a guanaco will let out a sharp bleat that basically means, 'Run for it!' These wild wanderers also play an important ecological role. As grazers, they help maintain grassland balance, and their droppings enrich the soil, keeping Patagonia's ecosystem healthy. So today, while llamas bask in attention—decked out on mugs, memes, and Christmas sweaters—take a moment to nod to their untamed kin.
-> 
-> 
-
-</details>
-
-| ![National Llama Day](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Llama Day](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_1080x1920.jpg) |6_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
