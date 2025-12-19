@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251217
+
+> Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Who could resist that squishy face? A Eurasian red squirrel perches on a snowy pine branch, paws clutching a pine cone like it's the last snack on Earth. These little acrobats stay busy collecting nuts, seeds, and fungi—feasting on fresh finds in summer and on stored cones through winter.
+> 
+> Once common across Britain, their numbers have fallen sharply due to competition from gray squirrels and the spread of the squirrelpox virus. Today, these red squirrels are mostly found in northern England and Scotland, with refuges like Kielder and Harwood Forests in Northumberland helping sustain their populations.
+> 
+> Their bright fur and quick movements have made them favorites in art and children's tales—most famously in Beatrix Potter's 'The Tale of Squirrel Nutkin.' Spotting a red squirrel in the wild feels like seeing a classic winter illustration come to life—tiny paws, a twitching nose, and a tail that seems to have a mind of its own. So the next time you see one, remember that protecting small creatures helps keep the stories they inspire alive.
+
+</details>
+
+| ![Eurasian red squirrel in Northumberland, England](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Eurasian red squirrel in Northumberland, England](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_1080x1920.jpg) |
+
 ### 20251216
 
 > Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![International Mountain Day](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Mountain Day](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |
-
-### 20251210
-
-> Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The Mosque-Cathedral of Córdoba is a chronicle of Spain's layered history. It began as a church built by the Germanic Visigoths, before being transformed into a mosque in 784 CE by Abd al-Rahman I, founder of the Umayyad Emirate of Córdoba. Its vast hypostyle hall, a space supported by rows of columns, features the famous red-and-white arches shown here. Today, it contains more than 850 columns, many reused from Roman and earlier Visigothic structures.
-> 
-> During the Christian Reconquista in the 13th century—a campaign spanning centuries to reclaim Iberian territories from Muslim rule—the mosque was converted into a Catholic cathedral. Later, a Renaissance nave was added, blending Gothic, Renaissance, and Baroque styles with Islamic heritage. Today, this UNESCO World Heritage Site attracts millions of visitors fascinated by its unique fusion of art, faith, and history. Despite centuries of modifications, the original mosque's geometric patterns and horseshoe arches remain largely intact, offering a glimpse into Córdoba's multicultural past. The Mosque-Cathedral serves as a remarkable story of coexistence, conquest, and architectural brilliance.
-> 
-> 
-
-</details>
-
-| ![Mosque-Cathedral of Córdoba, Andalusia, Spain](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mosque-Cathedral of Córdoba, Andalusia, Spain](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
