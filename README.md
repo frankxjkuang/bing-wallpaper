@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251218
+
+> Temple of the Sun, Capitol Reef National Park, Utah (© Austin Cronnelly/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Rock layers formed over millions of years and a massive bend in the Earth's crust give this desert a rare window into geologic history. This is Capitol Reef National Park in Utah, where sandstone cliffs and canyons preserve a striking record of the planet's past. December 18 marks the anniversary of its designation as a national park in 1971. Today's featured image highlights the sandstone monoliths of Cathedral Valley, including the Temple of the Sun, part of this extraordinary, protected landscape.
+> 
+> Capitol Reef takes its name from two defining features: rounded Navajo sandstone domes—within the Waterpocket Fold—that resemble the US Capitol building, and the Fold's ridges that form a 'reef,' which blocked early travel across the desert. Before becoming a national park, the area was designated as a national monument in 1937.
+> 
+> This anniversary also honors the human history linked to this region. Indigenous communities lived along the Fremont River long before pioneer orchards appeared, leaving petroglyphs carved into canyon walls.
+
+</details>
+
+| ![Celebrating 54 years of Capitol Reef National Park](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating 54 years of Capitol Reef National Park](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |
+
 ### 20251217
 
 > Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Poinsettia Day](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Poinsettia Day](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_1080x1920.jpg) |
-
-### 20251211
-
-> Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Every December 11, we celebrate International Mountain Day, honoring the majestic peaks that shape our planet and the glaciers that support life. From the rolling Alps to the towering Himalayas, mountains cover nearly a quarter of Earth's land and host 15% of the world's population and nearly half of its biodiversity hotspots. Mount Everest, the world's highest peak at over 29,000 feet, stands as a symbol of human aspiration and natural beauty. Its glaciers feed rivers sustaining millions, showing that mountains are more than scenery—they are lifelines.
-> 
-> Glaciers, holding about 70% of the world's fresh water, are melting rapidly due to rising global temperatures. This threatens agriculture, water security, energy production, and the livelihoods of billions. Retreating glaciers and thawing permafrost also heighten hazards like floods, landslides, and erosion, putting communities and infrastructure at risk.
-> 
-> This year, International Mountain Day is themed 'Glaciers matter for water, food, and livelihoods in mountains and beyond,' which emphasizes the urgent need to protect these vital ecosystems. Whether marveling at Everest or hiking a local ridge, the day invites us to reconnect with Earth's vertical landscapes and recognize their essential role in life, climate, and biodiversity.
-
-</details>
-
-| ![International Mountain Day](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Mountain Day](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
