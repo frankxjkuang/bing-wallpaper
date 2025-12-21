@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251219
+
+> Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Bormio is a mountain town in northern Italy's Lombardy region, nestled in the Alps near the Stelvio Pass. This location has connected communities across mountain valleys for centuries, shaping how people live and move through the region. Today's image features Bormio's winter landscape, a reflection of its high-altitude setting and enduring bond with the surrounding peaks.
+> 
+> Its strategic position helped Bormio develop a strong civic identity. For many years, it was one of the 'Three Magnificent Communities,' which held local autonomy and served as an administrative center for nearby settlements. The medieval town layout remains visible in its stone buildings and public spaces, including the Kuerc Square, where community decisions were once made. These structures reflect how governance and daily life adapted to the challenges of a mountain environment.
+> 
+> Bormio is also known for its natural hot springs that have been documented since Roman times. Historic bathhouses, such as the Bagni Vecchi, show how thermal waters supported health, social life, and resilience during harsh winters. Today, the town is part of Stelvio National Park, where its history, landscape, and culture continue to be preserved.
+
+</details>
+
+| ![Bormio, Lombardy, Italy](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bormio, Lombardy, Italy](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_1080x1920.jpg) |
+
 ### 20251218
 
 > Temple of the Sun, Capitol Reef National Park, Utah (© Austin Cronnelly/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Merced River, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Merced River, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_1080x1920.jpg) |
-
-### 20251212
-
-> Spotted poinsettia (© DigiPub/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Some plants simply sit quietly on windowsills. The poinsettia? It demands the spotlight. Bright, bold, and as red as Rudolph's nose, this December diva even has its own holiday—National Poinsettia Day, celebrated on December 12. Prior to becoming a popular Christmas decoration, this shrub had quite a journey. Long before it appeared in living rooms, it grew wild in Mexico, where the Aztecs used it for dyes and medicine. Then, in the 1820s, US diplomat Joel Roberts Poinsett spotted the plant, fell for its charm, and sent it home. The rest, as they say, is history—and botany.
-> 
-> Despite its festive fame, the poinsettia still has to fight off some myths. The biggest one? That it's poisonous. It won't make you feel great if you eat one (and your cat won't thank you either), but it's far from deadly. Did you know the poinsettia's red parts aren't actually flowers? They're leaves called bracts. The real flowers are those tiny yellow buds in the middle. Today, poinsettias come in over a hundred shades—pink, white, marbled, even speckled. Whatever your style, there's a poinsettia to match your mood.
-> 
-> 
-
-</details>
-
-| ![National Poinsettia Day](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Poinsettia Day](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
