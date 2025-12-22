@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251220
+
+> Christmas star lanterns, Germany (© artas/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As Christmas draws near, star lanterns begin to appear everywhere—twinkling from balconies, shining in shop windows, and lighting up market stalls. Their shimmer cuts through the long winter nights, filling streets and homes with joy, color, and a sense of togetherness. But behind these festive decorations lies a story as captivating as their glow.
+> 
+> The first of these stars emerged in Niesky, Germany, in the early 1800s. Students at a Moravian Church boarding school crafted what we now call the Herrnhut Star, or Moravian Star, during a geometry lesson. That 26-pointed marvel, crafted from paper and cardboard, soon came to symbolize the Star of Bethlehem and the spirit of Advent. By 1897, Pieter Verbeek, a former student of that school, began producing and selling them. His son Harry later continued the tradition, founding the Herrnhut Star Factory in 1925.
+> 
+> From that humble beginning, the tradition spread across Europe and the world. Today's Christmas star lanterns, whether handmade or electric, simple or ornate, echo that same idea. Each one reminds us that even a single spark of light has the power to uplift hearts and brighten the season.
+
+</details>
+
+| ![Christmas star lanterns, Germany](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas star lanterns, Germany](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1080x1920.jpg) |
+
 ### 20251219
 
 > Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Audubon Christmas Bird Count](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Audubon Christmas Bird Count](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_1080x1920.jpg) |
-
-### 20251213
-
-> Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Every masterpiece needs a brushstroke to tie it together. For Yosemite National Park, that stroke is the Merced River—painting reflections of granite cliffs, pine forests, and waterfalls across its canvas. One of the National Wild and Scenic Rivers, this waterway begins high in the Sierra Nevada. It gathers meltwater and winds 145 miles west through Yosemite Valley into California's Central Valley.
-> 
-> Its Spanish name, 'El Río de Nuestra Señora de la Merced,' translates to 'River of Our Lady of Mercy,' and suits it well: it offers both calm and chaos depending on the season. Spring turns the river into Yosemite's main act, as snowmelt sends torrents rushing beneath stone bridges and past roaring waterfalls like Vernal and Nevada Falls. Summer brings a gentler flow that attracts rafters and swimmers. Fall adds a hint of gold as leaves drift downstream, and winter slows everything to a reflective stillness. Interestingly, it feeds Lake McClure, where a ghost town rises when water levels drop in fall and winter. Along its lower stretches once stood Merced Falls, a bustling mill town during the Gold Rush era, now lying quiet.
-> 
-> 
-
-</details>
-
-| ![Merced River, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Merced River, Yosemite National Park, California](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_1080x1920.jpg) |d=OHR.YosemiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
