@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251221
+
+> Dawn light through frosty trees, Sweden (© Schon/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Ever felt as if the night just wouldn't end? That's the winter solstice working its magic. It is the shortest day and longest night of the year in the Northern Hemisphere, occurring around December 21 or 22. In the Southern Hemisphere, the same happens around June 21 or 22. It marks the moment when one of Earth's poles tilts farthest from the sun. From that instant, daylight slowly begins to lengthen again.
+> 
+> This celestial event has fascinated people since the Neolithic era. Sites like Newgrange in Ireland and Stonehenge in England were built to capture the solstice sunrise or sunset. In ancient Egypt, temples such as the Temple of Amun-Ra at Karnak and the Mortuary Temple of Hatshepsut at Luxor were aligned with it. For the ancient Romans, December 25 marked the solstice, ushering in Saturnalia, a lively festival of revelry, feasts, and gifts. Across cultures, the solstice has become a celebration of light's return. In Iran, Yalda Night honors the triumph of light over darkness, while in Scandinavia, St. Lucia's Day brightens winter with candlelit processions.
+> 
+> 
+
+</details>
+
+| ![Winter solstice](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winter solstice](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1080x1920.jpg) |
+
 ### 20251220
 
 > Christmas star lanterns, Germany (© artas/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Spiegelgracht canal in Amsterdam, Netherlands](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spiegelgracht canal in Amsterdam, Netherlands](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_1080x1920.jpg) |
-
-### 20251214
-
-> Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Each December, thousands swap wrapping paper for binoculars and step outside for a different kind of holiday tradition: the Audubon Christmas Bird Count. Instead of hunting for bargains, they hunt for birds—with pencils, rather than pellets. Started in 1900 by ornithologist Frank M. Chapman, the count offered a peaceful alternative to the Christmas 'side hunts,' where people competed to shoot the most animals. Chapman had a better idea: count them instead. Over a century later, that simple shift has grown into the world's longest-running citizen-science project.
-> 
-> Between December 14 and January 5, volunteers across the Americas head into designated 15-mile circles to tally every bird they see or hear. From bustling cities to remote forests, participants—known affectionately as 'birders'—log species like chickadees, hawks, and tufted titmice (seen in today's image). The data helps scientists track long-term trends in bird populations, migration patterns, and climate impacts. So this holiday season, if you hear people chirping about Christmas counts, don't assume they're talking calories.
-> 
-> 
-
-</details>
-
-| ![Audubon Christmas Bird Count](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Audubon Christmas Bird Count](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_1080x1920.jpg) |d=OHR.YosemiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_1080x1920.jpg) |t 4K](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_1080x1920.jpg) |d=OHR.YosemiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
