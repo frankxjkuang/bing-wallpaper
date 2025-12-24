@@ -1,129 +1,137 @@
 ## bing wallpaper
 
-### 20251221
+### 20251223
 
-> Dawn light through frosty trees, Sweden (© Schon/Getty Images)
+> 冬雪中的驯鹿，拉普兰德，芬兰 (© Roberto Moiola/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Ever felt as if the night just wouldn't end? That's the winter solstice working its magic. It is the shortest day and longest night of the year in the Northern Hemisphere, occurring around December 21 or 22. In the Southern Hemisphere, the same happens around June 21 or 22. It marks the moment when one of Earth's poles tilts farthest from the sun. From that instant, daylight slowly begins to lengthen again.
+> 很少有动物能像驯鹿那样唤起节日的魔力。驯鹿也被称为北美驯鹿，是不折不扣的“圣诞精神图腾”。自从克莱门特·克拉克·摩尔在1823年的诗作《圣尼古拉来访记》中为它们安排了拉雪橇的角色后，驯鹿便成为圣诞故事中不可缺少的动物明星。而且它们天生适合这份工作。它们的蹄子在冬季会收缩，露出能抓地的边缘，而在温暖的月份则会膨胀，以获得更好的抓地力。这还不足以让你感到惊叹？想想看，驯鹿体内并没有传统意义的“生物钟”。它们通过调节控制睡眠的褪黑激素来适应极地的极昼与极夜，使它们能够在无尽的黑夜中保持清醒，完成“送礼物”般的长途跋涉。驯鹿能托着圣诞老人飞行，在陆地上奔跑如风，在冰冷水域中也能轻松游动，这都得益于它们强健的体魄和优秀的游泳能力。成年雄性体重可达550磅，一对鹿角甚至可延展至55英寸，最多长出44个枝叉，堪称天然王冠。今日图片拍摄于芬兰，在那里，驯鹿的数量甚至多于人类。它们悠然漫步于这片古老土地，如同它们所代表的节日精神一样永恒不朽。
 > 
-> This celestial event has fascinated people since the Neolithic era. Sites like Newgrange in Ireland and Stonehenge in England were built to capture the solstice sunrise or sunset. In ancient Egypt, temples such as the Temple of Amun-Ra at Karnak and the Mortuary Temple of Hatshepsut at Luxor were aligned with it. For the ancient Romans, December 25 marked the solstice, ushering in Saturnalia, a lively festival of revelry, feasts, and gifts. Across cultures, the solstice has become a celebration of light's return. In Iran, Yalda Night honors the triumph of light over darkness, while in Scandinavia, St. Lucia's Day brightens winter with candlelit processions.
+> 
 > 
 > 
 
 </details>
 
-| ![Winter solstice](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winter solstice](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![驯鹿，拉普兰德，芬兰](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![驯鹿，拉普兰德，芬兰](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_1080x1920.jpg) |
+
+### 20251222
+
+> 法兰克福老桥，德国 (© diegograndi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 位于德国中心地带的法兰克福是一座以现代天际线与历史古城交织闻名的活力都市。老桥是其中的标志性建筑之一，自中世纪以来便横跨美因河，是这座城市现存最古老的河上通道之一。几个世纪以来，它一直是重要的贸易通道。如今的老桥建于1912至1926年间，将老城区与萨克森豪森区连接起来，从这里能欣赏到壮丽的“美因哈顿”天际线与法兰克福大教堂，这是传统与现代融合的象征。尤其在日落时分，更是格外迷人。
+> 
+> 老桥也是漫步美因河畔或前往老城探访的完美起点。这里坐落着市政厅罗马广场、圣保罗教堂，以及传统的苹果酒酒馆等景点。文化爱好者则可以造访著名诗人歌德的故居，追随其足迹。法兰克福享誉全球的各类博物馆，更令艺术爱好者流连忘返。在这座对自行车友好的金融都市中，过去与现在在此无缝衔接，形成别具一格的城市风貌。全球罕有城市能像法兰克福般，将强烈的时代对比演绎得如此和谐自然。
+> 
+> 
+
+</details>
+
+| ![法兰克福老桥，德国](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![法兰克福老桥，德国](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_1080x1920.jpg) |
+
+### 20251221
+
+> 美丽的雾凇景色，大庆市，黑龙江省，中国 (© Dashu Xinganling/shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> 当2025年的冬至如期而至，北国大地被银装素裹，东北的雾凇奇景更添了几分童话般的浪漫。漫步在雾凇林中，脚下是松软的积雪，发出细微的沙沙声，仿佛是大自然最轻柔的私语。空气中弥漫着清新的气息，仿佛能净化一切尘埃，让人心旷神怡。
+> 
+> 雾凇，这一自然界的奇观，是形成于树枝上、电线上或其它地物迎风面上的白色疏松的微小冰晶或冰粒。它的出现需要足够低的气温和较大的空气湿度，是大自然在特定条件下精心雕琢的杰作。冬至的雾凇美景，让人们明白，生命中的每一个季节、都蕴含着独特的美丽与价值，只要我们用心去感受，就能发现生活中的无限美好。
+> 
+> 
+
+</details>
+
+| ![冬至](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![冬至](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_1080x1920.jpg) |
 
 ### 20251220
 
-> Christmas star lanterns, Germany (© artas/Getty Images)
+> 圣诞星形灯笼，德国 (© artas/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> As Christmas draws near, star lanterns begin to appear everywhere—twinkling from balconies, shining in shop windows, and lighting up market stalls. Their shimmer cuts through the long winter nights, filling streets and homes with joy, color, and a sense of togetherness. But behind these festive decorations lies a story as captivating as their glow.
+> 随着圣诞临近，星形灯笼开始在各处亮起：闪烁在阳台上，点亮橱窗，照亮集市摊位。它们的光芒穿透漫长的冬夜，为街道和家中带来欢乐、色彩与节日的温暖。然而，这些节日装饰背后，有着一个和它们的光芒一样迷人的故事。
 > 
-> The first of these stars emerged in Niesky, Germany, in the early 1800s. Students at a Moravian Church boarding school crafted what we now call the Herrnhut Star, or Moravian Star, during a geometry lesson. That 26-pointed marvel, crafted from paper and cardboard, soon came to symbolize the Star of Bethlehem and the spirit of Advent. By 1897, Pieter Verbeek, a former student of that school, began producing and selling them. His son Harry later continued the tradition, founding the Herrnhut Star Factory in 1925.
+> 最早的星形灯饰诞生于19世纪初的德国尼斯基。当时，莫拉维亚教会寄宿学校的学生在一次几何课上手工制作了如今被称作“赫恩胡特之星”或“摩拉维亚之星”的灯饰。这个由纸和硬纸板制作而成的26角星，很快便成了伯利恒之星及将临期的象征。1897年，学校毕业生彼得·费尔贝克开始制作并出售这种星星灯，他的儿子哈里随后继承了这一传统，并于 1925 年创立了赫恩胡特星星工厂。
 > 
-> From that humble beginning, the tradition spread across Europe and the world. Today's Christmas star lanterns, whether handmade or electric, simple or ornate, echo that same idea. Each one reminds us that even a single spark of light has the power to uplift hearts and brighten the season.
+> 从这个不起眼的开端，这一传统逐渐传播至欧洲乃至世界各地。如今，无论是手工制作还是电动款式，无论简单朴素或华丽复杂，圣诞星灯都延续着同一个理念：哪怕是一点点光，也能温暖人心，点亮整个节日季。
 
 </details>
 
-| ![Christmas star lanterns, Germany](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas star lanterns, Germany](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![圣诞星形灯笼，德国](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![圣诞星形灯笼，德国](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_1080x1920.jpg) |
 
 ### 20251219
 
-> Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)
+> 博尔米奥的雪景，伦巴第大区，意大利 (© Roberto Moiola/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Bormio is a mountain town in northern Italy's Lombardy region, nestled in the Alps near the Stelvio Pass. This location has connected communities across mountain valleys for centuries, shaping how people live and move through the region. Today's image features Bormio's winter landscape, a reflection of its high-altitude setting and enduring bond with the surrounding peaks.
+> 博尔米奥位于意大利北部伦巴第大区的阿尔卑斯山中，靠近斯泰尔维奥山口。这片地势险峻的山地数百年来连接着不同山谷中的社区，塑造了当地人生活与迁徙的方式。今日图片中的冬季景观，正映照出这座高山小镇的地理特征与它与群峰之间延续千年的纽带。
 > 
-> Its strategic position helped Bormio develop a strong civic identity. For many years, it was one of the 'Three Magnificent Communities,' which held local autonomy and served as an administrative center for nearby settlements. The medieval town layout remains visible in its stone buildings and public spaces, including the Kuerc Square, where community decisions were once made. These structures reflect how governance and daily life adapted to the challenges of a mountain environment.
+> 凭借战略位置，博尔米奥早在中世纪就发展出强烈的公民认同感。多年来，它一直是“三大杰出社区”之一，享有地方自治权，并作为附近定居点的行政中心。中世纪城镇的布局在石制建筑和公共空间中仍清晰可见，包括曾用于社区决策的库尔奇广场。这些建筑体现了治理方式和日常生活如何适应山区环境的挑战。
 > 
-> Bormio is also known for its natural hot springs that have been documented since Roman times. Historic bathhouses, such as the Bagni Vecchi, show how thermal waters supported health, social life, and resilience during harsh winters. Today, the town is part of Stelvio National Park, where its history, landscape, and culture continue to be preserved.
+> 博尔米奥还以自古罗马时期便被记载的天然温泉而闻名。历史悠久的浴场，如巴尼维基温泉，展示了温泉如何在严冬中支撑人们的健康、社交与坚韧。如今，这座小镇是施泰尔维奥国家公园的一部分，其历史、景观和文化得以保存。
 
 </details>
 
-| ![Bormio, Lombardy, Italy](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bormio, Lombardy, Italy](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![博尔米奥，伦巴第大区，意大利](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![博尔米奥，伦巴第大区，意大利](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1080x1920.jpg) |
 
 ### 20251218
 
-> Temple of the Sun, Capitol Reef National Park, Utah (© Austin Cronnelly/TANDEM Stills + Motion)
+> 太阳神庙，圆顶礁国家公园, 犹他州, 美国 (© Austin Cronnelly/TANDEM Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> Rock layers formed over millions of years and a massive bend in the Earth's crust give this desert a rare window into geologic history. This is Capitol Reef National Park in Utah, where sandstone cliffs and canyons preserve a striking record of the planet's past. December 18 marks the anniversary of its designation as a national park in 1971. Today's featured image highlights the sandstone monoliths of Cathedral Valley, including the Temple of the Sun, part of this extraordinary, protected landscape.
+> 数百万年的岩层沉积，伴随地壳的巨大弯曲，造就了这片沙漠独一无二的地质窗口。这里是犹他州的圆顶礁国家公园，砂岩峭壁与峡谷像一本打开的历史书，记录着地球的沧桑。1971年12月18日，它被正式列为国家公园。今日的图片聚焦大教堂谷的砂岩巨石，其中包括壮丽的“太阳神殿”，彰显这片景观的非凡魅力。
 > 
-> Capitol Reef takes its name from two defining features: rounded Navajo sandstone domes—within the Waterpocket Fold—that resemble the US Capitol building, and the Fold's ridges that form a 'reef,' which blocked early travel across the desert. Before becoming a national park, the area was designated as a national monument in 1937.
+> 圆顶礁国家公园得名于两大标志性地貌特征：水袋褶皱中的圆润砂岩穹顶，宛如美国国会大厦；以及褶皱的脊线，曾像“礁石”般阻隔早期旅人穿越沙漠。1937年，这里先被列为国家纪念地，直到后来才晋升为国家公园。
 > 
-> This anniversary also honors the human history linked to this region. Indigenous communities lived along the Fremont River long before pioneer orchards appeared, leaving petroglyphs carved into canyon walls.
+> 这一天不仅纪念自然奇观，也铭记这里的人类历史。早在拓荒者果园出现之前，原住民就在弗里蒙特河畔繁衍生息，并在峡谷的岩壁上刻下岩画，留下古老的印记。
 
 </details>
 
-| ![Celebrating 54 years of Capitol Reef National Park](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating 54 years of Capitol Reef National Park](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![庆祝圆顶礁国家公园成立54周年](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![庆祝圆顶礁国家公园成立54周年](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_1080x1920.jpg) |
 
 ### 20251217
 
-> Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)
+> 在诺森伯兰郡的欧亚红松鼠, 英格兰 (© Michael_Conrad/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Who could resist that squishy face? A Eurasian red squirrel perches on a snowy pine branch, paws clutching a pine cone like it's the last snack on Earth. These little acrobats stay busy collecting nuts, seeds, and fungi—feasting on fresh finds in summer and on stored cones through winter.
+> 谁能抗拒这张软乎乎的小脸？一只欧亚红松鼠栖息在积雪覆盖的松枝上，前爪紧紧抓着松果，仿佛那是世上最后的美食。这些灵巧的小家伙全年忙碌：夏季采集坚果、种子和菌类，冬季则靠储存的松果维持生活。
 > 
-> Once common across Britain, their numbers have fallen sharply due to competition from gray squirrels and the spread of the squirrelpox virus. Today, these red squirrels are mostly found in northern England and Scotland, with refuges like Kielder and Harwood Forests in Northumberland helping sustain their populations.
+> 红松鼠曾遍布英国各地，但因灰松鼠的竞争和松鼠痘病毒的蔓延，其数量急剧减少。如今，这些红松鼠主要分布于英格兰北部和苏格兰地区，诺森伯兰郡的基尔德森林和哈伍德森林等保护区成了它们的重要庇护所。
 > 
-> Their bright fur and quick movements have made them favorites in art and children's tales—most famously in Beatrix Potter's 'The Tale of Squirrel Nutkin.' Spotting a red squirrel in the wild feels like seeing a classic winter illustration come to life—tiny paws, a twitching nose, and a tail that seems to have a mind of its own. So the next time you see one, remember that protecting small creatures helps keep the stories they inspire alive.
+> 红松鼠因鲜艳的毛色和敏捷的动作，成为艺术作品和童话故事中的明星，最出名的当属碧雅翠丝·波特的《小松鼠纳特金的故事》。如果你在野外邂逅红松鼠，就恍若一幅经典冬日插画跃然眼前：小巧的爪子、微微颤动的鼻尖，还有那根会“撒娇”的蓬松尾巴。所以请记住，守护这些小家伙，就是让童话继续流传。
 
 </details>
 
-| ![Eurasian red squirrel in Northumberland, England](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Eurasian red squirrel in Northumberland, England](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![诺森伯兰郡的欧亚红松鼠，英格兰](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![诺森伯兰郡的欧亚红松鼠，英格兰](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_1080x1920.jpg) |
-
-### 20251216
-
-> Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> They've got long beards, red hats, and a knack for stealing a tad bit of Santa's thunder every Christmas. Meet the gnome—known as 'tomte' in Sweden and 'nisse' in Norway—whose traditions vary across regions. Rooted in Scandinavian folklore, these tiny guardians watch over homes and farms, keeping families safe through long, dark winters. But there's a catch: treat them kindly, or they may play tricks. A warm bowl of porridge on Christmas Eve is their favorite reward. Said to bring luck and laughter, they might even befriend your garden gnomes, since they often resemble them.
-> 
-> Gnomes are also believed to possess deep knowledge of nature and the secrets of the earth, which explains their role as loyal protectors. Over time, these helpers have swapped their work clothes for red hats and festive charm, evolving into the Christmas gnomes we know today. Handmade with wool, felt, and faux fur, they now fill Christmas markets with color and character. Look closely and you'll notice no two are the same—some mischievous, others sweet, all with stories woven into every seam. So, the next time one catches your eye at a Christmas market, take it as a quiet offer of protection.
-> 
-> 
-
-</details>
-
-| ![Handmade gnomes at a Christmas market](https://cn.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Handmade gnomes at a Christmas market](https://cn.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_1080x1920.jpg) |
-
-### 20251215
-
-> Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Have you ever wondered how canals changed the way cities developed? For thousands of years, people have built canals to transport goods, control water flow, and connect places. From ancient Mesopotamia and Egypt to medieval Europe, they transformed cities like Venice and Bruges into trade hubs. The Netherlands took this even further—by the 17th century, they were designing waterways that shaped cities such as Amsterdam.
-> 
-> It's no wonder Amsterdam is nicknamed the 'Venice of the North.' The city's 60-mile-long network of canals forms part of the UNESCO-listed Canal District. Mostly flanked by roads on both sides, these routes are now used for tourism and recreation. In the center of the city is the Spiegelgracht canal seen in today's image. It is famous for its art galleries, antique shops, and serene reflections that inspired its name, 'Mirror Canal.' As night falls, bridges and trees glow with festive lights, their reflections shimmering across the calm water. With Christmas just around the corner, these canals resemble glowing strings of history—proof that the past still shines bright in the present.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_1080x1920.jpg) |shimmering across the calm water. With Christmas just around the corner, these canals resemble glowing strings of history—proof that the past still shines bright in the present.
 > 
 > 
 
