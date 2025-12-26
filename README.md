@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251224
+
+> Snowy chapel with Christmas tree in the Bavarian Alps, Germany (© mauritius images GmbH/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> As Christmas Eve arrives, millions embrace customs that connect us to our roots—or introduce us to entirely new cultures. In snowy regions like the Bavarian Alps in Germany—a frost-kissed landscape seen in today's image—festive lights glow against winter's chill. Elsewhere, the sun blazes brightly: think of the Caribbean, Australia, or Brazil, where Christmas often means golden beaches instead of frosty mornings.
+> 
+> In Germany, you might wander through a festive market with a steaming cup of Glühwein (mulled wine) in hand, weaving from one stall to the next. In Caracas, Venezuela, you'll join crowds rollerblading to Christmas Mass. Head to Mexico, and you'll find quirky radish sculptures from the Night of the Radishes festival, left over from the night before. For those drawn to mystery, Ukraine decorates trees with spider webs, and Wales celebrates Mari Lwyd—a horse's skull adorned and paraded door to door. The list of traditions is endless. What feels ordinary to one may be an entirely new world to someone else. So tonight, open your heart—and maybe your door—someone might be eager to discover your holiday tradition.
+> 
+> 
+
+</details>
+
+| ![Christmas Eve](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas Eve](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_1080x1920.jpg) |
+
 ### 20251223
 
 > Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Celebrating 54 years of Capitol Reef National Park](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating 54 years of Capitol Reef National Park](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |
-
-### 20251217
-
-> Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Who could resist that squishy face? A Eurasian red squirrel perches on a snowy pine branch, paws clutching a pine cone like it's the last snack on Earth. These little acrobats stay busy collecting nuts, seeds, and fungi—feasting on fresh finds in summer and on stored cones through winter.
-> 
-> Once common across Britain, their numbers have fallen sharply due to competition from gray squirrels and the spread of the squirrelpox virus. Today, these red squirrels are mostly found in northern England and Scotland, with refuges like Kielder and Harwood Forests in Northumberland helping sustain their populations.
-> 
-> Their bright fur and quick movements have made them favorites in art and children's tales—most famously in Beatrix Potter's 'The Tale of Squirrel Nutkin.' Spotting a red squirrel in the wild feels like seeing a classic winter illustration come to life—tiny paws, a twitching nose, and a tail that seems to have a mind of its own. So the next time you see one, remember that protecting small creatures helps keep the stories they inspire alive.
-
-</details>
-
-| ![Eurasian red squirrel in Northumberland, England](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Eurasian red squirrel in Northumberland, England](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_1080x1920.jpg) |x1920.jpg) |d=OHR.YosemiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
