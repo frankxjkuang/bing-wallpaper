@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251226
+
+> Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The best thing about Boxing Day is that it doesn't ask much of you. No big countdown. No dramatic unwrapping. No last-minute dashes for batteries. It's a rare holiday that says, 'Sit down, finish your leftovers, and take a moment.' Celebrated on December 26 in the United Kingdom and some Commonwealth countries, it's a national cool-down after Christmas has done all the heavy lifting. The term goes back to Victorian Britain, when households prepared Christmas boxes for workers and tradespeople—tokens of thanks that ranged from coins to essentials. Churches joined in by opening alms boxes and distributing donations.
+> 
+> Fast-forward to today: Boxing Day has evolved into a hybrid of tradition and modern habits. Football fixtures turn the day into a fan festival. Outdoor walks help shake off the seasonal food coma. And then there are the sales that inspire early lines and brisk browsing. For those who prefer scenery over discounts, places like Salisbury Cathedral in England, shown in today's image, offer a peaceful escape. Brave souls plunge into icy waters for Boxing Day swims. Old-style fox hunts have shifted to ceremonial, non-hunting events, keeping the pageantry alive without the chase.
+> 
+> 
+
+</details>
+
+| ![Boxing Day](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Boxing Day](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_1080x1920.jpg) |
+
 ### 20251225
 
 > Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Christmas star lanterns, Germany](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas star lanterns, Germany](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1080x1920.jpg) |
-
-### 20251219
-
-> Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Bormio is a mountain town in northern Italy's Lombardy region, nestled in the Alps near the Stelvio Pass. This location has connected communities across mountain valleys for centuries, shaping how people live and move through the region. Today's image features Bormio's winter landscape, a reflection of its high-altitude setting and enduring bond with the surrounding peaks.
-> 
-> Its strategic position helped Bormio develop a strong civic identity. For many years, it was one of the 'Three Magnificent Communities,' which held local autonomy and served as an administrative center for nearby settlements. The medieval town layout remains visible in its stone buildings and public spaces, including the Kuerc Square, where community decisions were once made. These structures reflect how governance and daily life adapted to the challenges of a mountain environment.
-> 
-> Bormio is also known for its natural hot springs that have been documented since Roman times. Historic bathhouses, such as the Bagni Vecchi, show how thermal waters supported health, social life, and resilience during harsh winters. Today, the town is part of Stelvio National Park, where its history, landscape, and culture continue to be preserved.
-
-</details>
-
-| ![Bormio, Lombardy, Italy](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bormio, Lombardy, Italy](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_1080x1920.jpg) |15&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1080x1920.jpg) |4526286_1080x1920.jpg) |15&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
