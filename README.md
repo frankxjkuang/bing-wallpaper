@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251227
+
+> Plate ice along Lake Superior, Grand Marais, Minnesota (© wanderluster/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> When winter tightens its grip on Lake Superior in Minnesota, the shoreline transforms into a landscape of tilted, glass-like shards known as plate ice. Thin sheets fracture under shifting temperatures, then drift and stack as the wind presses them toward land. The result is a field of translucent blues and silvers, catching the light at sharp angles and making the water's edge appear sculpted rather than frozen.
+> 
+> Beneath the surface, waves keep moving, pushing the slabs against one another as they scrape, ring, and groan. The sounds rise and fall with the motion, turning the shoreline into a fleeting, shifting performance. These formations can appear suddenly and disappear just as quickly, changing with every gust and temperature dip.
+> 
+> Lake Superior's immense scale shapes this phenomenon. As the world's largest freshwater lake by surface area, spanning about 31,700 square miles, its depth, wind patterns, and temperature swings set the stage for this winter display. Its Ojibwe name, 'Gichigami,' from the Indigenous people of the region, reflects its long-standing reputation as a 'great sea.'
+
+</details>
+
+| ![Plate ice along Lake Superior, Grand Marais, Minnesota](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Plate ice along Lake Superior, Grand Marais, Minnesota](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_1080x1920.jpg) |
+
 ### 20251226
 
 > Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Winter solstice](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winter solstice](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1080x1920.jpg) |
-
-### 20251220
-
-> Christmas star lanterns, Germany (© artas/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As Christmas draws near, star lanterns begin to appear everywhere—twinkling from balconies, shining in shop windows, and lighting up market stalls. Their shimmer cuts through the long winter nights, filling streets and homes with joy, color, and a sense of togetherness. But behind these festive decorations lies a story as captivating as their glow.
-> 
-> The first of these stars emerged in Niesky, Germany, in the early 1800s. Students at a Moravian Church boarding school crafted what we now call the Herrnhut Star, or Moravian Star, during a geometry lesson. That 26-pointed marvel, crafted from paper and cardboard, soon came to symbolize the Star of Bethlehem and the spirit of Advent. By 1897, Pieter Verbeek, a former student of that school, began producing and selling them. His son Harry later continued the tradition, founding the Herrnhut Star Factory in 1925.
-> 
-> From that humble beginning, the tradition spread across Europe and the world. Today's Christmas star lanterns, whether handmade or electric, simple or ornate, echo that same idea. Each one reminds us that even a single spark of light has the power to uplift hearts and brighten the season.
-
-</details>
-
-| ![Christmas star lanterns, Germany](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas star lanterns, Germany](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1080x1920.jpg) |4526286_1080x1920.jpg) |15&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1080x1920.jpg) ||15&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
