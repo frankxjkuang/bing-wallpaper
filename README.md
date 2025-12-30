@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251228
+
+> Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Fifty-one years after the Endangered Species Act (ESA) became law, its purpose remains clear: to protect species facing extinction and preserve the habitats they depend on. Signed in 1973, the ESA became one of the world's strongest conservation laws, influencing policies well beyond the United States. It demonstrates that recovery is possible when science and enforcement work together. Its influence on conservation is especially clear in species whose futures hinge on international attention. The black-and-white ruffed lemur of Madagascar is one such example. Many people recognize lemurs from the animated movie 'Madagascar,' but the real animal faces a much harsher reality. This striking primate is critically endangered, surviving in increasingly fragmented forests where habitat loss remains a constant threat.
+> 
+> According to the International Union for Conservation of Nature, the species has undergone a severe population decline driven by deforestation and hunting. Conservation programs, global funding, and science-based protections continue to be essential—reflecting the same principles the ESA helped establish half a century ago.
+> 
+> 
+
+</details>
+
+| ![Anniversary of the Endangered Species Act of 1973](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of the Endangered Species Act of 1973](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_1080x1920.jpg) |
+
 ### 20251227
 
 > Plate ice along Lake Superior, Grand Marais, Minnesota (© wanderluster/Getty Images)
@@ -112,28 +131,7 @@
 
 | !['The Nutcracker' performed by the Turkish State Opera and Ballet in Türkiye](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | !['The Nutcracker' performed by the Turkish State Opera and Ballet in Türkiye](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |
-
-### 20251221
-
-> Dawn light through frosty trees, Sweden (© Schon/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Ever felt as if the night just wouldn't end? That's the winter solstice working its magic. It is the shortest day and longest night of the year in the Northern Hemisphere, occurring around December 21 or 22. In the Southern Hemisphere, the same happens around June 21 or 22. It marks the moment when one of Earth's poles tilts farthest from the sun. From that instant, daylight slowly begins to lengthen again.
-> 
-> This celestial event has fascinated people since the Neolithic era. Sites like Newgrange in Ireland and Stonehenge in England were built to capture the solstice sunrise or sunset. In ancient Egypt, temples such as the Temple of Amun-Ra at Karnak and the Mortuary Temple of Hatshepsut at Luxor were aligned with it. For the ancient Romans, December 25 marked the solstice, ushering in Saturnalia, a lively festival of revelry, feasts, and gifts. Across cultures, the solstice has become a celebration of light's return. In Iran, Yalda Night honors the triumph of light over darkness, while in Scandinavia, St. Lucia's Day brightens winter with candlelit processions.
-> 
-> 
-
-</details>
-
-| ![Winter solstice](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winter solstice](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1080x1920.jpg) ||15&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
