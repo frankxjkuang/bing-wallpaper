@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251229
+
+> St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On a windswept plateau in eastern Türkiye, along the border with Armenia, the ruins of the ancient city of Ani rise from the landscape with striking clarity. A millennium ago, Ani was a thriving Armenian capital on a major Silk Road route, its fortifications and busy streets shaping trade and culture across the region. Today, the city is quiet, but its outline still carries the weight of its past.
+> 
+> The image shows the Church of St. Gregory, one of Ani's most striking survivors. Built from dark volcanic stone, its tall cylindrical tower stands over the plateau with the same precision that once defined the city. Ani was known as the 'City of 1,001 Churches,' and its architects pushed new ideas in arches, domes, and facades that later influenced Gothic tradition. Even in ruin, the design remains deliberate and unmistakable.
+> 
+> Ani's decline unfolded through earthquakes, invasions, and shifting trade routes, yet the city never fully disappeared. Archaeologists continue to find new details, and conservation work fights erosion and time. Walking here feels less like exploring a ruin and more like meeting a city determined to keep its story alive.
+
+</details>
+
+| ![St. Gregory Church in Ani Ruins, Kars, Türkiye](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. Gregory Church in Ani Ruins, Kars, Türkiye](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_1080x1920.jpg) |
+
 ### 20251228
 
 > Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Reindeer, Lapland, Finland](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Reindeer, Lapland, Finland](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_1080x1920.jpg) |
-
-### 20251222
-
-> 'The Nutcracker' performed by the Turkish State Opera and Ballet in Ankara, Türkiye (© Anadolu/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As Christmas approaches, each sunset gives way to a glow of festive lights, bringing a touch of wonder and preparing us for the holiday season. One of the world's most beloved stage works, 'The Nutcracker,' is rooted in this very sense of magic. The story unfolds on Christmas Eve, in the midst of holiday cheer, when Clara receives a nutcracker as a gift. As night falls and the household drifts into sleep, the little girl and her nutcracker embark on a fantastical journey—battling the Mouse King and wandering through the Land of Sweets. Among its most famous moments is the dance of the Sugar Plum Fairy—the ruler of the Land of Sweets—accompanied by music that has become iconic. Tchaikovsky composed these enchanting melodies for the celesta, an instrument often called the bell-piano.
-> 
-> Based on the book 'The Nutcracker and the Mouse King' by E.T.A. Hoffmann, the ballet premiered in 1892 in Russia and has since been reimagined countless times—from grand productions by leading ballet companies to musicals and family adaptations. Today's image captures the Turkish State Opera and Ballet's Ankara performance, where snow-dusted silhouettes evoke a fairy-tale world, gently heralding the holiday season.
-> 
-> 
-
-</details>
-
-| !['The Nutcracker' performed by the Turkish State Opera and Ballet in Türkiye](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | !['The Nutcracker' performed by the Turkish State Opera and Ballet in Türkiye](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_1080x1920.jpg) |ape 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
