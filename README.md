@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251230
+
+> Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> In Japan's colder months, there's a morning moment when stillness breaks—not with wind or footsteps, but with a bright, rolling call that sweeps across the water. Whooper swans have touched down. One loud whoop—and winter suddenly feels awake. These birds migrate from Siberia and the Russian Far East, choosing Japan as their seasonal home because its lakes offer what long-distance travelers crave: open water, steady food, and a safe place to rest. One of their favorite destinations is Kotoku Pond in the Kantō region on Japan's largest island.
+> 
+> Whooper swans make an impression from the start, with tall necks, white feathers, and yellow-and-black bills. Add a call that carries miles, and they become impossible to miss. Families migrate together, keep close on the water, and coordinate flights with those trumpet-like notes. At places like Kotoku Pond, dawn departures are the highlight. While in Japan, their diet is simple: grains, aquatic plants, and grasses. Moreover, healthy wetlands attract them, and their return each winter signals that the ecosystem is thriving.
+> 
+> 
+
+</details>
+
+| ![Whooper swans, Kotoku Pond, Japan](https://cn.bing.com/th?id=OHR.JapanSwans_EN-US6228421340_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Whooper swans, Kotoku Pond, Japan](https://cn.bing.com/th?id=OHR.JapanSwans_EN-US6228421340_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JapanSwans_EN-US6228421340_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JapanSwans_EN-US6228421340_1080x1920.jpg) |
+
 ### 20251229
 
 > St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Christmas Eve](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas Eve](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_1080x1920.jpg) |
-
-### 20251223
-
-> Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Few creatures evoke the magic of the holidays quite like the reindeer. Also known as caribou, they are the spirit animals of Christmas lovers—and they rock it. Sturdy and sure-footed, they've been pulling Santa's sleigh ever since Clement Clarke Moore cast them in the role in his 1823 poem 'A Visit from Saint Nicholas.' And they were born for it. Their hooves shrink in winter to expose a gripping rim, then expand in warmer months for better traction. Still not impressed? Consider this: reindeer don't have an internal clock. Instead, their melatonin—the hormone that regulates sleep—adjusts to light and darkness, helping them stay awake through endless nights of gift delivery.
-> 
-> Reindeer carry Santa through the air, excel on land, and move effortlessly through icy waters, thanks to their strong swimming skills. Their robust bodies—males can weigh up to 550 pounds—bear antlers stretching over 55 inches, sometimes crowned with 44 proud points. Today's image comes from Finland, where reindeer outnumber people, roaming a land as timeless as the holiday spirit they embody.
-> 
-> 
-
-</details>
-
-| ![Reindeer, Lapland, Finland](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Reindeer, Lapland, Finland](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_1080x1920.jpg) |ape 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_1080x1920.jpg) |US5636971050_1080x1920.jpg) |ape 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
