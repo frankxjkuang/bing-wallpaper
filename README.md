@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20251231
+
+> New Year's Eve, Oberbaum Bridge, Berlin, Germany (© spreephoto.de/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Three… two… one… wait—hold that countdown. It's not New Year's yet, but the Oberbaum Bridge already feels as if Berlin hit its 'celebrate' button ahead of time. On this night, the bridge transforms from a simple river crossing into a runway where this city taxis toward midnight, engines humming, fireworks warming up, and the crowd collectively practicing its 'Happy New Year!' voice.
+> 
+> Wedged perfectly between Friedrichshain and Kreuzberg, the bridge sits at the meeting point of two neighborhoods across the River Spree that approach the eve with completely different strategies. Friedrichshain shows up with club beats and street snacks. Kreuzberg brings laid-back bars and last-minute toasts. The Oberbaum Bridge? From here, the scene is pure improvisation—bursts of color from rooftops, random sparkles from the riverbanks, and occasional 'Was that meant to go sideways?' moments. The bridge's iconic red-brick towers watch over it all, steady and unfazed. These towers once marked the divide between East and West Berlin, but tonight they mark something far better: togetherness. Here's to crossing into another year—one step, one cheer, and one firework at a time.
+> 
+> 
+
+</details>
+
+| ![New Year's Eve](https://cn.bing.com/th?id=OHR.GermanyNewYear_EN-US6344260060_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![New Year's Eve](https://cn.bing.com/th?id=OHR.GermanyNewYear_EN-US6344260060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GermanyNewYear_EN-US6344260060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GermanyNewYear_EN-US6344260060_1080x1920.jpg) |
+
 ### 20251230
 
 > Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Merry Christmas!](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Merry Christmas!](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_1080x1920.jpg) |
-
-### 20251224
-
-> Snowy chapel with Christmas tree in the Bavarian Alps, Germany (© mauritius images GmbH/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> As Christmas Eve arrives, millions embrace customs that connect us to our roots—or introduce us to entirely new cultures. In snowy regions like the Bavarian Alps in Germany—a frost-kissed landscape seen in today's image—festive lights glow against winter's chill. Elsewhere, the sun blazes brightly: think of the Caribbean, Australia, or Brazil, where Christmas often means golden beaches instead of frosty mornings.
-> 
-> In Germany, you might wander through a festive market with a steaming cup of Glühwein (mulled wine) in hand, weaving from one stall to the next. In Caracas, Venezuela, you'll join crowds rollerblading to Christmas Mass. Head to Mexico, and you'll find quirky radish sculptures from the Night of the Radishes festival, left over from the night before. For those drawn to mystery, Ukraine decorates trees with spider webs, and Wales celebrates Mari Lwyd—a horse's skull adorned and paraded door to door. The list of traditions is endless. What feels ordinary to one may be an entirely new world to someone else. So tonight, open your heart—and maybe your door—someone might be eager to discover your holiday tradition.
-> 
-> 
-
-</details>
-
-| ![Christmas Eve](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Christmas Eve](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_1080x1920.jpg) |US5636971050_1080x1920.jpg) |ape 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
