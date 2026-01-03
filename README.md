@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260101
+
+> Arctic fox sleeping (© Chansak Joe/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Do you feel as if you have a whole year's worth of rest to catch up on? Then you can relate to this Arctic fox, cozily tucked among the rocky outcroppings of the frozen tundra. Whether the new year greets you with biting cold or under a warm sun, take five extra minutes to stretch before diving into the 365 days ahead.
+> 
+> Ever wondered why we have 365 days in a year? It's because the Gregorian calendar—introduced in 1582—is based on a solar year: the time it takes Earth to orbit the sun. The stars have our backs, but the plans we make for the months ahead are all on us.
+> 
+> Let's start the year with a clean slate. Here are a few ideas for New Year's resolutions. Simple things like reading, taking nature walks, or practicing mindfulness cost nothing and can really boost your quality of life. Or maybe you're dreaming bigger: moving abroad, taking up scuba diving, or learning an endangered language? Take a deep breath—and perhaps sleep on it a little longer.
+
+</details>
+
+| ![Happy New Year!](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy New Year!](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_1080x1920.jpg) |
+
 ### 20251231
 
 > New Year's Eve, Oberbaum Bridge, Berlin, Germany (© spreephoto.de/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Boxing Day](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Boxing Day](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_1080x1920.jpg) |
-
-### 20251225
-
-> Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Beneath Heidelberg's winter sky in Germany, stalls sparkle with snow globes, each capturing the spirit of the season in a miniature world. Today, Christmas—a Christian celebration of faith, light, and togetherness—invites us to welcome warmth and joy into the coldest days of the year. Across continents, candles glow on windowsills and garlands twine through homes and streets.
-> 
-> Germany was the cradle of many of these traditions, which were born in medieval towns and passed down through centuries of storytelling. Among these customs are the decorated tree, the Advent calendar, and the Christmas market that fills cities with the scent of roasted nuts, cinnamon, and spiced wine. Amid the swirl of snow and song, these markets feel as timeless as the snow globes they showcase. For a fleeting moment, there's a pause in the winter rush, where wonder lingers just long enough to be savored.
-> 
-> 
-
-</details>
-
-| ![Merry Christmas!](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Merry Christmas!](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_1080x1920.jpg) |id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
