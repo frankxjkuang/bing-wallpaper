@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260102
+
+> Aerial view of Venice, Italy (© Clement Leonard/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Seeing Venice from above is mesmerizing, but this Italian gem's true magic lies within its walls and waterways. Founded in the 5th century on a cluster of islands in the Venetian Lagoon, the early settlement rose from marshland to become a maritime powerhouse. By the Middle Ages, it had evolved into a major hub for trade between Europe and the East, fueling immense wealth and cultural growth. The city's grandeur shines through its Gothic palaces, Renaissance art, and landmarks such as St. Mark's Basilica, the Doge's Palace, and the Rialto Bridge.
+> 
+> Venice is celebrated not only for its iconic architecture and interwoven canals but also for the brilliant minds who shaped its legacy. 'The Travels of Marco Polo' chronicles the adventures of the Venetian merchant and explorer, and Antonio Vivaldi—composer of 'The Four Seasons'—was also born here. The city has inspired timeless works, including Thomas Mann's 'Death in Venice,' Shakespeare's 'The Merchant of Venice' and 'Othello,' and Henry James's novella 'The Aspern Papers.'
+> 
+> Today, Venice balances historic charm with modern challenges—from preserving fragile architecture to managing tourism. Gondolas glide past centuries-old facades, while festivals like Carnevale keep traditions alive.
+
+</details>
+
+| ![Aerial view of Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceView_EN-US3244163136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceView_EN-US3244163136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceView_EN-US3244163136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceView_EN-US3244163136_1080x1920.jpg) |
+
 ### 20260101
 
 > Arctic fox sleeping (© Chansak Joe/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Plate ice along Lake Superior, Grand Marais, Minnesota](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Plate ice along Lake Superior, Grand Marais, Minnesota](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_1080x1920.jpg) |
-
-### 20251226
-
-> Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The best thing about Boxing Day is that it doesn't ask much of you. No big countdown. No dramatic unwrapping. No last-minute dashes for batteries. It's a rare holiday that says, 'Sit down, finish your leftovers, and take a moment.' Celebrated on December 26 in the United Kingdom and some Commonwealth countries, it's a national cool-down after Christmas has done all the heavy lifting. The term goes back to Victorian Britain, when households prepared Christmas boxes for workers and tradespeople—tokens of thanks that ranged from coins to essentials. Churches joined in by opening alms boxes and distributing donations.
-> 
-> Fast-forward to today: Boxing Day has evolved into a hybrid of tradition and modern habits. Football fixtures turn the day into a fan festival. Outdoor walks help shake off the seasonal food coma. And then there are the sales that inspire early lines and brisk browsing. For those who prefer scenery over discounts, places like Salisbury Cathedral in England, shown in today's image, offer a peaceful escape. Brave souls plunge into icy waters for Boxing Day swims. Old-style fox hunts have shifted to ceremonial, non-hunting events, keeping the pageantry alive without the chase.
-> 
-> 
-
-</details>
-
-| ![Boxing Day](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Boxing Day](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_1080x1920.jpg) |id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
