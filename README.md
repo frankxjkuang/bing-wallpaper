@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260103
+
+> Staubbach Falls at Lauterbrunnen, Canton of Bern, Switzerland (© pongnathee kluaythong/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Our picture of the day takes us to the Swiss village of Lauterbrunnen, where the Staubbach Falls shimmers in the distance beyond a quiet alpine valley. This is the landscape a young traveler, J.R.R. Tolkien, crossed during a hiking trip in 1911, long before he became the storyteller behind 'The Lord of the Rings' and 'The Hobbit.' Its soaring cliffs, silver waterfalls, and crisp mountain air left a lasting impression and are believed to have inspired his vision of Rivendell, the elven refuge hidden deep in Middle-earth.
+> 
+> On January 3—Tolkien's birthday—fans across the globe celebrate Tolkien Day, raising a toast at 9 PM to 'The Professor.' The tradition, started by The Tolkien Society in 1972, recalls both Frodo's toast to Bilbo and the writer's years at Oxford, where he spent a lifetime shaping modern fantasy—interweaving language, legend, and moral courage into timeless tales. Today, admirers honor not just an author but a world-maker—one who showed that even the smallest journey can lead to greatness, and that wonder awaits, ever-present, just beyond the familiar.
+> 
+> 
+
+</details>
+
+| ![J.R.R. Tolkien Day](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![J.R.R. Tolkien Day](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_1080x1920.jpg) |
+
 ### 20260102
 
 > Aerial view of Venice, Italy (© Clement Leonard/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Anniversary of the Endangered Species Act of 1973](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of the Endangered Species Act of 1973](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_1080x1920.jpg) |
-
-### 20251227
-
-> Plate ice along Lake Superior, Grand Marais, Minnesota (© wanderluster/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> When winter tightens its grip on Lake Superior in Minnesota, the shoreline transforms into a landscape of tilted, glass-like shards known as plate ice. Thin sheets fracture under shifting temperatures, then drift and stack as the wind presses them toward land. The result is a field of translucent blues and silvers, catching the light at sharp angles and making the water's edge appear sculpted rather than frozen.
-> 
-> Beneath the surface, waves keep moving, pushing the slabs against one another as they scrape, ring, and groan. The sounds rise and fall with the motion, turning the shoreline into a fleeting, shifting performance. These formations can appear suddenly and disappear just as quickly, changing with every gust and temperature dip.
-> 
-> Lake Superior's immense scale shapes this phenomenon. As the world's largest freshwater lake by surface area, spanning about 31,700 square miles, its depth, wind patterns, and temperature swings set the stage for this winter display. Its Ojibwe name, 'Gichigami,' from the Indigenous people of the region, reflects its long-standing reputation as a 'great sea.'
-
-</details>
-
-| ![Plate ice along Lake Superior, Grand Marais, Minnesota](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Plate ice along Lake Superior, Grand Marais, Minnesota](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_1080x1920.jpg) |SuperiorIceMN_EN-US5952266924_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
