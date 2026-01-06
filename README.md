@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260104
+
+> Kings Mountain, Chugach Mountains, Alaska (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Kings Mountain in Alaska's Chugach Mountains isn't just another bump on the horizon—it's the kind of rugged beauty that makes you slow down and stare. Rising over 5,800 feet and sitting roughly 22 miles northeast of Palmer, this peak towers over mile 75 of the Glenn Highway, a route famous for its dramatic scenery. Its slopes bear the marks of ancient glaciers, etched into ridges and valleys that seem tailor-made for adventure.
+> 
+> The Dena'ina name, Bashtl'ech' (black stone), speaks to its cultural roots, while its English name honors Al King, a prospector from Alaska's gold rush days. Today, hikers and climbers come for the challenge: steep ascents, unpredictable weather, and views so sweeping they feel like a hard-earned reward. On clear days, the Matanuska Glacier glimmers in the distance, and wildflowers brighten the rocky terrain, reminding you that even Alaska's wilderness has a soft side. Pack layers and a sense of humor—the weather changes fast—but if you're lucky, standing atop Kings Mountain feels like shaking hands with the sky.
+> 
+> 
+
+</details>
+
+| ![Kings Mountain, Chugach Mountains, Alaska](https://cn.bing.com/th?id=OHR.KingMountain_EN-US6730743729_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kings Mountain, Chugach Mountains, Alaska](https://cn.bing.com/th?id=OHR.KingMountain_EN-US6730743729_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KingMountain_EN-US6730743729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KingMountain_EN-US6730743729_1080x1920.jpg) |
+
 ### 20260103
 
 > Staubbach Falls at Lauterbrunnen, Canton of Bern, Switzerland (© pongnathee kluaythong/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![St. Gregory Church in Ani Ruins, Kars, Türkiye](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. Gregory Church in Ani Ruins, Kars, Türkiye](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_1080x1920.jpg) |
-
-### 20251228
-
-> Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Fifty-one years after the Endangered Species Act (ESA) became law, its purpose remains clear: to protect species facing extinction and preserve the habitats they depend on. Signed in 1973, the ESA became one of the world's strongest conservation laws, influencing policies well beyond the United States. It demonstrates that recovery is possible when science and enforcement work together. Its influence on conservation is especially clear in species whose futures hinge on international attention. The black-and-white ruffed lemur of Madagascar is one such example. Many people recognize lemurs from the animated movie 'Madagascar,' but the real animal faces a much harsher reality. This striking primate is critically endangered, surviving in increasingly fragmented forests where habitat loss remains a constant threat.
-> 
-> According to the International Union for Conservation of Nature, the species has undergone a severe population decline driven by deforestation and hunting. Conservation programs, global funding, and science-based protections continue to be essential—reflecting the same principles the ESA helped establish half a century ago.
-> 
-> 
-
-</details>
-
-| ![Anniversary of the Endangered Species Act of 1973](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of the Endangered Species Act of 1973](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_1080x1920.jpg) |SuperiorIceMN_EN-US5952266924_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_1080x1920.jpg) |SuperiorIceMN_EN-US5952266924_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1080x1920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
