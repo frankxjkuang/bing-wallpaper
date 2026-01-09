@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260107
+
+> Turret Arch framed by North Window in Arches National Park, Utah (© Jim Patterson/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Today is a day that puts time into perspective. Old Rock Day highlights the vast geological processes that have shaped our world since its earliest eras. In Arches National Park, Utah, Turret Arch—seen through North Window—offers a striking reminder: landscapes can take hundreds of millions of years to assemble. The Entrada Sandstone that forms these arches began as shifting dunes and shallow seas long before erosion carved today's shapes. Even so, these formations are relatively young. Most rocks on Earth disappear over time because plate tectonics, erosion, and volcanism continually recycle the crust. Only the planet's ancient continental shields preserve truly old material. Canada's Acasta Gneiss, about 4 billion years old, is the oldest known rock still rooted where it formed.
+> 
+> Old Rock Day also remembers the pioneers of geology. Theophrastus and Pliny the Elder recorded early mineral studies, while Ulisse Aldrovandi helped establish the term 'geology' in 1603. One hundred fifty years later, William Smith drew the first geological map. And in 1785, James Hutton revealed the Earth's immense age, providing insights that continue to shape our understanding of the ground beneath our feet.
+> 
+> 
+
+</details>
+
+| ![Old Rock Day](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Old Rock Day](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg) |
+
 ### 20260106
 
 > Nuuk, Greenland (© nevereverro/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Happy New Year!](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy New Year!](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_1080x1920.jpg) |
-
-### 20251231
-
-> New Year's Eve, Oberbaum Bridge, Berlin, Germany (© spreephoto.de/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Three… two… one… wait—hold that countdown. It's not New Year's yet, but the Oberbaum Bridge already feels as if Berlin hit its 'celebrate' button ahead of time. On this night, the bridge transforms from a simple river crossing into a runway where this city taxis toward midnight, engines humming, fireworks warming up, and the crowd collectively practicing its 'Happy New Year!' voice.
-> 
-> Wedged perfectly between Friedrichshain and Kreuzberg, the bridge sits at the meeting point of two neighborhoods across the River Spree that approach the eve with completely different strategies. Friedrichshain shows up with club beats and street snacks. Kreuzberg brings laid-back bars and last-minute toasts. The Oberbaum Bridge? From here, the scene is pure improvisation—bursts of color from rooftops, random sparkles from the riverbanks, and occasional 'Was that meant to go sideways?' moments. The bridge's iconic red-brick towers watch over it all, steady and unfazed. These towers once marked the divide between East and West Berlin, but tonight they mark something far better: togetherness. Here's to crossing into another year—one step, one cheer, and one firework at a time.
-> 
-> 
-
-</details>
-
-| ![New Year's Eve](https://cn.bing.com/th?id=OHR.GermanyNewYear_EN-US6344260060_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![New Year's Eve](https://cn.bing.com/th?id=OHR.GermanyNewYear_EN-US6344260060_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GermanyNewYear_EN-US6344260060_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GermanyNewYear_EN-US6344260060_1080x1920.jpg) |920.jpg) |nload portrait 4K](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_1080x1920.jpg) |cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
