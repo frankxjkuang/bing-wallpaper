@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260108
+
+> Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> When a bird is called a starling, you'd expect it to be a bit of a show-off. True to its name, this little creature knows how to steal the spotlight. From shimmering feathers that glint green and purple in the sun, to its ability to mimic sounds, the starling is the headline act. Originally native to Europe and Asia, the common starling has spread across the globe. In the 19th century, a group of them were introduced to New York's Central Park by an enthusiast of birds mentioned in Shakespeare's plays.
+> 
+> Brighton's West Pier may be a ruin, but when starlings gather above it, the scene is anything but broken. Each evening in autumn and winter, thousands of these small birds twist and turn in the air. The spectacle is called a murmuration, a term as musical as the sound of wings beating in unison. Scientists suggest the birds swoop and swirl to confuse predators, keep warm and share information about roosting spots. Whatever the reason, the result is a dance that has visitors gazing upward, phones in hand, hoping to catch a glimpse before the flock settles for the night.
+> 
+> 
+
+</details>
+
+| ![Starling murmuration over the ruins of Brighton's West Pier, England](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Starling murmuration over the ruins of Brighton's West Pier, England](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1080x1920.jpg) |
+
 ### 20260107
 
 > Turret Arch framed by North Window in Arches National Park, Utah (© Jim Patterson/TANDEM Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Aerial view of Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceView_EN-US3244163136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceView_EN-US3244163136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceView_EN-US3244163136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceView_EN-US3244163136_1080x1920.jpg) |
-
-### 20260101
-
-> Arctic fox sleeping (© Chansak Joe/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Do you feel as if you have a whole year's worth of rest to catch up on? Then you can relate to this Arctic fox, cozily tucked among the rocky outcroppings of the frozen tundra. Whether the new year greets you with biting cold or under a warm sun, take five extra minutes to stretch before diving into the 365 days ahead.
-> 
-> Ever wondered why we have 365 days in a year? It's because the Gregorian calendar—introduced in 1582—is based on a solar year: the time it takes Earth to orbit the sun. The stars have our backs, but the plans we make for the months ahead are all on us.
-> 
-> Let's start the year with a clean slate. Here are a few ideas for New Year's resolutions. Simple things like reading, taking nature walks, or practicing mindfulness cost nothing and can really boost your quality of life. Or maybe you're dreaming bigger: moving abroad, taking up scuba diving, or learning an endangered language? Take a deep breath—and perhaps sleep on it a little longer.
-
-</details>
-
-| ![Happy New Year!](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy New Year!](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_1080x1920.jpg) |cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1080x1920.jpg) |emiteWinter_EN-US4786605896_1080x1920.jpg) |ng.com/th?id=OHR.EverestGlow_EN-US6131667612_1080x1920.jpg) |US6045311068_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceView_EN-US3244163136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceView_EN-US3244163136_1080x1920.jpg) |=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
