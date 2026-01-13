@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260111
+
+> Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On January 11, 1944, Morocco took a bold step toward freedom. Sixty-six leaders signed the Proclamation of Independence, demanding an end to French and Spanish colonial rule and affirming the country's right to sovereignty. This manifesto, backed by Sultan Mohammed V, was presented not only to colonial authorities but also to representatives of the US, UK, and the former Soviet Union—a signal that Morocco's struggle was part of a global call for self-determination. Though repression followed, the movement endured, and by 1956 Morocco achieved full independence, marking a turning point in North African history.
+> 
+> Today, that spirit of resilience echoes in Chefchaouen, the 'Blue Pearl' of the Rif Mountains. Founded in the 15th century as a fortress against Portuguese incursions, the city later adopted its signature blue palette—a tradition some trace to Jewish influence and others to Andalusian roots. Wandering through its serene alleys, where indigo walls meet crisp mountain air, feels like stepping into a living canvas—a reminder that Morocco's story is painted in courage, culture, and color.
+> 
+> 
+
+</details>
+
+| ![Blue walls of Chefchaouen, Morocco](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blue walls of Chefchaouen, Morocco](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_1080x1920.jpg) |
+
 ### 20260110
 
 > The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)
@@ -112,26 +131,7 @@
 
 | ![A herd of impalas, Londolozi Game Reserve, South Africa](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A herd of impalas, Londolozi Game Reserve, South Africa](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |
-
-### 20260104
-
-> Kings Mountain, Chugach Mountains, Alaska (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Kings Mountain in Alaska's Chugach Mountains isn't just another bump on the horizon—it's the kind of rugged beauty that makes you slow down and stare. Rising over 5,800 feet and sitting roughly 22 miles northeast of Palmer, this peak towers over mile 75 of the Glenn Highway, a route famous for its dramatic scenery. Its slopes bear the marks of ancient glaciers, etched into ridges and valleys that seem tailor-made for adventure.
-> 
-> The Dena'ina name, Bashtl'ech' (black stone), speaks to its cultural roots, while its English name honors Al King, a prospector from Alaska's gold rush days. Today, hikers and climbers come for the challenge: steep ascents, unpredictable weather, and views so sweeping they feel like a hard-earned reward. On clear days, the Matanuska Glacier glimmers in the distance, and wildflowers brighten the rocky terrain, reminding you that even Alaska's wilderness has a soft side. Pack layers and a sense of humor—the weather changes fast—but if you're lucky, standing atop Kings Mountain feels like shaking hands with the sky.
-> 
-> 
-
-</details>
-
-| ![Kings Mountain, Chugach Mountains, Alaska](https://cn.bing.com/th?id=OHR.KingMountain_EN-US6730743729_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kings Mountain, Chugach Mountains, Alaska](https://cn.bing.com/th?id=OHR.KingMountain_EN-US6730743729_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KingMountain_EN-US6730743729_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KingMountain_EN-US6730743729_1080x1920.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
