@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260112
+
+> Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)
+
+<details>
+<summary>Description</summary>
+
+> The clue isn't the tracks in the snow—it's the frosted faces peeking out like they've just discovered winter. Estonia is one of Europe's best places to spot Eurasian otters, thanks to its clean rivers, wide wetlands, and snack-filled coastline. This protected species was named Estonia's Animal of the Year in 2024. While globally considered near threatened, their population here has grown substantially, reaching an estimated 2,000 in recent years, up from a historic low of just 300 before the turn of the millennium.
+> 
+> From Soomaa National Park's flooded forests to Matsalu National Park's calm shallows, these mammals—with their streamlined bodies, webbed feet, and long tails—weave through the country's waters with ease. Their thick fur traps warm air, allowing them to dive into cold Baltic currents without hesitation. While they look cute, their hunting skills are sharp: they track fish, frogs, and crustaceans with precision.
+> 
+> Unlike their sea otter cousins, Eurasian otters tend to work solo, but in Estonia's wetlands, neighbors aren't far away. They communicate with whistles, chirps, and occasional snorts. When pups arrive, the banks become playful classrooms where young otters learn to swim, eat, and master the 'oops, did I splash you?' face.
+
+</details>
+
+| ![Eurasian otter and pup, Estonia](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Eurasian otter and pup, Estonia](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |
+
 ### 20260111
 
 > Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Nuuk, Greenland](https://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nuuk, Greenland](https://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg) |
-
-### 20260105
-
-> A herd of impalas, Londolozi Game Reserve, South Africa (© Mint Images/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> What stands out about Londolozi Game Reserve in South Africa isn't just the wildlife—it's the long-term commitment behind it. Since 1926, its 58 square miles have supported research and monitored wildlife behavior in their natural habitat. Located within the Sabi Sand Private Game Reserve, it is home to Africa's Big Five. Londolozi is part of a larger open system that connects with Kruger National Park, allowing animals such as elephants, rhinos, lions, leopards, zebras, and many antelope species to move freely without fences holding them back.
-> 
-> Among the species frequently spotted are impalas—always moving, always alert. Their adaptable feeding habits help them shift between flowering plants, acacia pods, forbs, and fruits as the seasons change. Their social structure is just as interesting: females and young gather in herds, while males compete for territories during the breeding season. Most young are born in early summer after a gestation period of six to seven months. Even though they're quick and agile, predators such as leopards, lions, and cheetahs keep them on edge. Drought cycles and habitat pressure add to the challenges, so protected spaces like Londolozi make a meaningful difference in their long-term survival.
-> 
-> 
-
-</details>
-
-| ![A herd of impalas, Londolozi Game Reserve, South Africa](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A herd of impalas, Londolozi Game Reserve, South Africa](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
