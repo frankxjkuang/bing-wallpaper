@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260113
+
+> Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Most people wrap up their New Year plans by the first week of January. Wales, however, has a charming habit of saying, 'Hold on—we've got one more celebration left.' Enter Hen Galan, the 'Old New Year,' observed on January 13 in parts of Wales, most famously in the Gwaun Valley. The date survives from the old Julian calendar, kept long after the rest of Britain adopted the Gregorian one.
+> 
+> Alongside Hen Galan is Calennig, a tradition rooted in the Welsh word for 'New Year's gift.' Children lead the festivities with decorated apples—fruit studded with cloves, topped with holly, and balanced on three wooden legs. They carry the apples from house to house, reciting cheerful rhymes in exchange for coins or treats. In the past, kids would also carry jugs of water to splash on people's hands and faces or sprinkle around the house for luck.
+> 
+> Today, Calennig is less widespread than it once was, but the practice hasn't vanished. Schools still teach the old verses for Hen Galan, and local groups keep the customs alive. And if you ever want to see a place with apple-growing heritage, visit the Vale of Clwyd, featured in today's image.
+
+</details>
+
+| ![Hen Galan](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hen Galan](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_1080x1920.jpg) |
+
 ### 20260112
 
 > Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)
@@ -112,26 +131,7 @@
 
 | ![Old Rock Day](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Old Rock Day](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg) |
-
-### 20260106
-
-> Nuuk, Greenland (© nevereverro/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Picture a city where your daily commute offers views of fjords, drifting ice, and the Northern Lights. That's everyday life in Nuuk, the capital of Greenland—a small yet spirited Arctic hub blending Inuit heritage with Nordic modernity. Founded in 1728 by Danish-Norwegian missionary Hans Egede, it began as a small settlement called Godthaab—'Good Hope.'
-> 
-> Nuuk preserves 18th-century landmarks like the Hans Egede House and the red wooden Nuuk Cathedral. The Greenland National Museum displays Inuit artifacts and the well-preserved Qilakitsoq mummies, offering a glimpse into the island's deep past. This city is also home to the world's only Arctic golf course. But it's not just the sights that define Nuuk—it's how people come together when the cold sets in.
-> 
-> Winter brings short days and snowfall, yet the city buzzes with life. People head out for cross-country skiing, snowshoeing, boating, or dog sledding along the fjords. Indoors, friends gather for 'kaffemik'—a cozy coffee-and-cake tradition with strong Greenlandic coffee topped with whipped cream. Nuuk shows that life in the cold isn't about endurance—it's about balance, community, and finding color even in the depths of winter.
-
-</details>
-
-| ![Nuuk, Greenland](https://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nuuk, Greenland](https://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
