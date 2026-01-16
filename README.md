@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260114
+
+> The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> National Take the Stairs Day, observed on the second Wednesday of January, encourages everyone to add small bursts of movement to daily life. Choosing stairs instead of elevators, or fitting in a short walk or bike ride, helps build healthier habits. With millions living with chronic lung disease and air quality concerns growing, simple actions that strengthen our bodies matter more than ever.
+> 
+> If you want to mark the day with a climb to remember, the Fortress of Palamidi has you covered. Rising 709 feet above the city of Nafplio in Greece, this Venetian-built stronghold dates back to 1714. This impressive fortification has eight bastions, each designed as an independent unit so that if one fell, the others could still be defended. The Ottomans captured the fortress a year after completion, and Greece reclaimed it in 1822, renaming the bastions after heroes like Achilles and Leonidas. Today, visitors often test themselves on the fortress's famous staircase—once believed to have 999 steps, though the actual count is 857. At the top, sweeping views of the Argolic Gulf make every step worthwhile.
+> 
+> 
+
+</details>
+
+| ![National Take the Stairs Day](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take the Stairs Day](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |
+
 ### 20260113
 
 > Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Starling murmuration over the ruins of Brighton's West Pier, England](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Starling murmuration over the ruins of Brighton's West Pier, England](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1080x1920.jpg) |
-
-### 20260107
-
-> Turret Arch framed by North Window in Arches National Park, Utah (© Jim Patterson/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Today is a day that puts time into perspective. Old Rock Day highlights the vast geological processes that have shaped our world since its earliest eras. In Arches National Park, Utah, Turret Arch—seen through North Window—offers a striking reminder: landscapes can take hundreds of millions of years to assemble. The Entrada Sandstone that forms these arches began as shifting dunes and shallow seas long before erosion carved today's shapes. Even so, these formations are relatively young. Most rocks on Earth disappear over time because plate tectonics, erosion, and volcanism continually recycle the crust. Only the planet's ancient continental shields preserve truly old material. Canada's Acasta Gneiss, about 4 billion years old, is the oldest known rock still rooted where it formed.
-> 
-> Old Rock Day also remembers the pioneers of geology. Theophrastus and Pliny the Elder recorded early mineral studies, while Ulisse Aldrovandi helped establish the term 'geology' in 1603. One hundred fifty years later, William Smith drew the first geological map. And in 1785, James Hutton revealed the Earth's immense age, providing insights that continue to shape our understanding of the ground beneath our feet.
-> 
-> 
-
-</details>
-
-| ![Old Rock Day](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Old Rock Day](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1080x1920.jpg) |om/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
