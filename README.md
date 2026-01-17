@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260115
+
+> The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)
+
+<details>
+<summary>Description</summary>
+
+> Tucked deep within Norway's Arctic Circle, Reine feels like the kind of place you see on a postcard and assume can't possibly be real. But it is. This small fishing village of about 300 residents is known for its steep mountains, calm fjords, and bright red rorbuer—traditional fishermen's cabins—that dot the shoreline. Despite its size, Reine draws thousands of visitors each year.
+> 
+> For most of its history, Reine has been a working village. It served as a trading post in the 1700s, and fishing has always been the backbone of daily life. Even during World War II, when parts of the village were burned by German forces, locals rebuilt and carried on. Today, people come for all kinds of experiences. Some climb Reinebringen for its sweeping views; others wander the shoreline or try a plate of fish that was probably caught that morning. Staying in a restored cabin offers a glimpse of what life here looked like before tourism arrived. What makes Reine memorable isn't a list of 'must-do' activities; it's the history, tradition, and sense of community that settle in the moment you arrive.
+> 
+> 
+
+</details>
+
+| ![The fishing village of Reine, Norway](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The fishing village of Reine, Norway](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_1080x1920.jpg) |
+
 ### 20260114
 
 > The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Muir Woods National Monument anniversary](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Muir Woods National Monument anniversary](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_1080x1920.jpg) |
-
-### 20260108
-
-> Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> When a bird is called a starling, you'd expect it to be a bit of a show-off. True to its name, this little creature knows how to steal the spotlight. From shimmering feathers that glint green and purple in the sun, to its ability to mimic sounds, the starling is the headline act. Originally native to Europe and Asia, the common starling has spread across the globe. In the 19th century, a group of them were introduced to New York's Central Park by an enthusiast of birds mentioned in Shakespeare's plays.
-> 
-> Brighton's West Pier may be a ruin, but when starlings gather above it, the scene is anything but broken. Each evening in autumn and winter, thousands of these small birds twist and turn in the air. The spectacle is called a murmuration, a term as musical as the sound of wings beating in unison. Scientists suggest the birds swoop and swirl to confuse predators, keep warm and share information about roosting spots. Whatever the reason, the result is a dance that has visitors gazing upward, phones in hand, hoping to catch a glimpse before the flock settles for the night.
-> 
-> 
-
-</details>
-
-| ![Starling murmuration over the ruins of Brighton's West Pier, England](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Starling murmuration over the ruins of Brighton's West Pier, England](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1080x1920.jpg) |om/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1080x1920.jpg) |om/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
