@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260116
+
+> Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)
+
+<details>
+<summary>Description</summary>
+
+> If you've ever watched a wildlife documentary, you know the moment: the camera pans across a quiet savanna, and suddenly a leopard appears as if it has been there all along. That quiet reveal says everything about how these cats operate. They move with precision, slipping through grass and branches without making a sound. Their build, muscular but lean, helps them climb, sprint, and hide in plain sight. Their rosetted coats? No two patterns match, each serving as natural camouflage from sunrise to moonlight.
+> 
+> These skilled swimmers follow no strict diet. They prey on antelopes when available, switch to hares or birds when needed, and sometimes hunt at waterholes where other animals gather. When leopards secure a kill, they often cache it safely in a tree or a cave, using their strong forelimbs to keep it away from lions and hyenas.
+> 
+> Leopards range across sub-Saharan Africa, India, Sri Lanka, and small regions of Central and West Asia. Today's image was taken in Etosha National Park, in north-central Namibia, a haven for Africa's iconic wildlife. Established in 1907, the park is home to elephants, lions, cheetahs, black rhinos, wildebeests, zebras, and steenboks—and gives leopards space to hunt and room to roam.
+
+</details>
+
+| ![Leopard at Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Leopard at Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg) |
+
 ### 20260115
 
 > The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)
@@ -112,26 +131,7 @@
 
 | ![The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland](https://cn.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland](https://cn.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_1080x1920.jpg) |
-
-### 20260109
-
-> Giant redwood trees in Muir Woods National Monument, California (© photo by canderson/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Step into the realm of giants. Try embracing a BFG (Big Friendly Giant) as you wrap your arms around a thousand years of wisdom in a single tree trunk. Welcome to Muir Woods National Monument—established on this day in 1908—a majestic hall of coastal redwoods just north of San Francisco. These towering redwoods are the tallest trees on Earth—one here stretches about 258 feet, roughly the height of 43 people stacked head to toe. Most are 600–800 years old, and some have stood for over a millennium, yet they're still considered 'young' for a species that can live for 2,000 years.
-> 
-> How do they endure? Thick, fire-resistant bark and tannins ward off insects and disease, while their roots—though only 10 to 13 feet deep—spread outward up to 100 feet and interlock with neighbors for stability. Fog drifting in from the Pacific provides nearly 40% of their water during dry summers, and fallen trees recycle nutrients as 'nurse logs,' fueling new life. As you enter this forest, bow to the trees that rise beyond life itself. Your footsteps ripple through the river of time, flowing toward the future these giants patiently await.
-> 
-> 
-
-</details>
-
-| ![Muir Woods National Monument anniversary](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Muir Woods National Monument anniversary](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1080x1920.jpg) |om/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_1080x1920.jpg) |om/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1080x1920.jpg) |om/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
