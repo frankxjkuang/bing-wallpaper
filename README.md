@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260117
+
+> Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Walk into any large square in Naples, Italy, and the city's history comes into focus. Arched galleries, sweeping colonnades, and domes that echo ancient architecture compete for your attention. Every street shifts in style—compact Baroque facades give way to broad Neoclassical courtyards. Continue exploring, and you will arrive at a wide square with a building that appears Roman at first sight. That's the Basilica of San Francesco di Paola, located on the west side of Piazza del Plebiscito.
+> 
+> Completed in 1846, the basilica took shape after Ferdinand I, King of the Two Sicilies, returned to power and continued the construction begun under King Joachim Murat of Naples. The design followed strict Neoclassical principles: a circular body, a triangular pediment, and a dome modeled after the Pantheon—a famous second-century Roman temple.
+> 
+> Inside, the geometry continues with polished marble, broad arches, and chapels spaced along the circular walkway. The piazza features a curving colonnade that borders the basilica and frames its dome. Planning a trip to Naples? Piazza del Plebiscito awaits you.
+
+</details>
+
+| ![Basilica of San Francesco di Paola, Naples, Italy](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Basilica of San Francesco di Paola, Naples, Italy](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_1080x1920.jpg) |
+
 ### 20260116
 
 > Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)
@@ -112,26 +131,7 @@
 
 | ![Blue walls of Chefchaouen, Morocco](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blue walls of Chefchaouen, Morocco](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_1080x1920.jpg) |
-
-### 20260110
-
-> The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)
-
-<details>
-<summary>Description</summary>
-
-> Few sights capture the spirit of the Alps like the Matterhorn mirrored in Lake Stellisee's glassy waters. Rising 14,692 feet on the Swiss-Italian border, this legendary peak has long symbolized natural beauty and adventure, drawing climbers, hikers, and dreamers from every corner of the globe.
-> 
-> From Zermatt—a charming, car-free village in Switzerland—the Matterhorn dominates the horizon, its jagged silhouette etched against the sky like a work of art. At Lake Stellisee, the view turns magical, especially at sunrise when the mountain's reflection glows softly on the mirrorlike surface. It feels as though time stands still, as if nature paused just for you to savor the moment.
-> 
-> Whether you're trekking alpine trails, photographing the shifting light, or simply breathing in crisp mountain air, this scene offers a quiet reminder of why the Alps have inspired travelers for centuries. The Matterhorn isn't just a mountain; it's a reflection of everything that makes Switzerland unforgettable.
-
-</details>
-
-| ![The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland](https://cn.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland](https://cn.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_1080x1920.jpg) |om/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1080x1920.jpg) |om/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_1080x1920.jpg) |.StarlingBrighton2025_EN-US6998438769_1080x1920.jpg) |om/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
