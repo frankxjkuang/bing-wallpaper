@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260118
+
+> White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> If 'Frozen' traded ice for sand, the result would look a lot like White Sands National Park in New Mexico—cool, white dunes that deceive the eye at first glance. It became a national monument on this day in 1933, established to protect a rare geological phenomenon: the world's largest gypsum dunefield. These dunes were formed from gypsum crystals that broke down over thousands of years, creating bright waves that stay cool even in summer.
+> 
+> Rising from the heart of the Tularosa Basin, the park spans 275 square miles. Beneath that brightness lies a story far older than the park itself. Paleontologists uncovered fossilized human footprints alongside mammoths and giant ground sloths, providing one of the strongest records of Ice Age movement on the continent.
+> 
+> For all its starkness, the dunes still support a steady rhythm of survival. The soaptree yucca sends up tall stalks, while shrubs anchor themselves deep underground. Animals, including the Apache pocket mouse, bleached earless lizard, and sand-treader camel cricket, blend into the pale terrain. When filmmakers need a landscape that looks otherworldly, this place is dressed for the part. 'The Man Who Fell to Earth,' 'The Book of Eli,' and 'Transformers' all borrowed its 'Moon-on-Earth' glow.
+
+</details>
+
+| ![White Sands National Park, New Mexico](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![White Sands National Park, New Mexico](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_1080x1920.jpg) |
+
 ### 20260117
 
 > Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Eurasian otter and pup, Estonia](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Eurasian otter and pup, Estonia](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |
-
-### 20260111
-
-> Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On January 11, 1944, Morocco took a bold step toward freedom. Sixty-six leaders signed the Proclamation of Independence, demanding an end to French and Spanish colonial rule and affirming the country's right to sovereignty. This manifesto, backed by Sultan Mohammed V, was presented not only to colonial authorities but also to representatives of the US, UK, and the former Soviet Union—a signal that Morocco's struggle was part of a global call for self-determination. Though repression followed, the movement endured, and by 1956 Morocco achieved full independence, marking a turning point in North African history.
-> 
-> Today, that spirit of resilience echoes in Chefchaouen, the 'Blue Pearl' of the Rif Mountains. Founded in the 15th century as a fortress against Portuguese incursions, the city later adopted its signature blue palette—a tradition some trace to Jewish influence and others to Andalusian roots. Wandering through its serene alleys, where indigo walls meet crisp mountain air, feels like stepping into a living canvas—a reminder that Morocco's story is painted in courage, culture, and color.
-> 
-> 
-
-</details>
-
-| ![Blue walls of Chefchaouen, Morocco](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Blue walls of Chefchaouen, Morocco](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_1080x1920.jpg) |.StarlingBrighton2025_EN-US6998438769_1080x1920.jpg) |om/th?id=OHR.OldRockArch_EN-US2422589534_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
