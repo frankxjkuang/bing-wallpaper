@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260119
+
+> Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In the summer heat of 1963, a quarter of a million people gathered at the Lincoln Memorial in Washington, DC, for one of the largest demonstrations in our history. Segregation still dictated where people could live, learn, vote, and work; the nation simmered with tension—and the world was watching. At that moment, Martin Luther King, Jr. stepped forward, a Baptist minister and the strategic heart of the civil rights movement. He fought injustice with discipline, clarity, and nonviolent resolve, delivering a vision that reshaped the nation's imagination: a future where freedom was real, dignity was universal, and justice extended to all.
+> 
+> Today we celebrate Martin Luther King Jr. Day, observed on the third Monday of January. The holiday honors his birth and the impact of his work, from the Montgomery Bus Boycott to the Selma marches. These victories challenged legalized discrimination and paved the way for landmark civil rights legislation. The day is both a tribute and a call to action: progress must be relentlessly built, protected, and pushed forward—and King's legacy urges every generation to push the nation closer to the dream he dared to dream aloud.
+> 
+> 
+
+</details>
+
+| ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_1080x1920.jpg) |
+
 ### 20260118
 
 > White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Hen Galan](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hen Galan](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_1080x1920.jpg) |
-
-### 20260112
-
-> Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)
-
-<details>
-<summary>Description</summary>
-
-> The clue isn't the tracks in the snow—it's the frosted faces peeking out like they've just discovered winter. Estonia is one of Europe's best places to spot Eurasian otters, thanks to its clean rivers, wide wetlands, and snack-filled coastline. This protected species was named Estonia's Animal of the Year in 2024. While globally considered near threatened, their population here has grown substantially, reaching an estimated 2,000 in recent years, up from a historic low of just 300 before the turn of the millennium.
-> 
-> From Soomaa National Park's flooded forests to Matsalu National Park's calm shallows, these mammals—with their streamlined bodies, webbed feet, and long tails—weave through the country's waters with ease. Their thick fur traps warm air, allowing them to dive into cold Baltic currents without hesitation. While they look cute, their hunting skills are sharp: they track fish, frogs, and crustaceans with precision.
-> 
-> Unlike their sea otter cousins, Eurasian otters tend to work solo, but in Estonia's wetlands, neighbors aren't far away. They communicate with whistles, chirps, and occasional snorts. When pups arrive, the banks become playful classrooms where young otters learn to swim, eat, and master the 'oops, did I splash you?' face.
-
-</details>
-
-| ![Eurasian otter and pup, Estonia](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Eurasian otter and pup, Estonia](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_1080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
