@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260120
+
+> Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Penguins thrive in some of Earth's coldest waters. Today's image shows a gentoo penguin beneath a vault of shimmering blue ice, its sharp silhouette etched against the frozen world around it. Penguin Awareness Day, observed on January 20, shines a spotlight on the birds that bring life, noise, and personality to Earth's iciest coastlines.
+> 
+> The gentoo is among the most agile swimmers of all penguins. With strong flippers and a sleek, tapered build, it can navigate icy waters with quick, confident bursts of speed. Its bright bill, bold white head stripe, and upright posture make it instantly recognizable, even in colonies where thousands of birds gather along the shore.
+> 
+> Many gentoos gather on Petermann Island, a rocky outpost off the tip of the Antarctic Peninsula, shaped by volcanic cliffs, wind-carved ledges, and snow-dusted beaches. The island's exposed rock provides nesting space for breeding pairs. Surrounding waters sustain the busy routines of feeding, preening, and raising chicks in tightly packed groups—animating the stark polar landscape.
+
+</details>
+
+| ![Penguin Awareness Day](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Penguin Awareness Day](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_1080x1920.jpg) |
+
 ### 20260119
 
 > Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Take the Stairs Day](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take the Stairs Day](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |
-
-### 20260113
-
-> Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Most people wrap up their New Year plans by the first week of January. Wales, however, has a charming habit of saying, 'Hold on—we've got one more celebration left.' Enter Hen Galan, the 'Old New Year,' observed on January 13 in parts of Wales, most famously in the Gwaun Valley. The date survives from the old Julian calendar, kept long after the rest of Britain adopted the Gregorian one.
-> 
-> Alongside Hen Galan is Calennig, a tradition rooted in the Welsh word for 'New Year's gift.' Children lead the festivities with decorated apples—fruit studded with cloves, topped with holly, and balanced on three wooden legs. They carry the apples from house to house, reciting cheerful rhymes in exchange for coins or treats. In the past, kids would also carry jugs of water to splash on people's hands and faces or sprinkle around the house for luck.
-> 
-> Today, Calennig is less widespread than it once was, but the practice hasn't vanished. Schools still teach the old verses for Hen Galan, and local groups keep the customs alive. And if you ever want to see a place with apple-growing heritage, visit the Vale of Clwyd, featured in today's image.
-
-</details>
-
-| ![Hen Galan](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hen Galan](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_1080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
