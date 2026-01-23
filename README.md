@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260121
+
+> Eurasian red squirrel (© Galina Jacyna/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today's image shows a Eurasian red squirrel perched in the snow, displaying the winter fur and tufted ears that make this species so striking. Native to forests across Europe and parts of Asia, red squirrels rely on seeds, nuts, and fungi, stashing food in scattered caches and building nests high in hollow trees to survive the colder months.
+> 
+> Squirrel Appreciation Day, observed on January 21, began in 2001 when wildlife rehabilitator Christy Hargrove encouraged people to show more kindness toward these quick, bright-eyed foragers. Despite their reputation as garden raiders or urban 'nuisances,' squirrels play essential roles in local ecosystems. Their tendency to bury food and forget some of it helps forests regenerate, especially in areas where conifer seeds spread through these accidental plantings.
+> 
+> In the United States, this day highlights the adaptability of these animals, thriving in forests, city parks, and suburban landscapes wherever shelter and scattered food sources exist.
+
+</details>
+
+| ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_1080x1920.jpg) |
+
 ### 20260120
 
 > Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)
@@ -112,26 +131,7 @@
 
 | ![The fishing village of Reine, Norway](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The fishing village of Reine, Norway](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_1080x1920.jpg) |
-
-### 20260114
-
-> The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> National Take the Stairs Day, observed on the second Wednesday of January, encourages everyone to add small bursts of movement to daily life. Choosing stairs instead of elevators, or fitting in a short walk or bike ride, helps build healthier habits. With millions living with chronic lung disease and air quality concerns growing, simple actions that strengthen our bodies matter more than ever.
-> 
-> If you want to mark the day with a climb to remember, the Fortress of Palamidi has you covered. Rising 709 feet above the city of Nafplio in Greece, this Venetian-built stronghold dates back to 1714. This impressive fortification has eight bastions, each designed as an independent unit so that if one fell, the others could still be defended. The Ottomans captured the fortress a year after completion, and Greece reclaimed it in 1822, renaming the bastions after heroes like Achilles and Leonidas. Today, visitors often test themselves on the fortress's famous staircase—once believed to have 999 steps, though the actual count is 857. At the top, sweeping views of the Argolic Gulf make every step worthwhile.
-> 
-> 
-
-</details>
-
-| ![National Take the Stairs Day](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take the Stairs Day](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
