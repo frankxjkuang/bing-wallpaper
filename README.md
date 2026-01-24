@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260122
+
+> Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In today's image, winter settles over Karlovy Vary in Czechia, a pastel valley that built its identity around the hot springs rising through its hills. The eponymous city traces its beginnings to accounts of Charles IV, then king of Bohemia (a historic region of Czechia) and later Roman Emperor, encountering a steaming pool here in the 14th century, an early moment that set this quiet part of Bohemia on the path to becoming a spa retreat.
+> 
+> As the town expanded along the Teplá and Ohře rivers, its character took shape: long colonnades, ornate facades, and riverside hotels that reflected a calm, deliberate rhythm. Visitors from across Europe—aristocrats, writers, composers—came for the warm springs and the slower pace they offered, giving the city a personality rooted in routine, architecture, and water.
+> 
+> That steady link to wellness earned Karlovy Vary a place among the Great Spa Towns of Europe in 2021, a UNESCO group recognizing historic resort cities shaped by natural springs. Even in winter, the city holds a quiet confidence, its story still anchored to the water that first drew people into this valley.
+
+</details>
+
+| ![Karlovy Vary, Bohemia, Czechia](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Karlovy Vary, Bohemia, Czechia](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_1080x1920.jpg) |
+
 ### 20260121
 
 > Eurasian red squirrel (© Galina Jacyna/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Leopard at Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Leopard at Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg) |
-
-### 20260115
-
-> The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)
-
-<details>
-<summary>Description</summary>
-
-> Tucked deep within Norway's Arctic Circle, Reine feels like the kind of place you see on a postcard and assume can't possibly be real. But it is. This small fishing village of about 300 residents is known for its steep mountains, calm fjords, and bright red rorbuer—traditional fishermen's cabins—that dot the shoreline. Despite its size, Reine draws thousands of visitors each year.
-> 
-> For most of its history, Reine has been a working village. It served as a trading post in the 1700s, and fishing has always been the backbone of daily life. Even during World War II, when parts of the village were burned by German forces, locals rebuilt and carried on. Today, people come for all kinds of experiences. Some climb Reinebringen for its sweeping views; others wander the shoreline or try a plate of fish that was probably caught that morning. Staying in a restored cabin offers a glimpse of what life here looked like before tourism arrived. What makes Reine memorable isn't a list of 'must-do' activities; it's the history, tradition, and sense of community that settle in the moment you arrive.
-> 
-> 
-
-</details>
-
-| ![The fishing village of Reine, Norway](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The fishing village of Reine, Norway](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg) |jpg) |(https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
