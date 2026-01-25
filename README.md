@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260123
+
+> Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> When January's chill grips Iceland, locals turn to warmth and tradition with Þorrablót—a midwinter festival rooted in Viking heritage. Named after Þorri, a winter figure from Norse mythology, this celebration began as a sacrificial feast to honor the gods and ensure survival through harsh winters. Today, it's a lively cultural event that blends history with hearty camaraderie.
+> 
+> At the heart of Þorrablót is food—quirky, preserved dishes that once sustained Icelanders through long, dark months. Expect a buffet of smoked lamb, dried fish, and rye bread alongside more daring bites like hákarl (fermented shark), svið (singed sheep's head), and even ram testicles. These flavors, still softened by traditional preservation methods, tell stories of resilience. To wash it down? A shot of Brennivín, Iceland's signature spirit, distilled from potatoes and flavored with caraway seeds.
+> 
+> Beyond the feast, Þorrablót is about gathering—singing old songs, reciting epic poems, and sharing laughter in community halls. It's a celebration of heritage, humor, and togetherness, turning the coldest season into a warm embrace of Icelandic culture.
+
+</details>
+
+| ![Þorrablót, Icelandic midwinter festival](https://cn.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Þorrablót, Icelandic midwinter festival](https://cn.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_1080x1920.jpg) |
+
 ### 20260122
 
 > Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Basilica of San Francesco di Paola, Naples, Italy](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Basilica of San Francesco di Paola, Naples, Italy](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_1080x1920.jpg) |
-
-### 20260116
-
-> Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)
-
-<details>
-<summary>Description</summary>
-
-> If you've ever watched a wildlife documentary, you know the moment: the camera pans across a quiet savanna, and suddenly a leopard appears as if it has been there all along. That quiet reveal says everything about how these cats operate. They move with precision, slipping through grass and branches without making a sound. Their build, muscular but lean, helps them climb, sprint, and hide in plain sight. Their rosetted coats? No two patterns match, each serving as natural camouflage from sunrise to moonlight.
-> 
-> These skilled swimmers follow no strict diet. They prey on antelopes when available, switch to hares or birds when needed, and sometimes hunt at waterholes where other animals gather. When leopards secure a kill, they often cache it safely in a tree or a cave, using their strong forelimbs to keep it away from lions and hyenas.
-> 
-> Leopards range across sub-Saharan Africa, India, Sri Lanka, and small regions of Central and West Asia. Today's image was taken in Etosha National Park, in north-central Namibia, a haven for Africa's iconic wildlife. Established in 1907, the park is home to elephants, lions, cheetahs, black rhinos, wildebeests, zebras, and steenboks—and gives leopards space to hunt and room to roam.
-
-</details>
-
-| ![Leopard at Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Leopard at Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg) |jpg) |(https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_1080x1920.jpg) |trait 4K](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg) |jpg) |(https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
