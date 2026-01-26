@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260124
+
+> Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Nestled in the Urseren Valley at about 4,715 feet, Andermatt is a charming Swiss village embraced by the majestic Alps. Long a vital crossroads, it's linked by three iconic passes—Gotthard, Furka, and Oberalp—each enhancing its allure as a gateway between regions and cultures.
+> 
+> In winter, Andermatt transforms into a snow-draped wonderland. Its ski area—the largest in Central Switzerland—offers more than 110 miles of slopes, from gentle runs on Nätschen to the thrilling freeride terrain of Gemsstock. Beyond skiing, you can wander along peaceful snowshoe trails, take invigorating winter hikes, or enjoy a horse-drawn sleigh ride through the valley's pristine beauty. For those seeking relaxation, the village also boasts spas where you can unwind after an active day.
+> 
+> After a day outdoors, cozy cafés and elegant restaurants invite you to savor Swiss flavors with a modern twist. The village's warm hospitality and alpine charm create an atmosphere that feels both timeless and inviting. Whether you're chasing powder or soaking in panoramic views, Andermatt delivers an unforgettable escape where nature, history, and culture meet.
+
+</details>
+
+| ![Andermatt village in the Alps, Switzerland](https://cn.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Andermatt village in the Alps, Switzerland](https://cn.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_1080x1920.jpg) |
+
 ### 20260123
 
 > Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![White Sands National Park, New Mexico](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![White Sands National Park, New Mexico](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_1080x1920.jpg) |
-
-### 20260117
-
-> Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Walk into any large square in Naples, Italy, and the city's history comes into focus. Arched galleries, sweeping colonnades, and domes that echo ancient architecture compete for your attention. Every street shifts in style—compact Baroque facades give way to broad Neoclassical courtyards. Continue exploring, and you will arrive at a wide square with a building that appears Roman at first sight. That's the Basilica of San Francesco di Paola, located on the west side of Piazza del Plebiscito.
-> 
-> Completed in 1846, the basilica took shape after Ferdinand I, King of the Two Sicilies, returned to power and continued the construction begun under King Joachim Murat of Naples. The design followed strict Neoclassical principles: a circular body, a triangular pediment, and a dome modeled after the Pantheon—a famous second-century Roman temple.
-> 
-> Inside, the geometry continues with polished marble, broad arches, and chapels spaced along the circular walkway. The piazza features a curving colonnade that borders the basilica and frames its dome. Planning a trip to Naples? Piazza del Plebiscito awaits you.
-
-</details>
-
-| ![Basilica of San Francesco di Paola, Naples, Italy](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Basilica of San Francesco di Paola, Naples, Italy](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_1080x1920.jpg) |trait 4K](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg) |jpg) |(https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_1080x1920.jpg) |://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg) |jpg) |(https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
