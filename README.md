@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260125
+
+> Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Each January 25, Scots and friends around the world raise a toast to Robert Burns, Scotland's beloved national poet. A Burns Night supper blends warmth and wit: the centerpiece is haggis, a savory pudding made from minced meat, oats, and spices, served with neeps (mashed turnips) and tatties (mashed potatoes). Add plenty of good cheer, readings of Burns's verse, and a dram of whisky, and you have a celebration that ends with a rousing chorus of 'Auld Lang Syne.' Even if you're celebrating stateside, these traditions are easy to adopt—set the table, cue the poetry, and let the toasts flow.
+> 
+> In Ayr, Ayrshire, the Burns National Heritage Park anchors the festivities where they began. Here you can step inside the thatched cottage where Burns was born, explore the museum’s manuscripts, and stroll to the Brig o' Doon, a graceful 15th-century stone bridge immortalized in his poem 'Tam o' Shanter,' and the Auld Kirk, a haunting old church that inspired the same tale. Together, these landmarks turn a visit into a story you can walk. Whether you join a local ceilidh—a lively Scottish social gathering with traditional music and dancing—or simply pass the haggis with friends, Burns Night is about community, humor, and heartfelt words that still travel far.
+> 
+> 
+
+</details>
+
+| ![Burns Night in Scotland](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Burns Night in Scotland](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_1080x1920.jpg) |
+
 ### 20260124
 
 > Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_1080x1920.jpg) |
-
-### 20260118
-
-> White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> If 'Frozen' traded ice for sand, the result would look a lot like White Sands National Park in New Mexico—cool, white dunes that deceive the eye at first glance. It became a national monument on this day in 1933, established to protect a rare geological phenomenon: the world's largest gypsum dunefield. These dunes were formed from gypsum crystals that broke down over thousands of years, creating bright waves that stay cool even in summer.
-> 
-> Rising from the heart of the Tularosa Basin, the park spans 275 square miles. Beneath that brightness lies a story far older than the park itself. Paleontologists uncovered fossilized human footprints alongside mammoths and giant ground sloths, providing one of the strongest records of Ice Age movement on the continent.
-> 
-> For all its starkness, the dunes still support a steady rhythm of survival. The soaptree yucca sends up tall stalks, while shrubs anchor themselves deep underground. Animals, including the Apache pocket mouse, bleached earless lizard, and sand-treader camel cricket, blend into the pale terrain. When filmmakers need a landscape that looks otherworldly, this place is dressed for the part. 'The Man Who Fell to Earth,' 'The Book of Eli,' and 'Transformers' all borrowed its 'Moon-on-Earth' glow.
-
-</details>
-
-| ![White Sands National Park, New Mexico](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![White Sands National Park, New Mexico](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_1080x1920.jpg) |://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg) |jpg) |(https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_1080x1920.jpg) |65482616_1080x1920.jpg) |://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg) |jpg) |(https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
