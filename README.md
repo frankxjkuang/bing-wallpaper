@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260126
+
+> Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The story of Neuschwanstein Castle begins with the dreams of King Ludwig II of Bavaria, who imagined a retreat inspired by medieval legends and grand operas. Set among mountains and forests, the castle rises with delicate towers and intricate stonework that seem to float above the valley. Although construction started in the nineteenth century, the palace was never fully completed, which adds to its aura of mystery.
+> 
+> Today, we admire the impressive beauty of Neuschwanstein Castle, Bavaria, Germany, a destination that attracts millions of visitors each year. The original plans were far more ambitious and included a grand throne room whose throne was never built. Even in its unfinished state, the palace offers an extraordinary glimpse into the imagination of a monarch who longed for a world shaped by myth and artistic splendor.
+> 
+> Neuschwanstein Castle is filled with curiosities that enrich its enchanting atmosphere. Despite the passage of time, Neuschwanstein remains a symbol of imagination and wonder, inviting travelers to step into a world shaped by dreams and enduring beauty.
+
+</details>
+
+| ![Neuschwanstein Castle, Bavaria, Germany](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Neuschwanstein Castle, Bavaria, Germany](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_1080x1920.jpg) |
+
 ### 20260125
 
 > Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Penguin Awareness Day](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Penguin Awareness Day](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_1080x1920.jpg) |
-
-### 20260119
-
-> Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In the summer heat of 1963, a quarter of a million people gathered at the Lincoln Memorial in Washington, DC, for one of the largest demonstrations in our history. Segregation still dictated where people could live, learn, vote, and work; the nation simmered with tension—and the world was watching. At that moment, Martin Luther King, Jr. stepped forward, a Baptist minister and the strategic heart of the civil rights movement. He fought injustice with discipline, clarity, and nonviolent resolve, delivering a vision that reshaped the nation's imagination: a future where freedom was real, dignity was universal, and justice extended to all.
-> 
-> Today we celebrate Martin Luther King Jr. Day, observed on the third Monday of January. The holiday honors his birth and the impact of his work, from the Montgomery Bus Boycott to the Selma marches. These victories challenged legalized discrimination and paved the way for landmark civil rights legislation. The day is both a tribute and a call to action: progress must be relentlessly built, protected, and pushed forward—and King's legacy urges every generation to push the nation closer to the dream he dared to dream aloud.
-> 
-> 
-
-</details>
-
-| ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Martin Luther King Jr. Day](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_1080x1920.jpg) |65482616_1080x1920.jpg) |://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg) |jpg) |(https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_1080x1920.jpg) |0x1920.jpg) |65482616_1080x1920.jpg) |://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg) |jpg) |(https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
