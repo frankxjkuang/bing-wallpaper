@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260127
+
+> Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)
+
+<details>
+<summary>Description</summary>
+
+> Winter at Lake Kerkini in Greece delivers some of Europe's clearest views of Dalmatian pelicans. Their large silhouettes move in tight, steady groups across the still water, making their scale hard to miss. With wingspans stretching over 10 feet, they rank among the world's largest flying birds. Lake Kerkini's predictable winter conditions offer reliable, close-range views of their size, grace, and coordinated movement.
+> 
+> As the season advances, the pelicans begin shifting into breeding appearance. Their throat pouches turn a bright orange-red, standing out sharply against pale winter plumage. Regular gatherings at Lake Kerkini allow these changes to be observed week by week, revealing feeding habits, social interactions, and the physical changes that signal the start of the breeding season. The open landscape keeps attention fixed on the birds and their daily routines without distraction.
+> 
+> Despite their strong winter presence, Dalmatian pelicans remain classified as near threatened. Habitat loss, disturbance, and collisions with power lines continue to slow recovery. Protected wetlands like Lake Kerkini are essential for maintaining stable breeding groups and supporting long-term conservation.
+
+</details>
+
+| ![Dalmatian pelicans, Lake Kerkini, Greece](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dalmatian pelicans, Lake Kerkini, Greece](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_1080x1920.jpg) |
+
 ### 20260126
 
 > Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_1080x1920.jpg) |
-
-### 20260120
-
-> Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Penguins thrive in some of Earth's coldest waters. Today's image shows a gentoo penguin beneath a vault of shimmering blue ice, its sharp silhouette etched against the frozen world around it. Penguin Awareness Day, observed on January 20, shines a spotlight on the birds that bring life, noise, and personality to Earth's iciest coastlines.
-> 
-> The gentoo is among the most agile swimmers of all penguins. With strong flippers and a sleek, tapered build, it can navigate icy waters with quick, confident bursts of speed. Its bright bill, bold white head stripe, and upright posture make it instantly recognizable, even in colonies where thousands of birds gather along the shore.
-> 
-> Many gentoos gather on Petermann Island, a rocky outpost off the tip of the Antarctic Peninsula, shaped by volcanic cliffs, wind-carved ledges, and snow-dusted beaches. The island's exposed rock provides nesting space for breeding pairs. Surrounding waters sustain the busy routines of feeding, preening, and raising chicks in tightly packed groups—animating the stark polar landscape.
-
-</details>
-
-| ![Penguin Awareness Day](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Penguin Awareness Day](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_1080x1920.jpg) |0x1920.jpg) |65482616_1080x1920.jpg) |://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1080x1920.jpg) |jpg) |(https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
