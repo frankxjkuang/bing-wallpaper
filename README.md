@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260128
+
+> Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Whanganui National Park showcases one of New Zealand's most distinctive river landscapes. Established in 1986, the park covers about 286 square miles across the central North Island, with the Whanganui River tracing long, quiet bends through dense forest. Although the river is not officially within the park's boundaries, it shapes nearly everything around it, including the Whanganui Journey—one of New Zealand's designated Great Walks.
+> 
+> Much of the terrain is wrapped in lowland podocarp–hardwood forest anchored by native trees like kahikatea, rimu, and tawa. Wildlife is common along the river valley, where visitors may see the North Island brown kiwi, the endangered blue duck, and other native birds that depend on stable forest cover. The region's broad ridges, steep drop-offs, and uninterrupted greenery make the park feel larger and more remote than its boundaries suggest.
+> 
+> History appears in small but striking features, including the Bridge to Nowhere—a concrete bridge built for a former settlement that was later abandoned and reclaimed by forest. Access points and river routes reveal how the area blends natural scenery with traces of earlier communities.
+
+</details>
+
+| ![Whanganui National Park, Retaruke, New Zealand](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Whanganui National Park, Retaruke, New Zealand](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_1080x1920.jpg) |
+
 ### 20260127
 
 > Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)
@@ -112,26 +131,7 @@
 
 | ![Karlovy Vary, Bohemia, Czechia](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Karlovy Vary, Bohemia, Czechia](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_1080x1920.jpg) |
-
-### 20260121
-
-> Eurasian red squirrel (© Galina Jacyna/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today's image shows a Eurasian red squirrel perched in the snow, displaying the winter fur and tufted ears that make this species so striking. Native to forests across Europe and parts of Asia, red squirrels rely on seeds, nuts, and fungi, stashing food in scattered caches and building nests high in hollow trees to survive the colder months.
-> 
-> Squirrel Appreciation Day, observed on January 21, began in 2001 when wildlife rehabilitator Christy Hargrove encouraged people to show more kindness toward these quick, bright-eyed foragers. Despite their reputation as garden raiders or urban 'nuisances,' squirrels play essential roles in local ecosystems. Their tendency to bury food and forget some of it helps forests regenerate, especially in areas where conifer seeds spread through these accidental plantings.
-> 
-> In the United States, this day highlights the adaptability of these animals, thriving in forests, city parks, and suburban landscapes wherever shelter and scattered food sources exist.
-
-</details>
-
-| ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Squirrel Appreciation Day](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_1080x1920.jpg) |g) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1080x1920.jpg) |080x1920.jpg) |://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1080x1920.jpg) |82_1080x1920.jpg) |n.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_1080x1920.jpg) |661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
