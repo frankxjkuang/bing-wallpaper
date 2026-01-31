@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260129
+
+> The eight-story open atrium of Milwaukee City Hall, Wisconsin (© lavin photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> If you've ever wandered through downtown Milwaukee and looked up in awe, chances are you were staring at the iconic Milwaukee City Hall. Completed in 1895, this towering Flemish Renaissance Revival masterpiece doesn't just dominate the skyline; it defines it. For nearly eight decades, it stood as the city's tallest building, a title it proudly held until 1973. Designed by architect Henry C. Koch, this hall blends German-inspired architecture with Milwaukee's own historic influences. That connection isn't accidental—its design pays tribute to the city's strong German heritage, which shaped much of the surrounding neighborhood as well.
+> 
+> One of the building's most fascinating features lies beneath your feet: its foundation rests on more than 2,500 white pine piles driven deep into the marshy banks of the Milwaukee River. Inside, visitors are greeted by a soaring eight-story atrium crowned with a glass skylight, seen in today's image.
+> 
+> Recognized for its significance, Milwaukee City Hall earned a spot on the National Register of Historic Places in 1973 and was named a National Historic Landmark in 2005. Today, it's still the beating heart of Milwaukee's civic life and a must-see for anyone curious about the city's story.
+
+</details>
+
+| ![Milwaukee City Hall, Wisconsin](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Milwaukee City Hall, Wisconsin](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg) |
+
 ### 20260128
 
 > Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Þorrablót, Icelandic midwinter festival](https://cn.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Þorrablót, Icelandic midwinter festival](https://cn.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_1080x1920.jpg) |
-
-### 20260122
-
-> Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In today's image, winter settles over Karlovy Vary in Czechia, a pastel valley that built its identity around the hot springs rising through its hills. The eponymous city traces its beginnings to accounts of Charles IV, then king of Bohemia (a historic region of Czechia) and later Roman Emperor, encountering a steaming pool here in the 14th century, an early moment that set this quiet part of Bohemia on the path to becoming a spa retreat.
-> 
-> As the town expanded along the Teplá and Ohře rivers, its character took shape: long colonnades, ornate facades, and riverside hotels that reflected a calm, deliberate rhythm. Visitors from across Europe—aristocrats, writers, composers—came for the warm springs and the slower pace they offered, giving the city a personality rooted in routine, architecture, and water.
-> 
-> That steady link to wellness earned Karlovy Vary a place among the Great Spa Towns of Europe in 2021, a UNESCO group recognizing historic resort cities shaped by natural springs. Even in winter, the city holds a quiet confidence, its story still anchored to the water that first drew people into this valley.
-
-</details>
-
-| ![Karlovy Vary, Bohemia, Czechia](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Karlovy Vary, Bohemia, Czechia](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_1080x1920.jpg) |661_1080x1920.jpg) |.jpg) |HR.LeipzigMarket_EN-US6493622236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1080x1920.jpg) |1080x1920.jpg) |ails>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_1080x1920.jpg) |6_1080x1920.jpg) |1080x1920.jpg) |ails>
 
 | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
