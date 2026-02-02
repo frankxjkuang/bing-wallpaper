@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260131
+
+> Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Some animals whisper their way through the wild. Zebras don't. They show up in high-contrast stripes, act like it's the most practical outfit ever invented—and somehow, it is. International Zebra Day, celebrated on January 31, gives these black-and-white originals their moment to step out of the herd and into the spotlight.
+> 
+> These African equines come in three species. Plains zebras—featured in today's image from Namibia's Etosha National Park—wear bold stripes, mountain ones sport pinstripes, and Grévy's go for the ultra-fine, designer look. No two patterns match, turning every individual into a walking fingerprint. Scientists believe those stripes help confuse predators, deter biting flies, and even cool the body by creating tiny air currents.
+> 
+> Watch a herd—technically called a dazzle—and you'll see how social they are. They groom one another, babysit foals, and communicate through brays and barks. Foals recognize their mothers by memorizing patterns within hours of birth. These mammals are built for speed—up to 40 mph—and teamwork, forming tight circles when threatened. However, shrinking habitats, poaching, and competition with livestock continue to threaten them, making this day essential for raising awareness.
+
+</details>
+
+| ![International Zebra Day](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Zebra Day](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) |
+
 ### 20260130
 
 > St. Michael's Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Burns Night in Scotland](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Burns Night in Scotland](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_1080x1920.jpg) |
-
-### 20260124
-
-> Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Nestled in the Urseren Valley at about 4,715 feet, Andermatt is a charming Swiss village embraced by the majestic Alps. Long a vital crossroads, it's linked by three iconic passes—Gotthard, Furka, and Oberalp—each enhancing its allure as a gateway between regions and cultures.
-> 
-> In winter, Andermatt transforms into a snow-draped wonderland. Its ski area—the largest in Central Switzerland—offers more than 110 miles of slopes, from gentle runs on Nätschen to the thrilling freeride terrain of Gemsstock. Beyond skiing, you can wander along peaceful snowshoe trails, take invigorating winter hikes, or enjoy a horse-drawn sleigh ride through the valley's pristine beauty. For those seeking relaxation, the village also boasts spas where you can unwind after an active day.
-> 
-> After a day outdoors, cozy cafés and elegant restaurants invite you to savor Swiss flavors with a modern twist. The village's warm hospitality and alpine charm create an atmosphere that feels both timeless and inviting. Whether you're chasing powder or soaking in panoramic views, Andermatt delivers an unforgettable escape where nature, history, and culture meet.
-
-</details>
-
-| ![Andermatt village in the Alps, Switzerland](https://cn.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Andermatt village in the Alps, Switzerland](https://cn.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_1080x1920.jpg) |UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
