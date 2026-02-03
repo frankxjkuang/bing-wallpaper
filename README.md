@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260201
+
+> US Army nurses arrive in Greenock, Scotland, 1944 (© Stocktrek Images, Inc/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Some months arrive quietly, but February knocks on the door, flips on the spotlight, and says, 'Let's give credit where it's long overdue.' That's the spirit of Black History Month—a time to celebrate African American achievements, confront hard truths, and honor those who shaped the country. It began in 1926 when historian Carter G. Woodson launched Negro History Week. The week grew, spread through schools and communities, and by 1976 it officially expanded into a month.
+> 
+> February isn't only about icons like Martin Luther King Jr. or Rosa Parks—it also highlights stories that rarely made headlines. One example comes from World War II: in 1944, a US Army Signal Corps photograph captured Black military nurses arriving at the port of Greenock, Scotland. Their overseas service was historic, especially for nurses who had fought to serve beyond segregated bases at home.
+> 
+> Today, this month feels like a mix of classrooms, concerts, and community meetups. Museums curate exhibits, and schools highlight inventors, thinkers, and trailblazers who never made it into older textbooks. Modern voices also take center stage—scientists pushing boundaries, athletes rewriting records, artists reshaping culture, and entrepreneurs building what comes next.
+
+</details>
+
+| ![Black History Month](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_1080x1920.jpg) |
+
 ### 20260131
 
 > Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Neuschwanstein Castle, Bavaria, Germany](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Neuschwanstein Castle, Bavaria, Germany](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_1080x1920.jpg) |
-
-### 20260125
-
-> Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Each January 25, Scots and friends around the world raise a toast to Robert Burns, Scotland's beloved national poet. A Burns Night supper blends warmth and wit: the centerpiece is haggis, a savory pudding made from minced meat, oats, and spices, served with neeps (mashed turnips) and tatties (mashed potatoes). Add plenty of good cheer, readings of Burns's verse, and a dram of whisky, and you have a celebration that ends with a rousing chorus of 'Auld Lang Syne.' Even if you're celebrating stateside, these traditions are easy to adopt—set the table, cue the poetry, and let the toasts flow.
-> 
-> In Ayr, Ayrshire, the Burns National Heritage Park anchors the festivities where they began. Here you can step inside the thatched cottage where Burns was born, explore the museum’s manuscripts, and stroll to the Brig o' Doon, a graceful 15th-century stone bridge immortalized in his poem 'Tam o' Shanter,' and the Auld Kirk, a haunting old church that inspired the same tale. Together, these landmarks turn a visit into a story you can walk. Whether you join a local ceilidh—a lively Scottish social gathering with traditional music and dancing—or simply pass the haggis with friends, Burns Night is about community, humor, and heartfelt words that still travel far.
-> 
-> 
-
-</details>
-
-| ![Burns Night in Scotland](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Burns Night in Scotland](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_1080x1920.jpg) |UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_1080x1920.jpg) |080x1920.jpg) |UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
