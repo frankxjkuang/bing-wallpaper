@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260202
+
+> Alpine marmots, Hohe Tauern National Park, Austria (© Raimund Linke/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Every February 2, the world turns its eyes to a furry little forecaster with a penchant for popping out of holes: the groundhog. Legend has it that if this pint-sized predictor sees its shadow, winter drags on for six more weeks. No shadow? Spring is just around the corner. It's a quirky tradition that turns a small rodent into a celebrity meteorologist.
+> 
+> Groundhog Day has its roots in an old European custom in which a hedgehog or badger would predict the weather. When German immigrants came to Pennsylvania, they passed the forecasting torch to the local rodents, giving rise to Punxsutawney Phil—the most famous groundhog of them all. Each year, thousands gather in Punxsutawney, Pennsylvania, to witness Phil's prediction, while millions watch from home, hoping for an early spring.
+> 
+> Across the Atlantic, the idea of reading the seasons through wildlife has its own twist. In the Alps, people watch for Alpine marmots, seen in today's image. After a long winter nap, these mountain dwellers emerge from their burrows into the light, often signaling warmer days ahead. They never get an official 'shadow ceremony,' but their timing acts as nature's quiet calendar in high-altitude communities.
+
+</details>
+
+| ![Groundhog Day](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Groundhog Day](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_1080x1920.jpg) |
+
 ### 20260201
 
 > US Army nurses arrive in Greenock, Scotland, 1944 (© Stocktrek Images, Inc/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Dalmatian pelicans, Lake Kerkini, Greece](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dalmatian pelicans, Lake Kerkini, Greece](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_1080x1920.jpg) |
-
-### 20260126
-
-> Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The story of Neuschwanstein Castle begins with the dreams of King Ludwig II of Bavaria, who imagined a retreat inspired by medieval legends and grand operas. Set among mountains and forests, the castle rises with delicate towers and intricate stonework that seem to float above the valley. Although construction started in the nineteenth century, the palace was never fully completed, which adds to its aura of mystery.
-> 
-> Today, we admire the impressive beauty of Neuschwanstein Castle, Bavaria, Germany, a destination that attracts millions of visitors each year. The original plans were far more ambitious and included a grand throne room whose throne was never built. Even in its unfinished state, the palace offers an extraordinary glimpse into the imagination of a monarch who longed for a world shaped by myth and artistic splendor.
-> 
-> Neuschwanstein Castle is filled with curiosities that enrich its enchanting atmosphere. Despite the passage of time, Neuschwanstein remains a symbol of imagination and wonder, inviting travelers to step into a world shaped by dreams and enduring beauty.
-
-</details>
-
-| ![Neuschwanstein Castle, Bavaria, Germany](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Neuschwanstein Castle, Bavaria, Germany](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_1080x1920.jpg) |080x1920.jpg) |UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_1080x1920.jpg) ||UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
