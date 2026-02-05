@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260203
+
+> Emerald Bay and Fannette Island, Lake Tahoe, California (© Bill Stevenson/Cavan Images)
+
+<details>
+<summary>Description</summary>
+
+> You know a place holds stories when geologists, filmmakers, and local folklore all claim it for different reasons. Lake Tahoe, straddling the border between California and Nevada, fits that bill perfectly. Formed during the Ice Age, the lake was shaped by faulting and glacial carving that created its deep basin. It is now one of the deepest freshwater lakes in the United States. For generations, the Washoe people lived around these clear waters, fishing and gathering seasonally. Centuries later, miners arrived, steamboats crossed the water, and Tahoe shifted from a resource hub to a year-round retreat.
+> 
+> Emerald Bay, seen in today's image, became one of its most photographed corners. Because the bay is shallower than the main lake, its water takes on a lighter hue. Beneath the surface rest old launches and barges, now preserved within Emerald Bay State Park. In the middle, Fannette Island rises with a small stone 'Tea House,’ a 1920s structure built by philanthropist Lora Knight, who also commissioned Vikingsholm nearby. And the story doesn't end here. Local stories mention 'Tahoe Tessie,' the lake's mythical creature. You never know—maybe you'll catch a ripple that makes you look twice.
+> 
+> 
+
+</details>
+
+| ![Emerald Bay and Fannette Island, Lake Tahoe, California](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Emerald Bay and Fannette Island, Lake Tahoe, California](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_1080x1920.jpg) |
+
 ### 20260202
 
 > Alpine marmots, Hohe Tauern National Park, Austria (© Raimund Linke/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Whanganui National Park, Retaruke, New Zealand](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Whanganui National Park, Retaruke, New Zealand](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_1080x1920.jpg) |
-
-### 20260127
-
-> Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)
-
-<details>
-<summary>Description</summary>
-
-> Winter at Lake Kerkini in Greece delivers some of Europe's clearest views of Dalmatian pelicans. Their large silhouettes move in tight, steady groups across the still water, making their scale hard to miss. With wingspans stretching over 10 feet, they rank among the world's largest flying birds. Lake Kerkini's predictable winter conditions offer reliable, close-range views of their size, grace, and coordinated movement.
-> 
-> As the season advances, the pelicans begin shifting into breeding appearance. Their throat pouches turn a bright orange-red, standing out sharply against pale winter plumage. Regular gatherings at Lake Kerkini allow these changes to be observed week by week, revealing feeding habits, social interactions, and the physical changes that signal the start of the breeding season. The open landscape keeps attention fixed on the birds and their daily routines without distraction.
-> 
-> Despite their strong winter presence, Dalmatian pelicans remain classified as near threatened. Habitat loss, disturbance, and collisions with power lines continue to slow recovery. Protected wetlands like Lake Kerkini are essential for maintaining stable breeding groups and supporting long-term conservation.
-
-</details>
-
-| ![Dalmatian pelicans, Lake Kerkini, Greece](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dalmatian pelicans, Lake Kerkini, Greece](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_1080x1920.jpg) ||UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_1080x1920.jpg) |=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
