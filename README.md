@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260204
+
+> Rosa Parks in stained glass window, Shorter Community African Methodist Episcopal Church, Denver (© Cyrus McCrimmon/The Denver Post via Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Picture this: it's 1955, a winter evening in Montgomery, Alabama. A seamstress heads home after work. The bus fills with other passengers. The driver demands she give up her seat. Rosa Parks wasn't trying to make waves, but her refusal set off a chain reaction that would propel the civil rights movement into a new phase. Raised in rural Alabama, she grew up under segregation and later worked with the NAACP as a secretary and investigator, gathering testimony of racial violence and discrimination. By the time she declined to move, she was already a committed activist.
+> 
+> Her arrest sparked the Montgomery Bus Boycott, a coordinated 381-day protest that helped end bus segregation. Rosa Parks Day emerged decades later to honor her work. First celebrated in 1998 in Michigan, it is observed on different dates across states, tied either to her birthday or to the day of her arrest. As Parks' national impact grew, she earned various medals, awards, and the distinction of being the first woman to lie in honor at the US Capitol rotunda. The stained-glass painting of Parks at Shorter Community African Methodist Episcopal Church in Denver, pictured here today, serves as a glowing reminder of a legacy that still reaches far beyond Montgomery.
+> 
+> 
+
+</details>
+
+| ![Rosa Parks Day](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rosa Parks Day](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_1080x1920.jpg) |
+
 ### 20260203
 
 > Emerald Bay and Fannette Island, Lake Tahoe, California (© Bill Stevenson/Cavan Images)
@@ -112,26 +131,7 @@
 
 | ![Milwaukee City Hall, Wisconsin](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Milwaukee City Hall, Wisconsin](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg) |
-
-### 20260128
-
-> Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Whanganui National Park showcases one of New Zealand's most distinctive river landscapes. Established in 1986, the park covers about 286 square miles across the central North Island, with the Whanganui River tracing long, quiet bends through dense forest. Although the river is not officially within the park's boundaries, it shapes nearly everything around it, including the Whanganui Journey—one of New Zealand's designated Great Walks.
-> 
-> Much of the terrain is wrapped in lowland podocarp–hardwood forest anchored by native trees like kahikatea, rimu, and tawa. Wildlife is common along the river valley, where visitors may see the North Island brown kiwi, the endangered blue duck, and other native birds that depend on stable forest cover. The region's broad ridges, steep drop-offs, and uninterrupted greenery make the park feel larger and more remote than its boundaries suggest.
-> 
-> History appears in small but striking features, including the Bridge to Nowhere—a concrete bridge built for a former settlement that was later abandoned and reclaimed by forest. Access points and river routes reveal how the area blends natural scenery with traces of earlier communities.
-
-</details>
-
-| ![Whanganui National Park, Retaruke, New Zealand](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Whanganui National Park, Retaruke, New Zealand](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_1080x1920.jpg) |=1&c=4) | ![World Population Day](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg) |id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
