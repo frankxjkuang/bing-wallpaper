@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260206
+
+> Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The 2026 Winter Olympics begin today, and few settings capture their spirit better than the Dolomites. Rising sharply above the Giau Pass, the 8,514-foot Ra Gusela peak delivers the kind of dramatic alpine scenery that defines the Milano-Cortina 2026 Games—a joint edition hosted by Milan and Cortina d'Ampezzo, blending metropolitan energy with deep alpine heritage.
+> 
+> From February 6 to 22, athletes from around the world will compete across northern Italy, with ice sports centered in Milan and the fast, adrenaline-filled mountain events unfolding around Cortina's renowned slopes. Cortina last hosted the Winter Olympics in 1956 and will again welcome women's alpine skiing and the Olympic debut of ski mountaineering, a fitting addition in a landscape built for big climbs and breathtaking descents.
+> 
+> As viewers tune in from home, scenes like Ra Gusela rising over snowy pastures offer a glimpse of what makes these games so special: a celebration of athletic skill, resilience, and the raw beauty of winter in the Italian Alps.
+
+</details>
+
+| ![2026 Winter Olympics](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![2026 Winter Olympics](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_1080x1920.jpg) |
+
 ### 20260205
 
 > Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)
@@ -112,25 +131,7 @@
 
 | ![International Zebra Day](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Zebra Day](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) |
-
-### 20260130
-
-> St. Michael's Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Picture a small island rising from the Cornish sea, connected to the mainland only when the tide retreats. For a few hours a day, you can wander across a centuries-old granite causeway made smooth by pilgrims and fishermen. This is St. Michael's Mount, just off the coast of Marazion, in Cornwall, England. Managed by the National Trust and home to the St. Aubyn family since the 1600s, the mount blends myth, medieval history, and sweeping coastal views.
-> 
-> The island is filled with stories: from the Archangel Michael guiding sailors to safety in 495 CE to tales of Jack the Giant Killer defeating the fearsome Cormoran. At the summit stands a castle that began as a 12th-century priory, later transformed into a Gothic-inspired fortress with regal drawing rooms, hidden staircases, and panoramic terraces.
-> 
-> Below, the harbor's cobbled lanes wind through a historic fishing village once busy with boats and trade. Whether you are exploring the gardens clinging to the granite cliffs or wandering the battlements imagining battles of the Civil War and the Spanish Armada, St. Michael's Mount is a rare place where past and legend feel equally alive.
-
-</details>
-
-| ![St. Michael's Mount in Marazion, Cornwall, England](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![St. Michael's Mount in Marazion, Cornwall, England](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) ||:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1080x1920.jpg) |9990591477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg) |id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
