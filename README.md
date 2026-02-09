@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260207
+
+> Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Salar de Uyuni in Bolivia doesn't ease you in—it erupts into view like a horizon made of light. It's the world's largest salt flat, stretching across roughly 4,000 square miles at nearly 12,000 feet above sea level. The landscape dramatically shifts with the seasons: when the rain arrives, the surface floods just enough to become an enormous mirror, so perfectly reflective that sky and ground melt into a single glowing plane.
+> 
+> Around the salar, the landscape turns surprisingly varied. Rock formations sculpted by wind and time rise from the desert like abstract artwork—twisted, towering shapes that look almost deliberate. Not far away, steaming hot springs offer a soothing contrast to the crisp high‑altitude air, creating warm pockets of calm in the middle of the wilderness.
+> 
+> The surrounding lagunas and mineral‑rich lakes burst with unexpected color, and flocks of flamingos add flashes of motion to the stillness. Scattered nearby, ghost towns from Bolivia's mining era sit quietly against the vast white expanse, recalling the region's history with an air of mystery.
+
+</details>
+
+| ![Salar de Uyuni salt flats in Bolivia](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salar de Uyuni salt flats in Bolivia](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_1080x1920.jpg) |
+
 ### 20260206
 
 > Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Black History Month](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_1080x1920.jpg) |
-
-### 20260131
-
-> Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Some animals whisper their way through the wild. Zebras don't. They show up in high-contrast stripes, act like it's the most practical outfit ever invented—and somehow, it is. International Zebra Day, celebrated on January 31, gives these black-and-white originals their moment to step out of the herd and into the spotlight.
-> 
-> These African equines come in three species. Plains zebras—featured in today's image from Namibia's Etosha National Park—wear bold stripes, mountain ones sport pinstripes, and Grévy's go for the ultra-fine, designer look. No two patterns match, turning every individual into a walking fingerprint. Scientists believe those stripes help confuse predators, deter biting flies, and even cool the body by creating tiny air currents.
-> 
-> Watch a herd—technically called a dazzle—and you'll see how social they are. They groom one another, babysit foals, and communicate through brays and barks. Foals recognize their mothers by memorizing patterns within hours of birth. These mammals are built for speed—up to 40 mph—and teamwork, forming tight circles when threatened. However, shrinking habitats, poaching, and competition with livestock continue to threaten them, making this day essential for raising awareness.
-
-</details>
-
-| ![International Zebra Day](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Zebra Day](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) ||:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_1080x1920.jpg) |d=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) ||:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1080x1920.jpg) |9990591477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg) |id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
