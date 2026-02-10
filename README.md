@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260208
+
+> Corfu at night, Greece (© whitewizzard/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The island of Corfu, Greece, meets you at night with a quiet kind of intensity: stone facades catching warm lamplight, fortress walls rising in sharp outline, and narrow lanes unfolding like a lived-in labyrinth. The Old Town doesn't just look historic—it feels inhabited, shaped by centuries of shifting cultures and the slow rhythm of island life after dark.
+> 
+> Move beyond the historic center and Corfu shifts into a more dynamic landscape. Rugged rock formations edge the coastline, carved by wind and sea into dramatic shapes that catch the morning light. Forested hills roll toward turquoise bays and secluded coves, where the colors deepen and brighten throughout the day. In the interior, warm springs and mineral-rich waters offer a serene pause, tucked into pockets of green that feel removed from the bustle of the harbor.
+> 
+> Returning to Corfu's Old Town, the UNESCO-listed streets blend Venetian, French, and British influences into a uniquely Greek character—stone arcades, fortress walls, pastel buildings, and lively squares where cafés spill into narrow lanes. Together, Corfu's dramatic coastlines, natural springs, and storied Old Town create an island experience that transitions beautifully from quiet evenings to vivid, adventurous days.
+
+</details>
+
+| ![Corfu at night, Greece](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Corfu at night, Greece](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_1080x1920.jpg) |
+
 ### 20260207
 
 > Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Groundhog Day](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Groundhog Day](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_1080x1920.jpg) |
-
-### 20260201
-
-> US Army nurses arrive in Greenock, Scotland, 1944 (© Stocktrek Images, Inc/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Some months arrive quietly, but February knocks on the door, flips on the spotlight, and says, 'Let's give credit where it's long overdue.' That's the spirit of Black History Month—a time to celebrate African American achievements, confront hard truths, and honor those who shaped the country. It began in 1926 when historian Carter G. Woodson launched Negro History Week. The week grew, spread through schools and communities, and by 1976 it officially expanded into a month.
-> 
-> February isn't only about icons like Martin Luther King Jr. or Rosa Parks—it also highlights stories that rarely made headlines. One example comes from World War II: in 1944, a US Army Signal Corps photograph captured Black military nurses arriving at the port of Greenock, Scotland. Their overseas service was historic, especially for nurses who had fought to serve beyond segregated bases at home.
-> 
-> Today, this month feels like a mix of classrooms, concerts, and community meetups. Museums curate exhibits, and schools highlight inventors, thinkers, and trailblazers who never made it into older textbooks. Modern voices also take center stage—scientists pushing boundaries, athletes rewriting records, artists reshaping culture, and entrepreneurs building what comes next.
-
-</details>
-
-| ![Black History Month](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black History Month](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_1080x1920.jpg) |d=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) ||:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_1080x1920.jpg) |1_1080x1920.jpg) |d=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) ||:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1080x1920.jpg) |9990591477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg) |id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
