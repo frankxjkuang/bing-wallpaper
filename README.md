@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260209
+
+> Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)
+
+<details>
+<summary>Description</summary>
+
+> The leopard cat is a small wild cat found across South, Southeast, and East Asia. Similar in size to a house cat but longer-legged and slenderer, it generally measures 15–30 inches long, with a tail about 7–12 inches. Depending on the region, adults weigh roughly 1–16 pounds. Their appearance varies widely: southern individuals tend to have warm golden coats, while those farther north often have pale gray fur that thickens for winter.
+> 
+> This species has several living subspecies, each adapted to its environment. These include the Bengal leopard cat found from India through Southeast Asia; the Javan, Sumatran, and Bornean leopard cats on the islands of Indonesia; and the Taiwan leopard cat. One of the most distinctive is seen in today's image: the Amur leopard cat, found in the Russian Far East, Manchuria, Korea, and nearby islands. It's larger and paler than its southern relatives, with features suited to cold, snowy forests.
+> 
+> Leopard cats are mostly nocturnal hunters, preying on rodents, birds, reptiles, and amphibians. They're adaptable too, living in forests, wetlands, mountains, and even agricultural landscapes across their wide range.
+
+</details>
+
+| ![Amur leopard cat, Russia](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Amur leopard cat, Russia](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_1080x1920.jpg) |
+
 ### 20260208
 
 > Corfu at night, Greece (© whitewizzard/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Emerald Bay and Fannette Island, Lake Tahoe, California](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Emerald Bay and Fannette Island, Lake Tahoe, California](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_1080x1920.jpg) |
-
-### 20260202
-
-> Alpine marmots, Hohe Tauern National Park, Austria (© Raimund Linke/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Every February 2, the world turns its eyes to a furry little forecaster with a penchant for popping out of holes: the groundhog. Legend has it that if this pint-sized predictor sees its shadow, winter drags on for six more weeks. No shadow? Spring is just around the corner. It's a quirky tradition that turns a small rodent into a celebrity meteorologist.
-> 
-> Groundhog Day has its roots in an old European custom in which a hedgehog or badger would predict the weather. When German immigrants came to Pennsylvania, they passed the forecasting torch to the local rodents, giving rise to Punxsutawney Phil—the most famous groundhog of them all. Each year, thousands gather in Punxsutawney, Pennsylvania, to witness Phil's prediction, while millions watch from home, hoping for an early spring.
-> 
-> Across the Atlantic, the idea of reading the seasons through wildlife has its own twist. In the Alps, people watch for Alpine marmots, seen in today's image. After a long winter nap, these mountain dwellers emerge from their burrows into the light, often signaling warmer days ahead. They never get an official 'shadow ceremony,' but their timing acts as nature's quiet calendar in high-altitude communities.
-
-</details>
-
-| ![Groundhog Day](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Groundhog Day](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_1080x1920.jpg) |1_1080x1920.jpg) |d=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) ||:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_1080x1920.jpg) |h?id=OHR.AlpineMarmots_EN-US0200342638_1080x1920.jpg) |1_1080x1920.jpg) |d=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) ||:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1080x1920.jpg) |9990591477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg) |id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
