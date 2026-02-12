@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260210
+
+> Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Just southwest of Ibiza, Spain, lie the uninhabited islets of Es Vedrà and Es Vedranell. Part of a protected nature reserve, these dramatic rock formations are admired for their ecological value and visual impact. Es Vedrà rises around 1,300 feet straight from the sea, its sheer limestone cliffs resembling a mountain range. Nearby, the jagged outline of Es Vedranell has earned it the nickname 'sleeping dragon,' appearing to guard its larger sibling.
+> 
+> Despite their stark appearance, the islets support a surprisingly rich ecosystem, including native flora, marine birds, endemic species such as the Ibiza wall lizard, and numerous invertebrates adapted to the rocky terrain. This fragile biodiversity is one of the reasons public access is tightly restricted.
+> 
+> Es Vedrà is also steeped in legend. Often compared to the Bermuda Triangle, it is said to lie within a powerful magnetic zone, inspiring stories of faulty compasses and strange lights. In Greek mythology, the islet is linked to the Sirens who lured Odysseus, while others believe it to be a remnant of the lost city of Atlantis. Wild and enigmatic, Es Vedrà and Es Vedranell are the kind of places that stay with you long after you've left.
+
+</details>
+
+| ![Es Vedrà and Es Vedranell, Ibiza, Spain](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Es Vedrà and Es Vedranell, Ibiza, Spain](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_1080x1920.jpg) |
+
 ### 20260209
 
 > Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)
@@ -112,26 +131,7 @@
 
 | ![Rosa Parks Day](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rosa Parks Day](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_1080x1920.jpg) |
-
-### 20260203
-
-> Emerald Bay and Fannette Island, Lake Tahoe, California (© Bill Stevenson/Cavan Images)
-
-<details>
-<summary>Description</summary>
-
-> You know a place holds stories when geologists, filmmakers, and local folklore all claim it for different reasons. Lake Tahoe, straddling the border between California and Nevada, fits that bill perfectly. Formed during the Ice Age, the lake was shaped by faulting and glacial carving that created its deep basin. It is now one of the deepest freshwater lakes in the United States. For generations, the Washoe people lived around these clear waters, fishing and gathering seasonally. Centuries later, miners arrived, steamboats crossed the water, and Tahoe shifted from a resource hub to a year-round retreat.
-> 
-> Emerald Bay, seen in today's image, became one of its most photographed corners. Because the bay is shallower than the main lake, its water takes on a lighter hue. Beneath the surface rest old launches and barges, now preserved within Emerald Bay State Park. In the middle, Fannette Island rises with a small stone 'Tea House,’ a 1920s structure built by philanthropist Lora Knight, who also commissioned Vikingsholm nearby. And the story doesn't end here. Local stories mention 'Tahoe Tessie,' the lake's mythical creature. You never know—maybe you'll catch a ripple that makes you look twice.
-> 
-> 
-
-</details>
-
-| ![Emerald Bay and Fannette Island, Lake Tahoe, California](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Emerald Bay and Fannette Island, Lake Tahoe, California](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_1080x1920.jpg) |h?id=OHR.AlpineMarmots_EN-US0200342638_1080x1920.jpg) |1_1080x1920.jpg) |d=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) ||:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_1080x1920.jpg) |OHR.FanetteIsland_EN-US0236094374_1080x1920.jpg) |h?id=OHR.AlpineMarmots_EN-US0200342638_1080x1920.jpg) |1_1080x1920.jpg) |d=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) ||:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1080x1920.jpg) |9990591477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg) |id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
