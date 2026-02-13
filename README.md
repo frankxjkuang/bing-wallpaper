@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260211
+
+> Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Death Valley National Park challenges first impressions. Spanning more than 3.4 million acres across California and Nevada, it is the largest national park in the contiguous United States. Across this vast expanse, salt flats, volcanic hills, sweeping sand dunes, and distant snowcapped peaks create a landscape shaped by time and extremes. From the soaring heights of Telescope Peak, which rises over 11,000 feet above the desert floor, to the depths of Badwater Basin, 282 feet below sea level, the park is a study in contrasts.
+> 
+> Rare rainstorms can trigger brief bursts of wildflowers across parts of the valley, while hidden oases sustain wildlife and more than 1,000 plant species thrive against the odds. At Badwater Basin, pictured here, the land sinks to its lowest point in North America. Its blinding white salt flats stretch to the horizon, fractured into geometric patterns that make each step feel surreal. Long before it earned its foreboding name in 1849, the Timbisha Shoshone people called this valley home.
+> 
+> Recognizing its unique landscapes, President Herbert Hoover designated Death Valley a national monument on this day in 1933. That protection expanded in 1994, when the California Desert Protection Act elevated it to national park status and more than doubled its size, ensuring the preservation of this extraordinary desert for generations to come.
+
+</details>
+
+| ![Death Valley National Park's Anniversary](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Death Valley National Park's Anniversary](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg) |
+
 ### 20260210
 
 > Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Salt evaporation ponds on the island of Gozo, Malta](https://cn.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salt evaporation ponds on the island of Gozo, Malta](https://cn.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_1080x1920.jpg) |
-
-### 20260204
-
-> Rosa Parks in stained glass window, Shorter Community African Methodist Episcopal Church, Denver (© Cyrus McCrimmon/The Denver Post via Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Picture this: it's 1955, a winter evening in Montgomery, Alabama. A seamstress heads home after work. The bus fills with other passengers. The driver demands she give up her seat. Rosa Parks wasn't trying to make waves, but her refusal set off a chain reaction that would propel the civil rights movement into a new phase. Raised in rural Alabama, she grew up under segregation and later worked with the NAACP as a secretary and investigator, gathering testimony of racial violence and discrimination. By the time she declined to move, she was already a committed activist.
-> 
-> Her arrest sparked the Montgomery Bus Boycott, a coordinated 381-day protest that helped end bus segregation. Rosa Parks Day emerged decades later to honor her work. First celebrated in 1998 in Michigan, it is observed on different dates across states, tied either to her birthday or to the day of her arrest. As Parks' national impact grew, she earned various medals, awards, and the distinction of being the first woman to lie in honor at the US Capitol rotunda. The stained-glass painting of Parks at Shorter Community African Methodist Episcopal Church in Denver, pictured here today, serves as a glowing reminder of a legacy that still reaches far beyond Montgomery.
-> 
-> 
-
-</details>
-
-| ![Rosa Parks Day](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rosa Parks Day](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_1080x1920.jpg) |OHR.FanetteIsland_EN-US0236094374_1080x1920.jpg) |h?id=OHR.AlpineMarmots_EN-US0200342638_1080x1920.jpg) |1_1080x1920.jpg) |d=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) ||:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_1080x1920.jpg) |145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) ||:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1080x1920.jpg) |9990591477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg) |id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
