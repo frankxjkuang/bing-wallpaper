@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260212
+
+> Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Darwin Day marks more than a birthday—it marks a shift in thinking. Charles Darwin's observations connected variation, the survival of individuals best suited to their environment, and inheritance in ways science still builds on. His legacy rests on years of studying variation—finches, fossils, barnacles—and recognizing patterns others had overlooked. When 'On the Origin of Species' was published in 1859, it offered a framework explaining how species evolve through natural selection.
+> 
+> One of the most recognizable animals tied to Darwin's work is the blue-footed booby, seen in today's image. Widely associated with the Galápagos Islands, these seabirds range across the eastern tropical Pacific. They are known for their bright blue feet, a trait shaped by both diet and sexual selection. The color comes from carotenoid pigments obtained through fish such as sardines and anchovies. In both male and female, brighter feet signal better health and a stronger immune system. Males display their feet prominently during courtship, while females with more vivid pigmentation tend to produce healthier offspring. These birds hunt by diving straight into the water at high speed, using sharp eyesight to target schooling fish. Boobies stand as a reminder that evolution isn't a closed chapter—it's an ongoing process.
+> 
+> 
+
+</details>
+
+| ![Darwin Day](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Darwin Day](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1080x1920.jpg) |
+
 ### 20260211
 
 > Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/TANDEM Stills + Motion)
@@ -112,27 +131,7 @@
 
 | ![2026 Winter Olympics](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![2026 Winter Olympics](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_1080x1920.jpg) |
-
-### 20260205
-
-> Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Xwejni Bay in Gozo, Malta, has a way of making everyday elements look like a quiet choreography between sea, stone, and sun. You can't help but pause and look closer, right? Centuries back, families began carving these limestone pans, shaping hundreds of basins that trap seawater with each wave. Once the water settles in, the sun's heat does the rest, slowly evaporating it into natural Mediterranean salt. Gozo became a salt-making hub because its limestone coast is easy to shape, and its warm, dry summers keep the crystallization process steady. The first crystals form around May, marking the beginning of the harvesting season. Workers rake the salt by hand, sweep it with brooms and brushes, gather it into small piles to dry for another day, then bag it and store it in the caves.
-> 
-> Visitors can walk right up to the pans along the shore but look out for 'no trespassing' signs. If you swing by in the summer, you might spot active raking and drying. Take a moment to enjoy the view, and before you head back, consider collecting a salty souvenir from one of the many gourmet shops around Malta.
-> 
-> 
-
-</details>
-
-| ![Salt evaporation ponds on the island of Gozo, Malta](https://cn.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salt evaporation ponds on the island of Gozo, Malta](https://cn.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_1080x1920.jpg) |145236_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1080x1920.jpg) ||:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1080x1920.jpg) |9990591477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg) |id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1080x1920.jpg) |9990591477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg) |id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
