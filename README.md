@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260213
+
+> Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Before bridges, rivers set the pace of travel. Now, with bridges, people do. That shift explains why cross-border links like the Third Thai-Lao Friendship Bridge connecting Laos and Thailand matter. Bridges come in many forms, each built to meet a specific challenge. Arch bridges manage compression, suspension bridges span long distances, and concrete box-girder bridges prioritize stability and load efficiency. This bridge uses the box-girder design, making it a practical choice for crossing the wide, fast-moving Mekong River.
+> 
+> Opened in 2011, the Third Thai-Lao Friendship Bridge was developed to strengthen transport links between Nakhon Phanom Province in Thailand and Thakhek, in Khammouane Province, Laos. Thailand funded much of the project, continuing a pattern set by earlier crossings such as the First Thai-Lao Friendship Bridge between Nong Khai and Vientiane and the Second Thai-Lao Friendship Bridge linking Mukdahan and Savannakhet.
+> 
+> Measuring about 4,669 feet, the bridge comprises two traffic lanes, serving local commuters and long-haul freight alike. This has helped ease congestion at other crossings and made cross-border movement more reliable. Beyond transport efficiency, the bridge supports logistics, tourism, and cross-border cooperation, showing how infrastructure can quietly reshape regional connections without demanding attention.
+
+</details>
+
+| ![Third Thai-Lao Friendship Bridge connecting Laos and Thailand](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Third Thai-Lao Friendship Bridge connecting Laos and Thailand](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_1080x1920.jpg) |
+
 ### 20260212
 
 > Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)
@@ -112,28 +131,7 @@
 
 | ![Salar de Uyuni salt flats in Bolivia](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salar de Uyuni salt flats in Bolivia](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_1080x1920.jpg) |
-
-### 20260206
-
-> Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The 2026 Winter Olympics begin today, and few settings capture their spirit better than the Dolomites. Rising sharply above the Giau Pass, the 8,514-foot Ra Gusela peak delivers the kind of dramatic alpine scenery that defines the Milano-Cortina 2026 Games—a joint edition hosted by Milan and Cortina d'Ampezzo, blending metropolitan energy with deep alpine heritage.
-> 
-> From February 6 to 22, athletes from around the world will compete across northern Italy, with ice sports centered in Milan and the fast, adrenaline-filled mountain events unfolding around Cortina's renowned slopes. Cortina last hosted the Winter Olympics in 1956 and will again welcome women's alpine skiing and the Olympic debut of ski mountaineering, a fitting addition in a landscape built for big climbs and breathtaking descents.
-> 
-> As viewers tune in from home, scenes like Ra Gusela rising over snowy pastures offer a glimpse of what makes these games so special: a celebration of athletic skill, resilience, and the raw beauty of winter in the Italian Alps.
-
-</details>
-
-| ![2026 Winter Olympics](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![2026 Winter Olympics](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1080x1920.jpg) |9990591477_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1080x1920.jpg) |id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_1080x1920.jpg) |g.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
 > 
 
