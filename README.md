@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260214
+
+> Bleeding hearts (© Dorene Hookey/Cavan Images)
+
+<details>
+<summary>Description</summary>
+
+> Valentine's Day celebrates the heart in all its forms—love that is bold or tender, hopeful or quietly vulnerable. Few symbols capture this emotion as naturally as the bleeding heart flower, pictured here. With its unmistakable heart-shaped blooms, the plant emerges each spring, growing up to 2 feet tall and spreading nearly 30 inches wide, creating a graceful, almost poetic display.
+> 
+> That beauty, however, is fleeting. As warmer weather arrives, the bleeding heart completes its cycle: the flowers fade, the foliage retreats, and by late spring or early summer, the plant slips gently into dormancy. Its short-lived bloom is part of its charm.
+> 
+> Unlike flowers that demand attention, bleeding hearts offer a quieter kind of romance. Their brief bloom reminds us that connections feel meaningful because they evolve over time. Valentine's Day reflects that idea as well. Whether you're celebrating a new relationship, honoring a long partnership, or simply acknowledging the people who matter most, the day is about recognition as much as romance. Seen through that lens, the bleeding heart fits the moment—simple, sincere, and meaningful without needing to last forever.
+
+</details>
+
+| ![Happy Valentine's Day!](https://cn.bing.com/th?id=OHR.ValentineHearts_EN-US6208359150_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Valentine's Day!](https://cn.bing.com/th?id=OHR.ValentineHearts_EN-US6208359150_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ValentineHearts_EN-US6208359150_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ValentineHearts_EN-US6208359150_1080x1920.jpg) |
+
 ### 20260213
 
 > Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Corfu at night, Greece](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Corfu at night, Greece](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_1080x1920.jpg) |
-
-### 20260207
-
-> Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Salar de Uyuni in Bolivia doesn't ease you in—it erupts into view like a horizon made of light. It's the world's largest salt flat, stretching across roughly 4,000 square miles at nearly 12,000 feet above sea level. The landscape dramatically shifts with the seasons: when the rain arrives, the surface floods just enough to become an enormous mirror, so perfectly reflective that sky and ground melt into a single glowing plane.
-> 
-> Around the salar, the landscape turns surprisingly varied. Rock formations sculpted by wind and time rise from the desert like abstract artwork—twisted, towering shapes that look almost deliberate. Not far away, steaming hot springs offer a soothing contrast to the crisp high‑altitude air, creating warm pockets of calm in the middle of the wilderness.
-> 
-> The surrounding lagunas and mineral‑rich lakes burst with unexpected color, and flocks of flamingos add flashes of motion to the stillness. Scattered nearby, ghost towns from Bolivia's mining era sit quietly against the vast white expanse, recalling the region's history with an air of mystery.
-
-</details>
-
-| ![Salar de Uyuni salt flats in Bolivia](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Salar de Uyuni salt flats in Bolivia](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_1080x1920.jpg) |g.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
 > 
 
