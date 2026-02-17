@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260215
+
+> Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)
+
+<details>
+<summary>Description</summary>
+
+> World Whale Day, observed on the third Sunday of February, began in the 1980s in Hawaii, where communities celebrated the seasonal return of migrating humpback whales. The day gained wider recognition after the International Whaling Commission's 1986 moratorium on commercial whaling, which marked a major milestone in international whale conservation.
+> 
+> Humpback whales are easily recognizable by their long pectoral fins and are known for their complex songs associated with breeding behavior. Their predictable migrations bring them close to shore, turning them into both a cultural marker of the season and a focal point for early conservation efforts.
+> 
+> Today, whale conservation extends far beyond hunting restrictions and includes how we use and manage the oceans more broadly. Fishing activity, major shipping routes, underwater noise, plastic waste, and rising ocean temperatures all influence whale movement and feeding patterns. Pictured here are humpback whales feeding cooperatively in Monterey Bay—a behavior that depends on healthy ecosystems and reliable prey availability. Whales also contribute to ocean systems by circulating nutrients that support plankton growth and marine food webs. World Whale Day highlights the ongoing importance of thoughtful ocean stewardship in maintaining balanced marine ecosystems.
+
+</details>
+
+| ![World Whale Day](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Whale Day](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |
+
 ### 20260214
 
 > Bleeding hearts (© Dorene Hookey/Cavan Images)
@@ -112,26 +131,7 @@
 
 | ![Amur leopard cat, Russia](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Amur leopard cat, Russia](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_1080x1920.jpg) |
-
-### 20260208
-
-> Corfu at night, Greece (© whitewizzard/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The island of Corfu, Greece, meets you at night with a quiet kind of intensity: stone facades catching warm lamplight, fortress walls rising in sharp outline, and narrow lanes unfolding like a lived-in labyrinth. The Old Town doesn't just look historic—it feels inhabited, shaped by centuries of shifting cultures and the slow rhythm of island life after dark.
-> 
-> Move beyond the historic center and Corfu shifts into a more dynamic landscape. Rugged rock formations edge the coastline, carved by wind and sea into dramatic shapes that catch the morning light. Forested hills roll toward turquoise bays and secluded coves, where the colors deepen and brighten throughout the day. In the interior, warm springs and mineral-rich waters offer a serene pause, tucked into pockets of green that feel removed from the bustle of the harbor.
-> 
-> Returning to Corfu's Old Town, the UNESCO-listed streets blend Venetian, French, and British influences into a uniquely Greek character—stone arcades, fortress walls, pastel buildings, and lively squares where cafés spill into narrow lanes. Together, Corfu's dramatic coastlines, natural springs, and storied Old Town create an island experience that transitions beautifully from quiet evenings to vivid, adventurous days.
-
-</details>
-
-| ![Corfu at night, Greece](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Corfu at night, Greece](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_1080x1920.jpg) | | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1080x1920.jpg) |56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_1080x1920.jpg) ||56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
 > 
 > 
 
