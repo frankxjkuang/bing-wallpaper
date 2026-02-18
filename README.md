@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260216
+
+> Lincoln Memorial, Washington, DC (© Westend61/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Presidents' Day is observed on the third Monday of February and is officially recognized at the federal level as Washington's Birthday. The holiday was originally celebrated on February 22, George Washington's birthday, before being rescheduled under the Uniform Monday Holiday Act. Passed in 1968 and implemented in 1971, the Act shifted several federal holidays to Mondays, creating standardized long weekends. Washington's Birthday was among those affected, which moved the observance away from Washington's actual birthday and allowed its meaning to broaden over time.
+> 
+> Although the federal name remains unchanged, Presidents' Day is commonly observed as a day that extends beyond a single figure. Many states and communities use the occasion to recognize multiple US presidents, most often George Washington and Abraham Lincoln, whose birthdays both fall in February. This broader interpretation has developed through public custom rather than federal mandate, shaping how the holiday is understood today.
+> 
+> Pictured here, the Lincoln Memorial stands on the National Mall in Washington, DC, honoring the 16th president and his leadership during the Civil War. Presidents' Day invites reflection on how the presidency has influenced the nation's institutions and public life, linking early leadership to the role the office continues to play in the United States today.
+
+</details>
+
+| ![Presidents' Day](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Presidents' Day](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |
+
 ### 20260215
 
 > Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)
@@ -112,26 +131,7 @@
 
 | ![Es Vedrà and Es Vedranell, Ibiza, Spain](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Es Vedrà and Es Vedranell, Ibiza, Spain](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_1080x1920.jpg) |
-
-### 20260209
-
-> Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)
-
-<details>
-<summary>Description</summary>
-
-> The leopard cat is a small wild cat found across South, Southeast, and East Asia. Similar in size to a house cat but longer-legged and slenderer, it generally measures 15–30 inches long, with a tail about 7–12 inches. Depending on the region, adults weigh roughly 1–16 pounds. Their appearance varies widely: southern individuals tend to have warm golden coats, while those farther north often have pale gray fur that thickens for winter.
-> 
-> This species has several living subspecies, each adapted to its environment. These include the Bengal leopard cat found from India through Southeast Asia; the Javan, Sumatran, and Bornean leopard cats on the islands of Indonesia; and the Taiwan leopard cat. One of the most distinctive is seen in today's image: the Amur leopard cat, found in the Russian Far East, Manchuria, Korea, and nearby islands. It's larger and paler than its southern relatives, with features suited to cold, snowy forests.
-> 
-> Leopard cats are mostly nocturnal hunters, preying on rodents, birds, reptiles, and amphibians. They're adaptable too, living in forests, wetlands, mountains, and even agricultural landscapes across their wide range.
-
-</details>
-
-| ![Amur leopard cat, Russia](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Amur leopard cat, Russia](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_1080x1920.jpg) ||56_1080x1920.jpg) |R.CuteChameleon_EN-US6483346105_1080x1920.jpg) |30_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SealRiver_EN-US6267835630_1080x1920.jpg) |e a more fitting name. Someone call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_1080x1920.jpg) | call Terry.
 > 
 > 
 
