@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260217
+
+> Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Chinese New Year, also known as the Spring Festival, marks the beginning of a new year on the traditional Chinese lunisolar calendar. This calendar follows the phases of the moon and the rhythms of the seasons. Red lanterns—like the ones shown in today's image—are widely associated with the celebration. The holiday falls on the new moon between January 21 and February 20 and has been observed for more than 2,000 years. In 2024, UNESCO added the Spring Festival to its Intangible Cultural Heritage of Humanity list, recognizing its cultural and historical importance.
+> 
+> The festival follows a 15-day sequence, beginning on Chinese New Year's Eve and ending with the Lantern Festival. Each day traditionally carries its own customs, though practices vary from region to region. Even with these regional differences, the overall progression of the celebration remains similar across communities, reflecting a shared cultural framework tied to the lunar calendar.
+> 
+> The date of Chinese New Year changes annually because it is based on lunar cycles rather than the Gregorian calendar. This shifting date sets it apart from fixed-date holidays and explains why the festival's timing varies each year, even though its internal structure stays consistent.
+
+</details>
+
+| ![Chinese New Year](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chinese New Year](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1080x1920.jpg) |
+
 ### 20260216
 
 > Lincoln Memorial, Washington, DC (© Westend61/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Death Valley National Park's Anniversary](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Death Valley National Park's Anniversary](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg) |
-
-### 20260210
-
-> Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Just southwest of Ibiza, Spain, lie the uninhabited islets of Es Vedrà and Es Vedranell. Part of a protected nature reserve, these dramatic rock formations are admired for their ecological value and visual impact. Es Vedrà rises around 1,300 feet straight from the sea, its sheer limestone cliffs resembling a mountain range. Nearby, the jagged outline of Es Vedranell has earned it the nickname 'sleeping dragon,' appearing to guard its larger sibling.
-> 
-> Despite their stark appearance, the islets support a surprisingly rich ecosystem, including native flora, marine birds, endemic species such as the Ibiza wall lizard, and numerous invertebrates adapted to the rocky terrain. This fragile biodiversity is one of the reasons public access is tightly restricted.
-> 
-> Es Vedrà is also steeped in legend. Often compared to the Bermuda Triangle, it is said to lie within a powerful magnetic zone, inspiring stories of faulty compasses and strange lights. In Greek mythology, the islet is linked to the Sirens who lured Odysseus, while others believe it to be a remnant of the lost city of Atlantis. Wild and enigmatic, Es Vedrà and Es Vedranell are the kind of places that stay with you long after you've left.
-
-</details>
-
-| ![Es Vedrà and Es Vedranell, Ibiza, Spain](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Es Vedrà and Es Vedranell, Ibiza, Spain](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_1080x1920.jpg) | call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg) || call Terry.
 > 
 > 
 
