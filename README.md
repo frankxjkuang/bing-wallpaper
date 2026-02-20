@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260218
+
+> Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> This species missed the domestication memo and kept going on its own terms. Say hello to Przewalski's horse, considered the last truly wild horse on Earth. Once widespread across Central Asia, it disappeared from the wild in the 1960s after decades of hunting, habitat loss, and competition with livestock. Its survival depended on an unlikely lifeline: a small number of individuals captured by early 20th‑century collectors, which became the foundation of all modern Przewalski's horses.
+> 
+> Thanks to global breeding and reintroduction programs, the species has made a cautious comeback. Today, small but stable groups roam protected areas in Mongolia, China, and Russia. Przewalski's horses graze for long stretches, shifting between grasses, herbs, and shrubs as seasons change. They live in small family groups led by a dominant stallion, while bachelor males often form separate bands. Mares usually give birth to a single foal in the late spring, when fresh vegetation peaks.
+> 
+> Even with these gains, recovery remains fragile. Climate extremes and limited genetic diversity continue to challenge recovery. As a symbolic nod, 2026 marks the Year of the Horse in the Chinese calendar—shining a spotlight on a species that nearly vanished but endures against the odds.
+
+</details>
+
+| ![Przewalski's horses](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Przewalski's horses](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |
+
 ### 20260217
 
 > Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Darwin Day](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Darwin Day](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1080x1920.jpg) |
-
-### 20260211
-
-> Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Death Valley National Park challenges first impressions. Spanning more than 3.4 million acres across California and Nevada, it is the largest national park in the contiguous United States. Across this vast expanse, salt flats, volcanic hills, sweeping sand dunes, and distant snowcapped peaks create a landscape shaped by time and extremes. From the soaring heights of Telescope Peak, which rises over 11,000 feet above the desert floor, to the depths of Badwater Basin, 282 feet below sea level, the park is a study in contrasts.
-> 
-> Rare rainstorms can trigger brief bursts of wildflowers across parts of the valley, while hidden oases sustain wildlife and more than 1,000 plant species thrive against the odds. At Badwater Basin, pictured here, the land sinks to its lowest point in North America. Its blinding white salt flats stretch to the horizon, fractured into geometric patterns that make each step feel surreal. Long before it earned its foreboding name in 1849, the Timbisha Shoshone people called this valley home.
-> 
-> Recognizing its unique landscapes, President Herbert Hoover designated Death Valley a national monument on this day in 1933. That protection expanded in 1994, when the California Desert Protection Act elevated it to national park status and more than doubled its size, ensuring the preservation of this extraordinary desert for generations to come.
-
-</details>
-
-| ![Death Valley National Park's Anniversary](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Death Valley National Park's Anniversary](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg) || call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1080x1920.jpg) |dscape 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg) || call Terry.
 > 
 > 
 
