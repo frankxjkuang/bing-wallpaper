@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260219
+
+> The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Dragon's Eye sounds like something pulled from legend, and standing on Norway's Uttakleiv Beach in the Lofoten Islands, it's easy to see why. The formation, carved into ancient rock and framed by sand and sea, looks uncannily alive, as though the land itself is watching you. Shaped over thousands of years by ice and water, it has become one of the region's most captivating sights.
+> 
+> Despite its mythic name, the Dragon's Eye is actually a glacial pothole. It is a circular hollow sculpted into metamorphic rocks by turbulent meltwater flowing beneath the vast Fennoscandian Ice Sheet around 20,000 years ago. Under intense pressure, water carrying sand and stones ground into the bedrock, gradually eroding smooth-walled depressions. When the ice retreated roughly 16,000 years ago, these features were revealed, leaving behind formations like the Dragon's Eye, complete with a boulder—or 'pupil'—settled at its center.
+> 
+> Today, the Eye continues to shift with the elements. Depending on the tide, waves flood the hollow or strip it bare, while algae and light constantly reshape its expression, blurring the line between legend and landscape.
+
+</details>
+
+| ![Dragon's Eye, Uttakleiv Beach, Norway](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dragon's Eye, Uttakleiv Beach, Norway](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_1080x1920.jpg) |
+
 ### 20260218
 
 > Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Third Thai-Lao Friendship Bridge connecting Laos and Thailand](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Third Thai-Lao Friendship Bridge connecting Laos and Thailand](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_1080x1920.jpg) |
-
-### 20260212
-
-> Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Darwin Day marks more than a birthday—it marks a shift in thinking. Charles Darwin's observations connected variation, the survival of individuals best suited to their environment, and inheritance in ways science still builds on. His legacy rests on years of studying variation—finches, fossils, barnacles—and recognizing patterns others had overlooked. When 'On the Origin of Species' was published in 1859, it offered a framework explaining how species evolve through natural selection.
-> 
-> One of the most recognizable animals tied to Darwin's work is the blue-footed booby, seen in today's image. Widely associated with the Galápagos Islands, these seabirds range across the eastern tropical Pacific. They are known for their bright blue feet, a trait shaped by both diet and sexual selection. The color comes from carotenoid pigments obtained through fish such as sardines and anchovies. In both male and female, brighter feet signal better health and a stronger immune system. Males display their feet prominently during courtship, while females with more vivid pigmentation tend to produce healthier offspring. These birds hunt by diving straight into the water at high speed, using sharp eyesight to target schooling fish. Boobies stand as a reminder that evolution isn't a closed chapter—it's an ongoing process.
-> 
-> 
-
-</details>
-
-| ![Darwin Day](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Darwin Day](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1080x1920.jpg) |dscape 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg) || call Terry.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_1080x1920.jpg) |39738451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1080x1920.jpg) |dscape 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg) || call Terry.
 > 
 > 
 
