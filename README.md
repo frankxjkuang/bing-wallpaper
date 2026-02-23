@@ -2,144 +2,136 @@
 
 ### 20260221
 
-> 一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国 (© Radomir Jakubowski/naturepl.com)
+> Red fox standing in snowfall, Grand Teton National Park, Wyoming (© Radomir Jakubowski/naturepl.com)
 
 <details>
 <summary>Description</summary>
 
-> 大雪纷飞中，一只赤狐站在大提顿国家公园的雪地里。这一刻不仅美得纯粹，也让人窥见赤狐在严寒中自如生存的力量。锐利的目光、浓密而火红的毛皮，让它立刻显得与众不同，即便在怀俄明州严酷的冬季，也能安然生存。积雪会吞没声音，但赤狐异常灵敏的听觉，仍能捕捉到雪层之下猎物的细微动静。你几乎可以想象它在飞雪中短暂停步，耳朵微转，身形凝固，专注等待那一丝几不可闻的声响。
+> A red fox standing in the snowfall of Grand Teton National Park is more than a picturesque moment—it offers a glimpse into the resilience of one of North America's most adaptable predators. This small carnivore is instantly recognizable by its sharp gaze and thick, fiery coat that helps it thrive even in Wyoming's harsh winter conditions. Snow muffles sound, yet the animal's extraordinary hearing allows it to detect prey moving beneath the surface. You can almost imagine it pausing amid the drifting flakes, ears rotating, body perfectly still, waiting for the faintest rustle.
 > 
-> 大提顿国家公园广阔的山谷与浓密的森林，为赤狐提供了理想的狩猎场。冬季的到来，让这片土地变得格外安静，也放大了赤狐在雪地中的每一个动作。厚实的冬毛隔绝严寒，也在纯白背景中燃起鲜明的火色，形成野生动物摄影中最具张力的对比。在这样的雪原相遇赤狐，让人窥见这座国家公园丰富的生命层次——冬日未曾沉睡，任何一个动静，都仍在被倾听、被回应。
+> Grand Teton's sweeping valleys and dense forests offer ideal hunting grounds, and winter transforms the landscape into a quiet stage where the fox's movements appear almost theatrical. Its winter fur not only insulates against subzero temperatures but also stands out vividly against the white backdrop, creating the striking contrast often captured in wildlife photography. Seeing a red fox in such conditions highlights the park's rich biodiversity, sharing a reminder that even in the stillness of winter, life in the Tetons remains alert, resourceful, and beautifully wild.
 > 
 > 
 
 </details>
 
-| ![赤狐，大提顿国家公园，怀俄明州，美国](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![赤狐，大提顿国家公园，怀俄明州，美国](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Red fox, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red fox, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_1080x1920.jpg) |
 
 ### 20260220
 
-> 约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国 (© Jorge Villalba/Getty Images)
+> Horsetail Fall in Yosemite National Park, California (© Jorge Villalba/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 今天，是安塞尔·亚当斯的诞辰。正是他的镜头，塑造了世人心中优胜美地的形象。这座国家公园以雄伟的花岗岩岩壁、壮观的瀑布和变幻莫测的光线闻名，持续激发着一代又一代艺术家的创作灵感。而其中最令人着迷的景象，是被称作“火瀑”的奇观。这一名称，其实源自优胜美地历史中的两种不同景象。在过去，人们曾聚集在冰川点，观看一种人工制造的奇观：炽热的余烬被推下悬崖，在夜幕中倾泻而下，宛如一条燃烧的火流。
+> Today we celebrate the birthday of Ansel Adams, a photographer whose vision helped shape the world's perception of Yosemite National Park. Yosemite is renowned for its granite walls, dramatic waterfalls, and striking light, all of which have inspired generations of artists. One of its most intriguing sights is the Firefall, a term that refers to two distinct events in the park's history. For decades, visitors gathered at Glacier Point to watch an artificial Firefall, in which embers were pushed off the cliff in a glowing stream of fire.
 > 
-> 相比之下，真正令人着迷的，是埃尔卡皮坦山马尾瀑布上出现的自然火瀑。在二月中下旬的少数几个黄昏，落日以恰到好处的角度照亮瀑布，使水流染上一层炽亮的橙色，仿佛熔岩顺着山体缓缓倾泻。这一奇观并非年年可见，它依赖于晴朗的天空、充沛的水量，以及分秒不差的时机。1973年，摄影师盖伦·罗威尔首次捕捉到这一罕见瞬间，并拍下广为流传的影像，让这一天然奇观走入公众视野，成为优胜美地最令人惊叹的景象之一。
+> Far more mysterious is the natural Firefall at Horsetail Fall on El Capitan. On a few evenings in mid- to late February, the sunset hits the waterfall at just the right angle, turning it bright orange, as if molten lava were sliding down the mountain. Clear skies, sufficient water, and perfect timing are all essential for this effect to occur. In 1973, Galen Rowell observed this rare phenomenon and took the first widely known photograph of the natural Firefall—bringing widespread attention to one of Yosemite's most remarkable sights.
 > 
 > 
 
 </details>
 
-| ![约塞米蒂国家公园里的火瀑布，加利福尼亚州](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![约塞米蒂国家公园里的火瀑布，加利福尼亚州](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Horsetail Fall in Yosemite National Park, California](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Horsetail Fall in Yosemite National Park, California](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_1080x1920.jpg) |
 
 ### 20260219
 
-> 乌塔克莱夫海滩的“龙之眼”岩层，挪威 (© reisegraf/Getty Images)
+> The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> “龙之眼”这个名字听起来像是出自传说，而当你站在挪威罗弗敦群岛的乌塔克莱夫海滩上时，你很容易就能明白为什么它会得此美名。这处地貌由古老的岩石雕琢而成，四周环绕着沙滩和大海，看起来栩栩如生，仿佛大地本身正在注视着你。它历经数千年的冰雪和海水的侵蚀塑造而成，如今已成为该地区最迷人的景点之一。
+> Dragon's Eye sounds like something pulled from legend, and standing on Norway's Uttakleiv Beach in the Lofoten Islands, it's easy to see why. The formation, carved into ancient rock and framed by sand and sea, looks uncannily alive, as though the land itself is watching you. Shaped over thousands of years by ice and water, it has become one of the region's most captivating sights.
 > 
-> 尽管龙眼有着神话般的名字，但它实际上是一个冰川坑洞。大约 2 万年前，汹涌的融水从广阔的芬诺斯坎迪亚冰原下流过，在变质岩中形成了一个圆形凹洞。在强大的压力下，携带着沙石的水流冲刷着基岩，逐渐侵蚀出壁面光滑的洼地。大约 1.6 万年前，冰雪退去，这些地貌显露出来，留下了像龙眼这样的地貌，龙眼的中心镶嵌着一块巨石或 “瞳孔”。
+> Despite its mythic name, the Dragon's Eye is actually a glacial pothole. It is a circular hollow sculpted into metamorphic rocks by turbulent meltwater flowing beneath the vast Fennoscandian Ice Sheet around 20,000 years ago. Under intense pressure, water carrying sand and stones ground into the bedrock, gradually eroding smooth-walled depressions. When the ice retreated roughly 16,000 years ago, these features were revealed, leaving behind formations like the Dragon's Eye, complete with a boulder—or 'pupil'—settled at its center.
 > 
-> 如今，“眼睛 ”继续随着各种元素的变化而变化。根据潮汐的变化，海浪会淹没空洞或将其剥离，而藻类和光线则不断重塑其表现形式，模糊了传说与景观之间的界限。
+> Today, the Eye continues to shift with the elements. Depending on the tide, waves flood the hollow or strip it bare, while algae and light constantly reshape its expression, blurring the line between legend and landscape.
 
 </details>
 
-| ![龙之眼，挪威乌塔克莱夫海滩](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![龙之眼，挪威乌塔克莱夫海滩](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Dragon's Eye, Uttakleiv Beach, Norway](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dragon's Eye, Uttakleiv Beach, Norway](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_1080x1920.jpg) |
 
 ### 20260218
 
-> 普氏野马 (© Nemyrivskyi Viacheslav/Getty Images)
+> Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 普氏野马从未被驯化，自始至终按照自己的方式生存，被认为是地球上最后的野马。它们曾广泛分布于中亚地区，但在20世纪60年代，由于狩猎、栖息地丧失以及与家畜竞争，普氏野马在野外一度消失。幸运的是，少数在20世纪初被带入圈养环境的个体保存了这个物种的火种，也孕育了今天所有的普氏野马。
+> This species missed the domestication memo and kept going on its own terms. Say hello to Przewalski's horse, considered the last truly wild horse on Earth. Once widespread across Central Asia, it disappeared from the wild in the 1960s after decades of hunting, habitat loss, and competition with livestock. Its survival depended on an unlikely lifeline: a small number of individuals captured by early 20th‑century collectors, which became the foundation of all modern Przewalski's horses.
 > 
-> 借助全球协作的繁育与放归计划，普氏野马的命运开始出现转机。如今，它们以小而稳定的族群，生活在蒙古、中国和俄罗斯的保护区内。它们长时间低头取食，随着季节变化，在草类、野生植物和灌木之间游走。马群通常以家庭为单位生活，由一匹雄马带领；而年轻的雄马会另组队成“单身群”。每到春末，草木最盛时，母马会产下一匹幼驹。
+> Thanks to global breeding and reintroduction programs, the species has made a cautious comeback. Today, small but stable groups roam protected areas in Mongolia, China, and Russia. Przewalski's horses graze for long stretches, shifting between grasses, herbs, and shrubs as seasons change. They live in small family groups led by a dominant stallion, while bachelor males often form separate bands. Mares usually give birth to a single foal in the late spring, when fresh vegetation peaks.
 > 
-> 尽管取得了一定进展，但普氏野马的复苏依然脆弱。极端气候和遗传多样性受限，持续考验着种群的长期生存。2026年，恰逢中国农历马年，这一象征性的时刻，让这种曾濒临消失、却顽强延续至今的物种再次进入公众视野。
+> Even with these gains, recovery remains fragile. Climate extremes and limited genetic diversity continue to challenge recovery. As a symbolic nod, 2026 marks the Year of the Horse in the Chinese calendar—shining a spotlight on a species that nearly vanished but endures against the odds.
 
 </details>
 
-| ![普氏野马](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![普氏野马](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Przewalski's horses](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Przewalski's horses](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |
 
 ### 20260217
 
-> 中国春节传统汉字“福” (© DuKai摄影师/Getty Images)
+> Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 过年好！今天是中国民间最隆重最富有特色的传统节日之一。其实每年从腊八或小年开始，到元宵节，都称之为过年。春节期间，中国全国各地人们都举办着感恩祈福、阖家团聚、除旧布新、迎禧接福、祈求丰年为主要内容的活动。而中国农历新年也在世界各地掀起了“中国风”，春节庆祝活动内容丰富多彩，具有重要的历史、艺术和文化价值。
+> Chinese New Year, also known as the Spring Festival, marks the beginning of a new year on the traditional Chinese lunisolar calendar. This calendar follows the phases of the moon and the rhythms of the seasons. Red lanterns—like the ones shown in today's image—are widely associated with the celebration. The holiday falls on the new moon between January 21 and February 20 and has been observed for more than 2,000 years. In 2024, UNESCO added the Spring Festival to its Intangible Cultural Heritage of Humanity list, recognizing its cultural and historical importance.
 > 
-> 马在中国文化中象征着力量、速度、活力与进取精神。自古以来，马在战争、农业和商业中都扮演着重要角色，在文学、成语和俗语中也占有一席之地，如“马到成功”和“马上封侯”常用于表达顺利与成功。马的形象被历代文人歌颂，并在艺术和文化创作中频繁出现。
+> The festival follows a 15-day sequence, beginning on Chinese New Year's Eve and ending with the Lantern Festival. Each day traditionally carries its own customs, though practices vary from region to region. Even with these regional differences, the overall progression of the celebration remains similar across communities, reflecting a shared cultural framework tied to the lunar calendar.
 > 
-> 
+> The date of Chinese New Year changes annually because it is based on lunar cycles rather than the Gregorian calendar. This shifting date sets it apart from fixed-date holidays and explains why the festival's timing varies each year, even though its internal structure stays consistent.
 
 </details>
 
-| ![马年春节](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![马年春节](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Chinese New Year](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chinese New Year](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1080x1920.jpg) |
 
 ### 20260216
 
-> 庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)
+> Lincoln Memorial, Washington, DC (© Westend61/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 除夕夜，街头的龙形灯笼正蜿蜒舒展，金鳞流转间仿佛蓄着时光的温度；而远处隐约响起的蹄声，恰似春风捎来骏马的问候——这是龙与马的相逢，是古老祥瑞与崭新朝气在岁月门楣的相会。
+> Presidents' Day is observed on the third Monday of February and is officially recognized at the federal level as Washington's Birthday. The holiday was originally celebrated on February 22, George Washington's birthday, before being rescheduled under the Uniform Monday Holiday Act. Passed in 1968 and implemented in 1971, the Act shifted several federal holidays to Mondays, creating standardized long weekends. Washington's Birthday was among those affected, which moved the observance away from Washington's actual birthday and allowed its meaning to broaden over time.
 > 
-> 这座龙灯以腾跃之姿盘绕成家门前的守护，又以马踏青云的昂扬，将锦绣前程写入每扇温暖的窗棂。新的一年将至，让我们将龙马精神融入血脉，每一步都是光芒蜿蜒处，每一程皆有长风万里随。
+> Although the federal name remains unchanged, Presidents' Day is commonly observed as a day that extends beyond a single figure. Many states and communities use the occasion to recognize multiple US presidents, most often George Washington and Abraham Lincoln, whose birthdays both fall in February. This broader interpretation has developed through public custom rather than federal mandate, shaping how the holiday is understood today.
 > 
-> 
+> Pictured here, the Lincoln Memorial stands on the National Mall in Washington, DC, honoring the 16th president and his leadership during the Civil War. Presidents' Day invites reflection on how the presidency has influenced the nation's institutions and public life, linking early leadership to the role the office continues to play in the United States today.
 
 </details>
 
-| ![中国的除夕夜](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![中国的除夕夜](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Presidents' Day](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Presidents' Day](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |
 
 ### 20260215
 
-> 蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国 (© Kiliii Fish/Cavan Images)
+> Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)
 
 <details>
 <summary>Description</summary>
 
-> 世界鲸鱼日定于每年2月的第3个星期日，起源于20世纪80年代的夏威夷。当时，当地社区会庆祝座头鲸在迁徙季节重返近海。这一纪念日随后逐渐受到国际关注，尤其是在1986年国际捕鲸委员会通过商业捕鲸禁令之后，该举措成为全球鲸类保护的重要里程碑。
+> World Whale Day, observed on the third Sunday of February, began in the 1980s in Hawaii, where communities celebrated the seasonal return of migrating humpback whales. The day gained wider recognition after the International Whaling Commission's 1986 moratorium on commercial whaling, which marked a major milestone in international whale conservation.
 > 
-> 座头鲸修长的胸鳍格外醒目，而它们在繁殖季发出的复杂歌声，更为海洋增添了神秘回响。座头鲸的迁徙路线高度规律，常年沿岸而行，不仅成为季节更替的自然标志，也使其成为最早被关注和保护的鲸类之一。
+> Humpback whales are easily recognizable by their long pectoral fins and are known for their complex songs associated with breeding behavior. Their predictable migrations bring them close to shore, turning them into both a cultural marker of the season and a focal point for early conservation efforts.
 > 
-> 鲸类保护不仅是禁捕，更关乎整个海洋环境。渔业、航运、噪音、塑料污染与海温变化，共同影响鲸的迁徙路径和觅食节奏。在蒙特雷湾，座头鲸的觅食依托于健康丰富的生态系统。猎物反哺海洋，营养滋养浮游生物，生命由此串联成完整的食物网。世界鲸鱼日，关注鲸鱼，也是关注海洋的未来。
+> Today, whale conservation extends far beyond hunting restrictions and includes how we use and manage the oceans more broadly. Fishing activity, major shipping routes, underwater noise, plastic waste, and rising ocean temperatures all influence whale movement and feeding patterns. Pictured here are humpback whales feeding cooperatively in Monterey Bay—a behavior that depends on healthy ecosystems and reliable prey availability. Whales also contribute to ocean systems by circulating nutrients that support plankton growth and marine food webs. World Whale Day highlights the ongoing importance of thoughtful ocean stewardship in maintaining balanced marine ecosystems.
 
 </details>
 
-| ![世界鲸鱼日](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界鲸鱼日](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Whale Day](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Whale Day](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_1080x1920.jpg) | Before bridges, rivers set the pace of travel. Now, with bridges, people do. That shift explains why cross-border links like the Third Thai-Lao Friendship Bridge connecting Laos and Thailand matter. Bridges come in many forms, each built to meet a specific challenge. Arch bridges manage compression, suspension bridges span long distances, and concrete box-girder bridges prioritize stability and load efficiency. This bridge uses the box-girder design, making it a practical choice for crossing the wide, fast-moving Mekong River.
-> 
-> Opened in 2011, the Third Thai-Lao Friendship Bridge was developed to strengthen transport links between Nakhon Phanom Province in Thailand and Thakhek, in Khammouane Province, Laos. Thailand funded much of the project, continuing a pattern set by earlier crossings such as the First Thai-Lao Friendship Bridge between Nong Khai and Vientiane and the Second Thai-Lao Friendship Bridge linking Mukdahan and Savannakhet.
-> 
-> Measuring about 4,669 feet, the bridge comprises two traffic lanes, serving local commuters and long-haul freight alike. This has helped ease congestion at other crossings and made cross-border movement more reliable. Beyond transport efficiency, the bridge supports logistics, tourism, and cross-border cooperation, showing how infrastructure can quietly reshape regional connections without demanding attention.
-
-</details>
-
-| ![Third Thai-Lao Friendship Bridge connecting Laos and Thailand](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Third Thai-Lao Friendship Bridge connecting Laos and Thailand](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_1080x1920.jpg) |39738451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1080x1920.jpg) |dscape 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg) || call Terry.
 > 
