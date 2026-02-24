@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260222
+
+> The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 'Shivering Mountain' is a dramatic nickname, but Mam Tor has earned it over hundreds of years. Rising above Castleton in England's Peak District, it lies within the United Kingdom's first national park, which spans 555 square miles. This landmark takes its name from Old English, 'mam' meaning 'mother,' a nod to the smaller hills it appears to cradle. Yet this 'mother mountain' is famously unstable. Its layers of shale and sandstone have caused landslips for centuries, including a collapse that permanently closed the A625 road in 1979.
+> 
+> Long before modern engineers battled its shifting slopes, Bronze Age people built a large hillfort on Mam Tor's summit around 3,500 years ago. The ridge still shows traces of a settlement, with roundhouses and ancient trackways that reveal its long‑standing importance.
+> 
+> Geologically, this 1,696‑foot peak showcases the Peak District's turbulent past. Its cliffs reveal layers formed in tropical seas over 320 million years ago, while nearby caverns—such as Blue John Cavern—hold minerals found in very few places on Earth. Today, Mam Tor remains one of the park's most iconic walks, offering a ridge path that feels both wild and wonderfully accessible.
+
+</details>
+
+| ![Mam Tor, Derbyshire, England](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mam Tor, Derbyshire, England](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_1080x1920.jpg) |
+
 ### 20260221
 
 > Red fox standing in snowfall, Grand Teton National Park, Wyoming (© Radomir Jakubowski/naturepl.com)
@@ -112,26 +131,7 @@
 
 | ![Presidents' Day](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Presidents' Day](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |
-
-### 20260215
-
-> Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)
-
-<details>
-<summary>Description</summary>
-
-> World Whale Day, observed on the third Sunday of February, began in the 1980s in Hawaii, where communities celebrated the seasonal return of migrating humpback whales. The day gained wider recognition after the International Whaling Commission's 1986 moratorium on commercial whaling, which marked a major milestone in international whale conservation.
-> 
-> Humpback whales are easily recognizable by their long pectoral fins and are known for their complex songs associated with breeding behavior. Their predictable migrations bring them close to shore, turning them into both a cultural marker of the season and a focal point for early conservation efforts.
-> 
-> Today, whale conservation extends far beyond hunting restrictions and includes how we use and manage the oceans more broadly. Fishing activity, major shipping routes, underwater noise, plastic waste, and rising ocean temperatures all influence whale movement and feeding patterns. Pictured here are humpback whales feeding cooperatively in Monterey Bay—a behavior that depends on healthy ecosystems and reliable prey availability. Whales also contribute to ocean systems by circulating nutrients that support plankton growth and marine food webs. World Whale Day highlights the ongoing importance of thoughtful ocean stewardship in maintaining balanced marine ecosystems.
-
-</details>
-
-| ![World Whale Day](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Whale Day](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_1080x1920.jpg) |39738451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1080x1920.jpg) |dscape 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg) || call Terry.
 > 
