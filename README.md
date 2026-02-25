@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260223
+
+> Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)
+
+<details>
+<summary>Description</summary>
+
+> The great egret is a striking large heron, easily recognizable by its pure white plumage, long neck, and sharp yellow bill. Known for its cosmopolitan distribution, it occupies habitats around the world and adapts well to many aquatic environments. Adults measure about 37 to 41 inches in body length, with a wingspan of 4.3 to 4.8 feet, and weigh about 2.2 pounds, giving them a tall, elegant silhouette—roughly chest‑high when compared to a 6‑foot-tall person. As carnivores, they feed primarily on fish but also take amphibians, insects, small mammals, and occasionally reptiles. Their patient hunting style, standing motionless before striking with sudden precision, is one of their most distinctive traits.
+> 
+> In today's image, this statuesque bird stands in the snow in Upper Bavaria, Germany, its white feathers blending into the winter landscape. Despite the freezing air, its presence is calm and peaceful, lending an almost contemplative feel to the scene. The egret appears poised and attentive, a quiet sentinel in the stillness of the frozen landscape.
+> 
+> 
+
+</details>
+
+| ![Great white egret, Upper Bavaria, Germany](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great white egret, Upper Bavaria, Germany](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_1080x1920.jpg) |
+
 ### 20260222
 
 > The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Chinese New Year](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chinese New Year](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1080x1920.jpg) |
-
-### 20260216
-
-> Lincoln Memorial, Washington, DC (© Westend61/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Presidents' Day is observed on the third Monday of February and is officially recognized at the federal level as Washington's Birthday. The holiday was originally celebrated on February 22, George Washington's birthday, before being rescheduled under the Uniform Monday Holiday Act. Passed in 1968 and implemented in 1971, the Act shifted several federal holidays to Mondays, creating standardized long weekends. Washington's Birthday was among those affected, which moved the observance away from Washington's actual birthday and allowed its meaning to broaden over time.
-> 
-> Although the federal name remains unchanged, Presidents' Day is commonly observed as a day that extends beyond a single figure. Many states and communities use the occasion to recognize multiple US presidents, most often George Washington and Abraham Lincoln, whose birthdays both fall in February. This broader interpretation has developed through public custom rather than federal mandate, shaping how the holiday is understood today.
-> 
-> Pictured here, the Lincoln Memorial stands on the National Mall in Washington, DC, honoring the 16th president and his leadership during the Civil War. Presidents' Day invites reflection on how the presidency has influenced the nation's institutions and public life, linking early leadership to the role the office continues to play in the United States today.
-
-</details>
-
-| ![Presidents' Day](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Presidents' Day](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1080x1920.jpg) |&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
