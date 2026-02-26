@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260224
+
+> Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Floating lilies, glass-clear pools, and a hidden world below: welcome to the Grand Cenote in Tulum, Mexico. This natural sinkhole formed thousands of years ago when collapsing rock let aquifer waters in. Over time, the chamber filled with clear freshwater that now connects a vast underground system of caves. At first, our eyes rest on the still surface. The water lilies we see in the image float without hurry, their broad leaves catching sunlight while supporting rich ecosystems underneath. These botanical wonders belong to one of the oldest flowering lineages on Earth, dating back more than 125 million years—older than most dinosaurs. Each bloom has evolved clever tricks to attract pollinators—beetles, bees, flies, and even the wind—using scent, shape, and timing to ensure survival in still water.
+> 
+> As we look closer, the scene comes alive: below, fish weave through submerged roots and turtles glide through leafy shade. Overhead, dragonflies trace arcs while tiny insects spark ripples across the water. Drifting gently among the lilies, we find ourselves surrounded by nature's artistry—where every movement, reflection, and shadow reveals rhythms millions of years in the making.
+> 
+> 
+
+</details>
+
+| ![Water lilies at Grand Cenote, Tulum, Mexico](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Water lilies at Grand Cenote, Tulum, Mexico](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_1080x1920.jpg) |
+
 ### 20260223
 
 > Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)
@@ -112,26 +131,7 @@
 
 | ![Przewalski's horses](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Przewalski's horses](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |
-
-### 20260217
-
-> Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Chinese New Year, also known as the Spring Festival, marks the beginning of a new year on the traditional Chinese lunisolar calendar. This calendar follows the phases of the moon and the rhythms of the seasons. Red lanterns—like the ones shown in today's image—are widely associated with the celebration. The holiday falls on the new moon between January 21 and February 20 and has been observed for more than 2,000 years. In 2024, UNESCO added the Spring Festival to its Intangible Cultural Heritage of Humanity list, recognizing its cultural and historical importance.
-> 
-> The festival follows a 15-day sequence, beginning on Chinese New Year's Eve and ending with the Lantern Festival. Each day traditionally carries its own customs, though practices vary from region to region. Even with these regional differences, the overall progression of the celebration remains similar across communities, reflecting a shared cultural framework tied to the lunar calendar.
-> 
-> The date of Chinese New Year changes annually because it is based on lunar cycles rather than the Gregorian calendar. This shifting date sets it apart from fixed-date holidays and explains why the festival's timing varies each year, even though its internal structure stays consistent.
-
-</details>
-
-| ![Chinese New Year](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Chinese New Year](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1080x1920.jpg) |&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
