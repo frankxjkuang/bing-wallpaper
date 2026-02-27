@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260225
+
+> Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> Hidden just outside Juneau, Alaska, the Mendenhall Glacier feels almost unreal, inside and out. Step into one of its rare blue ice caves, and the world turns quiet and luminous, with light filtering through centuries-old compacted ice. The glacier stretches about 13 miles from the Juneau Icefield, slowly flowing toward the valley below and reshaping itself year by year.
+> 
+> Its striking blue color comes from the ice's density, which absorbs most wavelengths of light and leaves behind vivid shades of blue. These caves are fleeting by nature, forming as meltwater carves tunnels through the glacier and disappearing, or collapsing entirely, as conditions shift.
+> 
+> While reaching the caves has become increasingly rare and unpredictable, the glacier remains closely studied and deeply admired. Over the past century, it has retreated dramatically, offering scientists a visible record of environmental change. Inside these glowing chambers, beauty and fragility meet, creating a powerful reminder of how dynamic and temporary Alaska's frozen landscapes truly are.
+
+</details>
+
+| ![Mendenhall Glacier, Alaska](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mendenhall Glacier, Alaska](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_1080x1920.jpg) |
+
 ### 20260224
 
 > Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Dragon's Eye, Uttakleiv Beach, Norway](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dragon's Eye, Uttakleiv Beach, Norway](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_1080x1920.jpg) |
-
-### 20260218
-
-> Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> This species missed the domestication memo and kept going on its own terms. Say hello to Przewalski's horse, considered the last truly wild horse on Earth. Once widespread across Central Asia, it disappeared from the wild in the 1960s after decades of hunting, habitat loss, and competition with livestock. Its survival depended on an unlikely lifeline: a small number of individuals captured by early 20th‑century collectors, which became the foundation of all modern Przewalski's horses.
-> 
-> Thanks to global breeding and reintroduction programs, the species has made a cautious comeback. Today, small but stable groups roam protected areas in Mongolia, China, and Russia. Przewalski's horses graze for long stretches, shifting between grasses, herbs, and shrubs as seasons change. They live in small family groups led by a dominant stallion, while bachelor males often form separate bands. Mares usually give birth to a single foal in the late spring, when fresh vegetation peaks.
-> 
-> Even with these gains, recovery remains fragile. Climate extremes and limited genetic diversity continue to challenge recovery. As a symbolic nod, 2026 marks the Year of the Horse in the Chinese calendar—shining a spotlight on a species that nearly vanished but endures against the odds.
-
-</details>
-
-| ![Przewalski's horses](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Przewalski's horses](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
