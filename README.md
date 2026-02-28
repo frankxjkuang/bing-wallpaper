@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260226
+
+> Grand Canyon and the Colorado River, Arizona (© Matt Anderson Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Every day at Grand Canyon National Park tells a story, but February 26 is a special one. It marks the Grand Canyon's designation as a national park in 1919, a milestone that helped protect one of the most iconic natural wonders in the United States. At the heart of it all flows the Colorado River, winding for hundreds of miles through layered stone, quietly shaping the canyon one season at a time.
+> 
+> For visitors in the area, the anniversary is a perfect chance to slow down and explore. Ranger-led programs and talks highlight the canyon's geology, wildlife, and cultural history. A walk along the South Rim offers sweeping views where California condors circle overhead, while elk, mule deer, and bighorn sheep roam the park's diverse habitats. Stargazing and scenic overlooks add to the experience, especially during winter's clearer nights.
+> 
+> You don't need to be nearby to take part. The National Park Service provides live webcams from viewpoints across the park, sharing real-time sunrises, weather shifts, and daily rhythms. Whether in Arizona or far away, February 26 is an open invitation to connect with the Grand Canyon in your own way.
+
+</details>
+
+| ![Grand Canyon National Park anniversary](https://cn.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grand Canyon National Park anniversary](https://cn.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_1080x1920.jpg) |
+
 ### 20260225
 
 > Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)
@@ -112,26 +131,7 @@
 
 | ![Horsetail Fall in Yosemite National Park, California](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Horsetail Fall in Yosemite National Park, California](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_1080x1920.jpg) |
-
-### 20260219
-
-> The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Dragon's Eye sounds like something pulled from legend, and standing on Norway's Uttakleiv Beach in the Lofoten Islands, it's easy to see why. The formation, carved into ancient rock and framed by sand and sea, looks uncannily alive, as though the land itself is watching you. Shaped over thousands of years by ice and water, it has become one of the region's most captivating sights.
-> 
-> Despite its mythic name, the Dragon's Eye is actually a glacial pothole. It is a circular hollow sculpted into metamorphic rocks by turbulent meltwater flowing beneath the vast Fennoscandian Ice Sheet around 20,000 years ago. Under intense pressure, water carrying sand and stones ground into the bedrock, gradually eroding smooth-walled depressions. When the ice retreated roughly 16,000 years ago, these features were revealed, leaving behind formations like the Dragon's Eye, complete with a boulder—or 'pupil'—settled at its center.
-> 
-> Today, the Eye continues to shift with the elements. Depending on the tide, waves flood the hollow or strip it bare, while algae and light constantly reshape its expression, blurring the line between legend and landscape.
-
-</details>
-
-| ![Dragon's Eye, Uttakleiv Beach, Norway](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Dragon's Eye, Uttakleiv Beach, Norway](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_1080x1920.jpg) |.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
