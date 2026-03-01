@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260227
+
+> Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska (© Steven Kazlowski/naturepl.com)
+
+<details>
+<summary>Description</summary>
+
+> International Polar Bear Day underscores how closely these Arctic giants are tied to their frozen realms. Celebrated on February 27, the day shines a light on polar bears and the rapidly changing world beneath their paws. The world's largest land carnivores roam across vast icy landscapes, sometimes covering hundreds of miles in search of food. They're perfectly adapted to life on sea ice, with large paws that can span nearly a foot and help them swim for miles.
+> 
+> This time of year is especially important because it's when mothers and their newborn cubs stay tucked inside snow dens. These chambers, often dug into deep drifts, provide warmth and safety during the harsh Arctic winter. Cubs are tiny at birth—about one pound—and rely completely on their mother for survival until they're strong enough to venture out in spring.
+> 
+> International Polar Bear Day reminds us that shrinking sea ice threatens this cycle. By reducing carbon emissions and supporting conservation efforts, we can help protect the vast Arctic habitats polar bears depend on. Every action counts toward their future.
+
+</details>
+
+| ![International Polar Bear Day](https://cn.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Polar Bear Day](https://cn.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_1080x1920.jpg) |
+
 ### 20260226
 
 > Grand Canyon and the Colorado River, Arizona (© Matt Anderson Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Red fox, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red fox, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_1080x1920.jpg) |
-
-### 20260220
-
-> Horsetail Fall in Yosemite National Park, California (© Jorge Villalba/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today we celebrate the birthday of Ansel Adams, a photographer whose vision helped shape the world's perception of Yosemite National Park. Yosemite is renowned for its granite walls, dramatic waterfalls, and striking light, all of which have inspired generations of artists. One of its most intriguing sights is the Firefall, a term that refers to two distinct events in the park's history. For decades, visitors gathered at Glacier Point to watch an artificial Firefall, in which embers were pushed off the cliff in a glowing stream of fire.
-> 
-> Far more mysterious is the natural Firefall at Horsetail Fall on El Capitan. On a few evenings in mid- to late February, the sunset hits the waterfall at just the right angle, turning it bright orange, as if molten lava were sliding down the mountain. Clear skies, sufficient water, and perfect timing are all essential for this effect to occur. In 1973, Galen Rowell observed this rare phenomenon and took the first widely known photograph of the natural Firefall—bringing widespread attention to one of Yosemite's most remarkable sights.
-> 
-> 
-
-</details>
-
-| ![Horsetail Fall in Yosemite National Park, California](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Horsetail Fall in Yosemite National Park, California](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_1080x1920.jpg) |.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_1080x1920.jpg) |80399078_1080x1920.jpg) |.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
