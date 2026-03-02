@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260228
+
+> Olo'upena Falls, island of Moloka'i, Hawaii (© Andrew Aylett/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Moloka'i, often called the most Hawaiian of the islands, offers a slower rhythm shaped by nature and strong community ties. Formed by volcanic activity more than a million years ago, the island covers about 260 square miles and rises from the Pacific Ocean in long ridges and broad valleys. Unlike its busier neighbors, Moloka'i has resisted large-scale development, preserving a strong sense of local cohesion where families, traditions, and stewardship of the land encapsulate central values. Life here focuses on the ocean, the land, and stories passed down through generations.
+> 
+> Seen in today's image, Olo'upena Falls towers above the island's north shore. Dropping 2,953 feet down steep sea cliffs, the falls are fed by seasonal rains and often fan into delicate silver streams. The surrounding sea cliffs, among the highest on Earth, are accessible only by helicopter or boat, adding to their mystique.
+> 
+> Today, Moloka'i's quiet roads, uncrowded beaches, and close-knit community offer a rare chance to experience Hawaii as it once was—peaceful, welcoming, and deeply connected to the land.
+
+</details>
+
+| ![Olo'upena Falls, island of Moloka'i, Hawaii](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Olo'upena Falls, island of Moloka'i, Hawaii](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_1080x1920.jpg) |
+
 ### 20260227
 
 > Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska (© Steven Kazlowski/naturepl.com)
@@ -112,26 +131,7 @@
 
 | ![Mam Tor, Derbyshire, England](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mam Tor, Derbyshire, England](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_1080x1920.jpg) |
-
-### 20260221
-
-> Red fox standing in snowfall, Grand Teton National Park, Wyoming (© Radomir Jakubowski/naturepl.com)
-
-<details>
-<summary>Description</summary>
-
-> A red fox standing in the snowfall of Grand Teton National Park is more than a picturesque moment—it offers a glimpse into the resilience of one of North America's most adaptable predators. This small carnivore is instantly recognizable by its sharp gaze and thick, fiery coat that helps it thrive even in Wyoming's harsh winter conditions. Snow muffles sound, yet the animal's extraordinary hearing allows it to detect prey moving beneath the surface. You can almost imagine it pausing amid the drifting flakes, ears rotating, body perfectly still, waiting for the faintest rustle.
-> 
-> Grand Teton's sweeping valleys and dense forests offer ideal hunting grounds, and winter transforms the landscape into a quiet stage where the fox's movements appear almost theatrical. Its winter fur not only insulates against subzero temperatures but also stands out vividly against the white backdrop, creating the striking contrast often captured in wildlife photography. Seeing a red fox in such conditions highlights the park's rich biodiversity, sharing a reminder that even in the stillness of winter, life in the Tetons remains alert, resourceful, and beautifully wild.
-> 
-> 
-
-</details>
-
-| ![Red fox, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red fox, Grand Teton National Park, Wyoming](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_1080x1920.jpg) |80399078_1080x1920.jpg) |.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_1080x1920.jpg) |80399078_1080x1920.jpg) |.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
