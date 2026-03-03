@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260301
+
+> Suffragette celebrations, August 27, 1920, New York City (© Keystone/Hulton Archive/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> March welcomes the promise of spring and the celebration of Women's History Month, honoring trailblazers who changed history and continue to inspire future generations. It also amplifies emerging voices that lead us toward equality, showing that progress remains possible. Let's celebrate women—bold thinkers, innovators, and leaders—who prove that meaningful change begins with determination.
+> 
+> Today's image captures an unforgettable milestone: New York City on August 27, 1920, the day after the 19th Amendment took effect, securing women's right to vote nationwide. The city became a sea of excitement as thousands filled streets stretching far into the distance, banners waving above crowds packed several layers deep. At the center stood Carrie Chapman Catt, a driving force behind the suffrage movement, welcomed in triumph. From neighborhoods across the city's more than 300 square miles, supporters marched and sang, aware that this victory would echo for generations. That day was more than a celebration—it was a promise that women's voices would never again be silenced.
+> 
+> Women's History Month keeps that promise alive, reminding us that equality is a journey we continue together.
+
+</details>
+
+| ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |
+
 ### 20260228
 
 > Olo'upena Falls, island of Moloka'i, Hawaii (© Andrew Aylett/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Great white egret, Upper Bavaria, Germany](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great white egret, Upper Bavaria, Germany](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_1080x1920.jpg) |
-
-### 20260222
-
-> The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 'Shivering Mountain' is a dramatic nickname, but Mam Tor has earned it over hundreds of years. Rising above Castleton in England's Peak District, it lies within the United Kingdom's first national park, which spans 555 square miles. This landmark takes its name from Old English, 'mam' meaning 'mother,' a nod to the smaller hills it appears to cradle. Yet this 'mother mountain' is famously unstable. Its layers of shale and sandstone have caused landslips for centuries, including a collapse that permanently closed the A625 road in 1979.
-> 
-> Long before modern engineers battled its shifting slopes, Bronze Age people built a large hillfort on Mam Tor's summit around 3,500 years ago. The ridge still shows traces of a settlement, with roundhouses and ancient trackways that reveal its long‑standing importance.
-> 
-> Geologically, this 1,696‑foot peak showcases the Peak District's turbulent past. Its cliffs reveal layers formed in tropical seas over 320 million years ago, while nearby caverns—such as Blue John Cavern—hold minerals found in very few places on Earth. Today, Mam Tor remains one of the park's most iconic walks, offering a ridge path that feels both wild and wonderfully accessible.
-
-</details>
-
-| ![Mam Tor, Derbyshire, England](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mam Tor, Derbyshire, England](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_1080x1920.jpg) |80399078_1080x1920.jpg) |.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_1080x1920.jpg) |80399078_1080x1920.jpg) |.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
