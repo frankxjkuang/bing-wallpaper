@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260302
+
+> Harbor and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Do not be fooled by how simple Ko Samui's longtail boats look from a distance; decades of local ingenuity have shaped their slender frames. These vessels, known in Thailand as 'ruea hang yao,' emerged in the early 20th century, when fishermen repurposed vehicle engines to navigate shallow waters that larger boats couldn't reach. Handcrafted plank by plank, each boat reflects generations of skill. Their hulls burst with bold, striking colors, while decorative cloth and flowers often crown the bows—Buddhist blessings meant to safeguard both the boat and its crew.
+> 
+> Long before resorts, beach clubs, and nightlife transformed its shores, Ko Samui thrived on coconut farming, fishing, and trade routes linking neighboring islands. For over a thousand years, wooden boats have carried families between islands and fishermen at dawn. Today, they also ferry visitors to coral reefs, floating markets, and secret beaches, offering an intimate glimpse into Samui's waterways.
+> 
+> At dusk, the harbor slows. Ropes creak and nets are folded as boats return, one by one. Ko Samui's history isn't locked in museums—it floats gently on the water, ready to rise at first light to carry the island's life forward once more.
+
+</details>
+
+| ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |
+
 ### 20260301
 
 > Suffragette celebrations, August 27, 1920, New York City (© Keystone/Hulton Archive/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Water lilies at Grand Cenote, Tulum, Mexico](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Water lilies at Grand Cenote, Tulum, Mexico](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_1080x1920.jpg) |
-
-### 20260223
-
-> Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)
-
-<details>
-<summary>Description</summary>
-
-> The great egret is a striking large heron, easily recognizable by its pure white plumage, long neck, and sharp yellow bill. Known for its cosmopolitan distribution, it occupies habitats around the world and adapts well to many aquatic environments. Adults measure about 37 to 41 inches in body length, with a wingspan of 4.3 to 4.8 feet, and weigh about 2.2 pounds, giving them a tall, elegant silhouette—roughly chest‑high when compared to a 6‑foot-tall person. As carnivores, they feed primarily on fish but also take amphibians, insects, small mammals, and occasionally reptiles. Their patient hunting style, standing motionless before striking with sudden precision, is one of their most distinctive traits.
-> 
-> In today's image, this statuesque bird stands in the snow in Upper Bavaria, Germany, its white feathers blending into the winter landscape. Despite the freezing air, its presence is calm and peaceful, lending an almost contemplative feel to the scene. The egret appears poised and attentive, a quiet sentinel in the stillness of the frozen landscape.
-> 
-> 
-
-</details>
-
-| ![Great white egret, Upper Bavaria, Germany](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great white egret, Upper Bavaria, Germany](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_1080x1920.jpg) |80399078_1080x1920.jpg) |.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_1080x1920.jpg) |skisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
