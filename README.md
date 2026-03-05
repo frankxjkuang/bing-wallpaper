@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260303
+
+> African elephant calf playing with its mother, Masai Mara National Reserve, Kenya (© Denis-Huot/naturepl.com)
+
+<details>
+<summary>Description</summary>
+
+> Today is World Wildlife Day, a United Nations observance that invites us to reflect on our well-being's deep connection to the natural world. This year's theme focuses on medicinal and aromatic plants (MAPs)—species used in traditional healing, modern medicine, cosmetics, and food. The UN estimates that between 50,000 and 70,000 MAP species are harvested globally, with 70-95% of people in many developing countries relying on them for primary health care. However, many of these plants face mounting threats from habitat loss, overharvesting, and illegal trade, making sustainable use essential for their future.
+> 
+> The featured image captures an intimate moment between an African elephant calf and its mother in Kenya's Masai Mara National Reserve. African elephants are the largest land mammals on Earth. Yet, their life begins with surprising speed: newborns can stand within 20 minutes, walk within an hour, and keep up with the herd after only two days. As they grow, they become true ecosystem engineers, dispersing seeds and shaping vegetation in ways that help plant communities—including many medicinal species—thrive. Protecting elephants and their habitats strengthens the complex network that supports wildlife and people alike.
+> 
+> 
+
+</details>
+
+| ![World Wildlife Day](https://cn.bing.com/th?id=OHR.BabyElephant_EN-US3103670102_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Wildlife Day](https://cn.bing.com/th?id=OHR.BabyElephant_EN-US3103670102_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BabyElephant_EN-US3103670102_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BabyElephant_EN-US3103670102_1080x1920.jpg) |
+
 ### 20260302
 
 > Harbor and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Mendenhall Glacier, Alaska](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mendenhall Glacier, Alaska](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_1080x1920.jpg) |
-
-### 20260224
-
-> Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Floating lilies, glass-clear pools, and a hidden world below: welcome to the Grand Cenote in Tulum, Mexico. This natural sinkhole formed thousands of years ago when collapsing rock let aquifer waters in. Over time, the chamber filled with clear freshwater that now connects a vast underground system of caves. At first, our eyes rest on the still surface. The water lilies we see in the image float without hurry, their broad leaves catching sunlight while supporting rich ecosystems underneath. These botanical wonders belong to one of the oldest flowering lineages on Earth, dating back more than 125 million years—older than most dinosaurs. Each bloom has evolved clever tricks to attract pollinators—beetles, bees, flies, and even the wind—using scent, shape, and timing to ensure survival in still water.
-> 
-> As we look closer, the scene comes alive: below, fish weave through submerged roots and turtles glide through leafy shade. Overhead, dragonflies trace arcs while tiny insects spark ripples across the water. Drifting gently among the lilies, we find ourselves surrounded by nature's artistry—where every movement, reflection, and shadow reveals rhythms millions of years in the making.
-> 
-> 
-
-</details>
-
-| ![Water lilies at Grand Cenote, Tulum, Mexico](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Water lilies at Grand Cenote, Tulum, Mexico](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_1080x1920.jpg) |skisHorse_EN-US6767229079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_1080x1920.jpg) |79_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
