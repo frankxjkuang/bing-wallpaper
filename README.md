@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260304
+
+> Purple crocus flowers, Seven Rila Lakes, Bulgaria (© Maya Karkalicheva/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As winter's grip on the Rila Mountains of southwestern Bulgaria begins to loosen, crocuses push through the thinning snow, signaling the arrival of spring in the country's highest mountain range. These early bloomers use stored nutrients to quickly grow in cold conditions, completing much of their life cycle before taller plants emerge. Their clustered blossoms unfurl over alpine meadows in sweeping purple ribbons, creating a striking contrast with bright snowfields and crisp morning light.
+> 
+> These flowers thrive in Rila National Park, Bulgaria's largest protected area and one of its most significant ecological reserves. Established in 1992, the park safeguards over 120 permanent and around 30 seasonal glacial lakes, including the Seven Rila Lakes, seen in the background of today's image. Renowned for their clear waters and dramatic setting, these high-altitude lakes attract visitors throughout the warmer months. As the season changes, lingering snow and blooming crocuses create one of the region's most memorable seasonal displays, offering a vivid glimpse of the moment winter turns to spring.
+> 
+> 
+
+</details>
+
+| ![Purple crocus flowers, Seven Rila Lakes, Bulgaria](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Purple crocus flowers, Seven Rila Lakes, Bulgaria](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |
+
 ### 20260303
 
 > African elephant calf playing with its mother, Masai Mara National Reserve, Kenya (© Denis-Huot/naturepl.com)
@@ -112,26 +131,7 @@
 
 | ![Grand Canyon National Park anniversary](https://cn.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grand Canyon National Park anniversary](https://cn.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_1080x1920.jpg) |
-
-### 20260225
-
-> Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> Hidden just outside Juneau, Alaska, the Mendenhall Glacier feels almost unreal, inside and out. Step into one of its rare blue ice caves, and the world turns quiet and luminous, with light filtering through centuries-old compacted ice. The glacier stretches about 13 miles from the Juneau Icefield, slowly flowing toward the valley below and reshaping itself year by year.
-> 
-> Its striking blue color comes from the ice's density, which absorbs most wavelengths of light and leaves behind vivid shades of blue. These caves are fleeting by nature, forming as meltwater carves tunnels through the glacier and disappearing, or collapsing entirely, as conditions shift.
-> 
-> While reaching the caves has become increasingly rare and unpredictable, the glacier remains closely studied and deeply admired. Over the past century, it has retreated dramatically, offering scientists a visible record of environmental change. Inside these glowing chambers, beauty and fragility meet, creating a powerful reminder of how dynamic and temporary Alaska's frozen landscapes truly are.
-
-</details>
-
-| ![Mendenhall Glacier, Alaska](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mendenhall Glacier, Alaska](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_1080x1920.jpg) |79_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1080x1920.jpg) |&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_1080x1920.jpg) |80x1920.jpg) |&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
