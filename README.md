@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260306
+
+> The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Architecture blends art and technology, expressed through the built form. While many designs focus primarily on function, some buildings give equal weight to visual impact. A strong example is The Wave building complex in Vejle, Denmark, where sculptural design and practical housing come together seamlessly.
+> 
+> Designed by Henning Larsen Architects, it comprises five wave‑shaped residential towers rising along the edge of Vejle Fjord. Each building unfolds in an undulating sequence, creating a continuous rhythm. Their curved silhouettes echo the rolling hills surrounding the city and mirror the constant motion of the water beside them. Positioned directly on the waterfront, the complex is visible from both land and sea.
+> 
+> More than a housing project, The Wave has helped redefine Vejle's shoreline. Public walkways and a pier connect the complex to the city, encouraging both residents and visitors to spend time by the water. Today, The Wave stands as a modern landmark and a symbol of contemporary Danish architecture rooted in its natural setting.
+
+</details>
+
+| ![The Wave, Vejle, Denmark](https://cn.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Wave, Vejle, Denmark](https://cn.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_1080x1920.jpg) |
+
 ### 20260305
 
 > Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Olo'upena Falls, island of Moloka'i, Hawaii](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Olo'upena Falls, island of Moloka'i, Hawaii](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_1080x1920.jpg) |
-
-### 20260227
-
-> Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska (© Steven Kazlowski/naturepl.com)
-
-<details>
-<summary>Description</summary>
-
-> International Polar Bear Day underscores how closely these Arctic giants are tied to their frozen realms. Celebrated on February 27, the day shines a light on polar bears and the rapidly changing world beneath their paws. The world's largest land carnivores roam across vast icy landscapes, sometimes covering hundreds of miles in search of food. They're perfectly adapted to life on sea ice, with large paws that can span nearly a foot and help them swim for miles.
-> 
-> This time of year is especially important because it's when mothers and their newborn cubs stay tucked inside snow dens. These chambers, often dug into deep drifts, provide warmth and safety during the harsh Arctic winter. Cubs are tiny at birth—about one pound—and rely completely on their mother for survival until they're strong enough to venture out in spring.
-> 
-> International Polar Bear Day reminds us that shrinking sea ice threatens this cycle. By reducing carbon emissions and supporting conservation efforts, we can help protect the vast Arctic habitats polar bears depend on. Every action counts toward their future.
-
-</details>
-
-| ![International Polar Bear Day](https://cn.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Polar Bear Day](https://cn.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_1080x1920.jpg) |39738451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1080x1920.jpg) |dscape 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg) || call Terry.
 > 
