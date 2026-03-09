@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260307
+
+> Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Imagine reaching the Brocken in Harz National Park, Germany, as clouds slide across the ridge. With the sun behind you, mist ahead—then a giant, haloed shadow forms. Ever wondered why climbers once feared this sight? The phenomenon, called the Brocken spectre, is an eerie natural optical effect that occurs when sunlight projects a person's shadow onto cloud or fog. Rising about 1,141 metres, the Brocken is the highest peak in northern Germany and has long inspired folklore, including tales of witches gathering here during Walpurgis Night.
+> 
+> The mountain later played a very real strategic role. During Germany's division, the summit became a restricted Cold War surveillance site used by East German and Soviet intelligence. After reunification, it reopened and became part of Harz National Park, established jointly in 2006 and covering roughly 247 square kilometres. The park protects spruce forests, upland peat bogs and fast-flowing streams, while conservation programmes have reintroduced species such as the Eurasian lynx. Steam-powered trains still climb the slopes, linking past legend with present-day protection.
+> 
+> 
+
+</details>
+
+| ![The Brocken, Harz National Park, Germany](https://cn.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Brocken, Harz National Park, Germany](https://cn.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_1080x1920.jpg) |
+
 ### 20260306
 
 > The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |
-
-### 20260228
-
-> Olo'upena Falls, island of Moloka'i, Hawaii (© Andrew Aylett/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Moloka'i, often called the most Hawaiian of the islands, offers a slower rhythm shaped by nature and strong community ties. Formed by volcanic activity more than a million years ago, the island covers about 260 square miles and rises from the Pacific Ocean in long ridges and broad valleys. Unlike its busier neighbors, Moloka'i has resisted large-scale development, preserving a strong sense of local cohesion where families, traditions, and stewardship of the land encapsulate central values. Life here focuses on the ocean, the land, and stories passed down through generations.
-> 
-> Seen in today's image, Olo'upena Falls towers above the island's north shore. Dropping 2,953 feet down steep sea cliffs, the falls are fed by seasonal rains and often fan into delicate silver streams. The surrounding sea cliffs, among the highest on Earth, are accessible only by helicopter or boat, adding to their mystique.
-> 
-> Today, Moloka'i's quiet roads, uncrowded beaches, and close-knit community offer a rare chance to experience Hawaii as it once was—peaceful, welcoming, and deeply connected to the land.
-
-</details>
-
-| ![Olo'upena Falls, island of Moloka'i, Hawaii](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Olo'upena Falls, island of Moloka'i, Hawaii](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_1080x1920.jpg) |39738451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1080x1920.jpg) |dscape 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg) || call Terry.
 > 
