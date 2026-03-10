@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260308
+
+> Astronomical clock at Town Hall of the City of Ulm, Germany (© Tomekbudujedomek/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Every March, Daylight Saving Time begins in most of the United States, shifting clocks forward to maximize daylight. The idea can be traced back to 1784, when Benjamin Franklin humorously suggested earlier rising to conserve candle use. The US adopted Daylight Saving Time much later in 1918 as an energy-saving measure during World War I. After years of uneven observance, the Uniform Time Act of 1966 established a nationwide standard for seasonal clock changes. While most states observe Daylight Saving Time today, Hawaii and Arizona (with the exception of the Navajo Nation) do not, citing minimal daylight variation and climate concerns. Several US territories also remain on standard time year-round.
+> 
+> Today's image shows the astronomical clock on Ulm's Town Hall in Germany. Installed in the 16th century, it tracks solar and lunar cycles rather than legal time, reminding us that daylight itself is governed by astronomy—not by clocks adjusted for modern schedules.
+> 
+> 
+
+</details>
+
+| ![Daylight Saving Time](https://cn.bing.com/th?id=OHR.UlmClock_EN-US6692804943_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Daylight Saving Time](https://cn.bing.com/th?id=OHR.UlmClock_EN-US6692804943_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.UlmClock_EN-US6692804943_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UlmClock_EN-US6692804943_1080x1920.jpg) |
+
 ### 20260307
 
 > Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |
-
-### 20260301
-
-> Suffragette celebrations, August 27, 1920, New York City (© Keystone/Hulton Archive/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> March welcomes the promise of spring and the celebration of Women's History Month, honoring trailblazers who changed history and continue to inspire future generations. It also amplifies emerging voices that lead us toward equality, showing that progress remains possible. Let's celebrate women—bold thinkers, innovators, and leaders—who prove that meaningful change begins with determination.
-> 
-> Today's image captures an unforgettable milestone: New York City on August 27, 1920, the day after the 19th Amendment took effect, securing women's right to vote nationwide. The city became a sea of excitement as thousands filled streets stretching far into the distance, banners waving above crowds packed several layers deep. At the center stood Carrie Chapman Catt, a driving force behind the suffrage movement, welcomed in triumph. From neighborhoods across the city's more than 300 square miles, supporters marched and sang, aware that this victory would echo for generations. That day was more than a celebration—it was a promise that women's voices would never again be silenced.
-> 
-> Women's History Month keeps that promise alive, reminding us that equality is a journey we continue together.
-
-</details>
-
-| ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Women's History Month](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
