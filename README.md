@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260312
+
+> Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)
+
+<details>
+<summary>Description</summary>
+
+> High in Ecuador's cloud forests, a young sunbittern spreads its wings in an early display, casting flashes of orange, black, and white through the filtered green light. The sudden contrast cuts through the moss‑covered branches and leaf‑shadowed understory, offering a snapshot of the species' dramatic wing patterns. Adult sunbitterns most often show these bold markings during defensive displays, briefly transforming an elusive bird into a striking spectacle.
+> 
+> Sunbitterns range widely beyond Ecuador, inhabiting tropical forests from Central America to northern South America, including Colombia, Peru, Brazil, and Bolivia. They are typically found along shaded streams, where they hunt insects and small aquatic prey with slow, deliberate steps. Dense vegetation and subdued light help them remain concealed, making each flap of their wings a show. In these quiet forest corridors, the sunbittern blends into the landscape until moments of passion reveal its unmistakable colors.
+> 
+> 
+
+</details>
+
+| ![Juvenile sunbittern displaying at nest, Ecuador](https://cn.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Juvenile sunbittern displaying at nest, Ecuador](https://cn.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_1080x1920.jpg) |
+
 ### 20260311
 
 > Peach trees in bloom, Cieza, Murcia, Spain (© Juan Maria Coy Vergara/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![The Wave, Vejle, Denmark](https://cn.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Wave, Vejle, Denmark](https://cn.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_1080x1920.jpg) |
-
-### 20260305
-
-> Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As evening settles over the town of Göreme in the heart of the Cappadocia region of Türkiye, dusk reveals a landscape forged by nature and centuries of human presence. This scene is part of Göreme National Park and the Rock Sites of Cappadocia, a UNESCO World Heritage Site inscribed in 1985 for its exceptional combination of early cultural history and geological formations. These formations, often called 'fairy chimneys' or hoodoos, began as layers of volcanic ash that hardened into soft stone following eruptions of ancient Anatolian volcanoes. Over time, wind and water carved the pillars, ridges, and valleys that define the region today.
-> 
-> People have lived among these landforms for millennia. From Late Antiquity onward, residents carved homes, chapels, and monasteries directly into the rock, taking advantage of the stone's workable texture and natural insulating qualities. Many of these structures still contain 10th‑ and 11th‑century Byzantine frescoes, reflecting the region's long-standing tradition of religious life. The illuminated town in today's image highlights how past and present coexist. Today, Göreme remains a gateway to Cappadocia's trails, viewpoints, and rock‑cut heritage—an experience sculpted by geological forces and human resilience.
-> 
-> 
-
-</details>
-
-| ![Evening over Göreme, Cappadocia, Türkiye](https://cn.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Evening over Göreme, Cappadocia, Türkiye](https://cn.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_1080x1920.jpg) |920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_1080x1920.jpg) |=4) |
 |:---------:|:---------:|
