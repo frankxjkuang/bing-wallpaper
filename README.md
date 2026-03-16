@@ -1,5 +1,43 @@
 ## bing wallpaper
 
+### 20260315
+
+> Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Spring break on Vancouver Island looks a little different. In Canada, the Pacific Rim Whale Festival celebrates the annual spring migration of thousands of gray whales as they pass close to the island's west coast. Created by local communities in the 1980s, the festival marks the whales' return north from breeding lagoons in Baja California, Mexico.
+> 
+> Over time, the festival has grown into a multi-day event centered on ocean education and respectful wildlife viewing. March and early April are peak months, as gray whales move north and pause to rest and feed along the coast. Curious how far they go? A full round-trip migration typically spans about 10,000 to 14,000 miles.
+> 
+> Pacific Rim National Park Reserve plays a key role in this story. Its wave-battered shoreline and nearshore waters sit directly along the migration route. Gray whales dominate the season, while humpback whales are increasingly spotted as their populations recover. From Long Beach lookouts to quiet headlands, patience—and a little luck—can reward visitors with unforgettable moments.
+
+</details>
+
+| ![Pacific Rim Whale Festival](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pacific Rim Whale Festival](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_1080x1920.jpg) |
+
+### 20260314
+
+> Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Long before pi had a name, people were drawn to its mystery. Every year on March 14, Pi Day highlights one of math's most recognizable constants. The date reflects the first three digits of pi (π), the ratio of a circle's circumference to its diameter: 3.14. Pi's infinite, nonrepeating decimal has fascinated thinkers for a long time. The modern celebration began in 1988, when physicist Larry Shaw marked the day with a fitting tribute: serving pie.
+> 
+> Today's image takes us to Cornwall in southwestern England, where Lanyon Quoit—in the shape of π—rises from open moorland. Built between 3,500 and 2,500 BCE, this Neolithic dolmen once stood as part of a larger structure. Raising its massive capstone required knowledge of balance and proportion. These early concepts helped builders work with shape and scale long before written mathematics existed.
+> 
+> On Pi Day, sites like this remind us that mathematical thinking evolved from practical challenges. Even before symbols appeared on chalkboards, ideas about measurement were already shaping the world in stone.
+
+</details>
+
+| ![Celebrating Pi Day](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Pi Day](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_1080x1920.jpg) |
+
 ### 20260313
 
 > Vaults of the Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France (© Helmut Meyer zur Capellen/Alamy)
@@ -93,45 +131,7 @@
 
 | ![Gray seal sleeping on the beach, Orkney Islands, Scotland](https://cn.bing.com/th?id=OHR.NappingSeal_EN-US6764325041_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gray seal sleeping on the beach, Orkney Islands, Scotland](https://cn.bing.com/th?id=OHR.NappingSeal_EN-US6764325041_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NappingSeal_EN-US6764325041_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NappingSeal_EN-US6764325041_1080x1920.jpg) |
-
-### 20260308
-
-> Astronomical clock at Town Hall of the City of Ulm, Germany (© Tomekbudujedomek/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Every March, Daylight Saving Time begins in most of the United States, shifting clocks forward to maximize daylight. The idea can be traced back to 1784, when Benjamin Franklin humorously suggested earlier rising to conserve candle use. The US adopted Daylight Saving Time much later in 1918 as an energy-saving measure during World War I. After years of uneven observance, the Uniform Time Act of 1966 established a nationwide standard for seasonal clock changes. While most states observe Daylight Saving Time today, Hawaii and Arizona (with the exception of the Navajo Nation) do not, citing minimal daylight variation and climate concerns. Several US territories also remain on standard time year-round.
-> 
-> Today's image shows the astronomical clock on Ulm's Town Hall in Germany. Installed in the 16th century, it tracks solar and lunar cycles rather than legal time, reminding us that daylight itself is governed by astronomy—not by clocks adjusted for modern schedules.
-> 
-> 
-
-</details>
-
-| ![Daylight Saving Time](https://cn.bing.com/th?id=OHR.UlmClock_EN-US6692804943_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Daylight Saving Time](https://cn.bing.com/th?id=OHR.UlmClock_EN-US6692804943_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.UlmClock_EN-US6692804943_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.UlmClock_EN-US6692804943_1080x1920.jpg) |
-
-### 20260307
-
-> Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Imagine reaching the Brocken in Harz National Park, Germany, as clouds slide across the ridge. With the sun behind you, mist ahead—then a giant, haloed shadow forms. Ever wondered why climbers once feared this sight? The phenomenon, called the Brocken spectre, is an eerie natural optical effect that occurs when sunlight projects a person's shadow onto cloud or fog. Rising about 1,141 metres, the Brocken is the highest peak in northern Germany and has long inspired folklore, including tales of witches gathering here during Walpurgis Night.
-> 
-> The mountain later played a very real strategic role. During Germany's division, the summit became a restricted Cold War surveillance site used by East German and Soviet intelligence. After reunification, it reopened and became part of Harz National Park, established jointly in 2006 and covering roughly 247 square kilometres. The park protects spruce forests, upland peat bogs and fast-flowing streams, while conservation programmes have reintroduced species such as the Eurasian lynx. Steam-powered trains still climb the slopes, linking past legend with present-day protection.
-> 
-> 
-
-</details>
-
-| ![The Brocken, Harz National Park, Germany](https://cn.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The Brocken, Harz National Park, Germany](https://cn.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_1080x1920.jpg) |.jpg) |920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NappingSeal_EN-US6764325041_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NappingSeal_EN-US6764325041_1080x1920.jpg) | |.jpg) |920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_1080x1920.jpg) |=4) |
 |:---------:|:---------:|
