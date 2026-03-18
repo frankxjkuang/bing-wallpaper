@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260316
+
+> Giant panda eating bamboo, China (© Entwicklungsknecht/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> With their black-and-white coats and gentle demeanor, pandas have become global symbols of conservation. Observed on March 16, National Panda Day highlights this iconic species and the conservation challenges it still faces. Giant pandas are native to China and have faced a high risk of extinction due to habitat loss and low birth rates. Thanks to global conservation efforts, their population is slowly recovering, but more work is needed.
+> 
+> Although pandas are solitary by nature, they communicate through vocalizations and scent marking, especially during mating season. The World Wildlife Fund (WWF) has been at the forefront of panda and habitat protection, supporting efforts to restore bamboo forests and create safe corridors for pandas to roam. Their day is a small calendar note with a big message: when forests are stitched back together, species get a second chance. Celebration matters, but the work that follows matters more—because real achievement is a healthy forest where pandas can simply be pandas.
+> 
+> 
+
+</details>
+
+| ![National Panda Day](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Panda Day](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_1080x1920.jpg) |
+
 ### 20260315
 
 > Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Bláhver, Hveravellir, Iceland](https://cn.bing.com/th?id=OHR.SpringIceland_EN-US6846318257_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bláhver, Hveravellir, Iceland](https://cn.bing.com/th?id=OHR.SpringIceland_EN-US6846318257_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringIceland_EN-US6846318257_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringIceland_EN-US6846318257_1080x1920.jpg) |
-
-### 20260309
-
-> Gray seal sleeping on the beach, Orkney Islands, Scotland (© Andrew Mason/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> National Napping Day couldn't be better timed. It falls on the Monday after Daylight Saving Time begins, when clocks move forward and we all lose an hour of sleep. Consider today an official excuse to slow down and make up for it. The sleeping gray seal in this image, spotted along Scotland's coast, is a fitting reminder for the day: rest matters.
-> 
-> Gray seals are surprisingly strategic sleepers. Rather than settling in for one long stretch, they nap in shorter periods that fit their environment. In the water, seals sleep lightly and briefly so they can surface to breathe. On land, especially on quiet beaches and rocky islands, they rest more deeply and for longer spans. This flexible sleep pattern helps them conserve energy while staying safe from threats.
-> 
-> On National Napping Day, take a cue from the seals: slow down, embrace rest, and let science and nature prove that naps really are worth it.
-
-</details>
-
-| ![Gray seal sleeping on the beach, Orkney Islands, Scotland](https://cn.bing.com/th?id=OHR.NappingSeal_EN-US6764325041_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gray seal sleeping on the beach, Orkney Islands, Scotland](https://cn.bing.com/th?id=OHR.NappingSeal_EN-US6764325041_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NappingSeal_EN-US6764325041_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NappingSeal_EN-US6764325041_1080x1920.jpg) | |.jpg) |920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringIceland_EN-US6846318257_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringIceland_EN-US6846318257_1080x1920.jpg) |g&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_1080x1920.jpg) |=4) |
 |:---------:|:---------:|
