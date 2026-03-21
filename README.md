@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260319
+
+> Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)
+
+<details>
+<summary>Description</summary>
+
+> An egg-laying mammal. No teeth. Reptilian gait. Built-in body armor. If the short-beaked echidna sounds like a checklist of contradictions, that's because it is—and it owns it. Native to Australia, Tasmania, and parts of New Guinea, it's one of the few surviving monotremes, or mammals that lay eggs. Despite the headlines, it still qualifies as a mammal: it has fur, produces milk, and is warm-blooded. The twist? Milk is released through specialized skin patches rather than nipples, leaving the young to lap it up.
+> 
+> Ants and termites make up most of its diet. A long snout with electroreceptors helps detect prey underground before strong claws break in, and a sticky tongue finishes the job. Defense is equally direct. Spines—modified hairs—deter predators, while digging straight down or curling into a ball seals the deal. Echidnas are mostly solitary but briefly social during breeding season in slow-moving 'echidna trains.' Long-lived and unhurried, they prove that evolution doesn't need upgrades when the design already works.
+> 
+> 
+
+</details>
+
+| ![Short-beaked echidna, Adelaide Hills, Australia](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Short-beaked echidna, Adelaide Hills, Australia](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_1080x1920.jpg) |
+
 ### 20260318
 
 > Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon (© Eric Vogt/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France](https://cn.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France](https://cn.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_1080x1920.jpg) |
-
-### 20260312
-
-> Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)
-
-<details>
-<summary>Description</summary>
-
-> High in Ecuador's cloud forests, a young sunbittern spreads its wings in an early display, casting flashes of orange, black, and white through the filtered green light. The sudden contrast cuts through the moss‑covered branches and leaf‑shadowed understory, offering a snapshot of the species' dramatic wing patterns. Adult sunbitterns most often show these bold markings during defensive displays, briefly transforming an elusive bird into a striking spectacle.
-> 
-> Sunbitterns range widely beyond Ecuador, inhabiting tropical forests from Central America to northern South America, including Colombia, Peru, Brazil, and Bolivia. They are typically found along shaded streams, where they hunt insects and small aquatic prey with slow, deliberate steps. Dense vegetation and subdued light help them remain concealed, making each flap of their wings a show. In these quiet forest corridors, the sunbittern blends into the landscape until moments of passion reveal its unmistakable colors.
-> 
-> 
-
-</details>
-
-| ![Juvenile sunbittern displaying at nest, Ecuador](https://cn.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Juvenile sunbittern displaying at nest, Ecuador](https://cn.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_1080x1920.jpg) |ad portrait 4K](https://cn.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_1080x1920.jpg) |=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_1080x1920.jpg) |t_EN-US3224835148_1080x1920.jpg) |=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
