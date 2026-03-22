@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260320
+
+> Snowdrops in spring (© klagyivik/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> A white snowdrop is spring's quiet debut. No confetti, no countdown—just a delicate flower appearing as the spring equinox balances day and night. Snowdrops are among the first to bloom, often pushing through cold soil before winter fully packs up. Their drooping, bell-shaped flowers may look delicate, but they're built for early arrival. Special antifreeze proteins in their cells help them tolerate frost, making them well suited to unpredictable late-winter weather.
+> 
+> The spring equinox marks a point of balance, when the sun crosses the equator and daylight begins to stretch longer in the Northern Hemisphere. Snowdrops fit this moment well. They represent transition—neither fully winter nor fully spring, but something in between. They also provide early nectar for insects emerging from dormancy and are a welcome sight for gardeners eager for signs of life.
+> 
+> Together, snowdrops and the spring equinox signal change without spectacle. Just a gentle nudge from nature: the light is winning, slowly but surely.
+
+</details>
+
+| ![Spring equinox](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spring equinox](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |
+
 ### 20260319
 
 > Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)
@@ -112,26 +131,7 @@
 
 | ![Celebrating Pi Day](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Pi Day](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_1080x1920.jpg) |
-
-### 20260313
-
-> Vaults of the Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France (© Helmut Meyer zur Capellen/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Under the vaulted ceiling of Notre-Dame de Bon-Port in Les Sables-d'Olonne, a seaside town in western France, the stone ribs still guide the gaze upward. Construction of the soaring vaults began in 1646. The church—officially recognized as a French historic monument since 1993—stands on the site of a 13th-century chapel, a reminder of deep-rooted spiritual life on the Atlantic coast.
-> 
-> As Les Sables-d'Olonne grew into a fishing port, the church became a waypoint for sailors preparing for ocean crossings. Its blend of Gothic arches and Renaissance details reflects a time when architecture, faith, and maritime life were closely intertwined. Ongoing restoration efforts help preserve the vaults amid the damp, salt-laden coastal air. Visitors often notice how sound softens and light shifts across the stone, creating a quiet interior that continues to connect craftsmanship, belief, and centuries of seafaring history.
-> 
-> 
-
-</details>
-
-| ![Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France](https://cn.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France](https://cn.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_1080x1920.jpg) |t_EN-US3224835148_1080x1920.jpg) |=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_1080x1920.jpg) |?id=OHR.VendeeVaults_EN-US7120114878_1080x1920.jpg) |t_EN-US3224835148_1080x1920.jpg) |=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
