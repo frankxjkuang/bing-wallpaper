@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260321
+
+> Letea Forest, Danube Delta, Romania (© Wild Wonders of Europe/Widstrand/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> If Earth had a maintenance crew, forests would be spearheading it. They absorb carbon emissions, reduce soil erosion, safeguard biodiversity, influence rainfall, and help maintain clean water supplies. They still cover about 31% of the world's land area, yet their continued decline shows how vulnerable these natural systems have become. Vast stretches continue to be cleared for agriculture, infrastructure, and resource extraction, weakening ecosystems at an alarming rate.
+> 
+> The International Day of Forests, observed every March 21, was established by the United Nations in 2012 to raise awareness and inspire meaningful action. Governments, organizations, and communities mark the day by planting trees, sharing research, and promoting sustainable forestry. Why does it matter? Because forest health directly supports climate stability, biodiversity protection, and global food security.
+> 
+> Romania's Letea Forest, featured in today's image, highlights conservation in action. Part of the Danube Delta Biosphere Reserve, it grows on marine sand formations shaped by shifting waters and winds. Safeguarding forests like Letea helps ensure future generations inherit ecosystems that still endure.
+
+</details>
+
+| ![International Day of Forests](https://cn.bing.com/th?id=OHR.LeteaForest_EN-US5404369914_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Forests](https://cn.bing.com/th?id=OHR.LeteaForest_EN-US5404369914_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LeteaForest_EN-US5404369914_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LeteaForest_EN-US5404369914_1080x1920.jpg) |
+
 ### 20260320
 
 > Snowdrops in spring (© klagyivik/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Pacific Rim Whale Festival](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pacific Rim Whale Festival](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_1080x1920.jpg) |
-
-### 20260314
-
-> Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Long before pi had a name, people were drawn to its mystery. Every year on March 14, Pi Day highlights one of math's most recognizable constants. The date reflects the first three digits of pi (π), the ratio of a circle's circumference to its diameter: 3.14. Pi's infinite, nonrepeating decimal has fascinated thinkers for a long time. The modern celebration began in 1988, when physicist Larry Shaw marked the day with a fitting tribute: serving pie.
-> 
-> Today's image takes us to Cornwall in southwestern England, where Lanyon Quoit—in the shape of π—rises from open moorland. Built between 3,500 and 2,500 BCE, this Neolithic dolmen once stood as part of a larger structure. Raising its massive capstone required knowledge of balance and proportion. These early concepts helped builders work with shape and scale long before written mathematics existed.
-> 
-> On Pi Day, sites like this remind us that mathematical thinking evolved from practical challenges. Even before symbols appeared on chalkboards, ideas about measurement were already shaping the world in stone.
-
-</details>
-
-| ![Celebrating Pi Day](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Celebrating Pi Day](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_1080x1920.jpg) |?id=OHR.VendeeVaults_EN-US7120114878_1080x1920.jpg) |t_EN-US3224835148_1080x1920.jpg) |=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_1080x1920.jpg) |.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
