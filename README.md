@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260322
+
+> Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Today is World Water Day, declared by the UN in 1992 and first observed the following year. Humanity could no longer drift along—we had to safeguard the very currents that keep us alive. Few places capture that urgency like Lake Tanganyika, in the Great Rift Valley of eastern Africa. From space, it's a roughly 420‑mile ribbon linking Tanzania, Burundi, the Democratic Republic of the Congo, and Zambia. At the shoreline, it's a 10-million-year-old rift basin, formed as the Earth's crust slowly pulled apart.
+> 
+> Tanganyika plunges over 4,800 feet, storing roughly 16% of Earth's unfrozen surface freshwater. It sustains millions, supplying drinking water, nourishment, and transport routes. Species like brightly colored cichlids, found nowhere else, turn the lake's depths into a living laboratory of evolution.
+> 
+> From above, this ancient reservoir looks unshakable. Up close, it's vulnerable to warming waters, pollution, and overfishing. Today's image is a splash of reality: water doesn't just sustain life—it steers it. And every drop is worth fighting for.
+
+</details>
+
+| ![World Water Day](https://cn.bing.com/th?id=OHR.TanganyikaWater_EN-US5685685365_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Water Day](https://cn.bing.com/th?id=OHR.TanganyikaWater_EN-US5685685365_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TanganyikaWater_EN-US5685685365_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TanganyikaWater_EN-US5685685365_1080x1920.jpg) |
+
 ### 20260321
 
 > Letea Forest, Danube Delta, Romania (© Wild Wonders of Europe/Widstrand/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![National Panda Day](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Panda Day](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_1080x1920.jpg) |
-
-### 20260315
-
-> Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Spring break on Vancouver Island looks a little different. In Canada, the Pacific Rim Whale Festival celebrates the annual spring migration of thousands of gray whales as they pass close to the island's west coast. Created by local communities in the 1980s, the festival marks the whales' return north from breeding lagoons in Baja California, Mexico.
-> 
-> Over time, the festival has grown into a multi-day event centered on ocean education and respectful wildlife viewing. March and early April are peak months, as gray whales move north and pause to rest and feed along the coast. Curious how far they go? A full round-trip migration typically spans about 10,000 to 14,000 miles.
-> 
-> Pacific Rim National Park Reserve plays a key role in this story. Its wave-battered shoreline and nearshore waters sit directly along the migration route. Gray whales dominate the season, while humpback whales are increasingly spotted as their populations recover. From Long Beach lookouts to quiet headlands, patience—and a little luck—can reward visitors with unforgettable moments.
-
-</details>
-
-| ![Pacific Rim Whale Festival](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pacific Rim Whale Festival](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_1080x1920.jpg) |.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_1080x1920.jpg) |imNP_EN-US7242831009_1080x1920.jpg) |.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
