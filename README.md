@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260323
+
+> Lightning storm over saguaro cacti, Sonoran Desert, Arizona (© Jack Dykinga/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> The strength of nature is nowhere more evident than in powerful storms. Scary? Yes. Fascinating? Even more so. Learning to understand and respect these forces helps humanity live more safely.
+> 
+> This idea sits at the heart of World Meteorological Day, observed every year on March 23. The day marks the founding of the World Meteorological Organization in 1950 and highlights how weather, climate, and water services protect lives and support daily decisions—from storm warnings to long-term climate planning. This year's theme is 'Observing Today, Protecting Tomorrow.'
+> 
+> The image of lightning over saguaro cacti captures this message perfectly. The Sonoran Desert may look dry and still, but it has one of the most dynamic climates in North America. It is defined by two rainy seasons: gentle winter rains and intense summer monsoon storms that bring lightning, heavy downpours, and sudden temperature drops. These patterns shape the desert's rich biodiversity and show why accurate weather observation is essential in extreme environments.
+
+</details>
+
+| ![World Meteorological Day](https://cn.bing.com/th?id=OHR.SonoranStorm_EN-US5792303901_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Meteorological Day](https://cn.bing.com/th?id=OHR.SonoranStorm_EN-US5792303901_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SonoranStorm_EN-US5792303901_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SonoranStorm_EN-US5792303901_1080x1920.jpg) |
+
 ### 20260322
 
 > Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Happy St. Patrick's Day!](https://cn.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy St. Patrick's Day!](https://cn.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_1080x1920.jpg) |
-
-### 20260316
-
-> Giant panda eating bamboo, China (© Entwicklungsknecht/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> With their black-and-white coats and gentle demeanor, pandas have become global symbols of conservation. Observed on March 16, National Panda Day highlights this iconic species and the conservation challenges it still faces. Giant pandas are native to China and have faced a high risk of extinction due to habitat loss and low birth rates. Thanks to global conservation efforts, their population is slowly recovering, but more work is needed.
-> 
-> Although pandas are solitary by nature, they communicate through vocalizations and scent marking, especially during mating season. The World Wildlife Fund (WWF) has been at the forefront of panda and habitat protection, supporting efforts to restore bamboo forests and create safe corridors for pandas to roam. Their day is a small calendar note with a big message: when forests are stitched back together, species get a second chance. Celebration matters, but the work that follows matters more—because real achievement is a healthy forest where pandas can simply be pandas.
-> 
-> 
-
-</details>
-
-| ![National Panda Day](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Panda Day](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_1080x1920.jpg) |imNP_EN-US7242831009_1080x1920.jpg) |.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_1080x1920.jpg) |ses_EN-US3179110237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
