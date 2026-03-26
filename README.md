@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260324
+
+> Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> From above, East Lake Cherry Blossom Park in Wuhan, China, looks like a soft lilac cloud settled gently over the land. Thousands of cherry trees bloom at once, their pale petals forming a living canopy around a golden five-story pagoda at the park's heart. The pagoda rises in calm symmetry, its tiered rooflines glowing against the delicate pastels of spring.
+> 
+> This garden is part of the larger East Lake Scenic Area, China's largest urban lake park, and has become one of the country's most celebrated places to see cherry blossoms. Many of the trees trace their roots to periods of contact between China and Japan during the 20th century, reflecting a history shaped by cultural exchange and more difficult chapters.
+> 
+> The park contains more than 10,000 cherry trees representing over 30 varieties, including Somei Yoshino and weeping cherries, planted in a landscape inspired by Japanese garden design. For a brief time each spring, nature and design meet here in perfect balance.
+
+</details>
+
+| ![Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_EN-US5963967452_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_EN-US5963967452_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_EN-US5963967452_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_EN-US5963967452_1080x1920.jpg) |
+
 ### 20260323
 
 > Lightning storm over saguaro cacti, Sonoran Desert, Arizona (© Jack Dykinga/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |
-
-### 20260317
-
-> Grianan of Aileach ring fort, Donegal, Ireland (© aluxum/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> St. Patrick, the patron saint of Ireland, was born in Roman Britain around the late 4th or early 5th century. According to legend, at 16, he was kidnapped by Irish raiders and brought to Ireland as a slave. After escaping, he returned home and later became a missionary, spreading Christianity across the island. He is famously associated, according to later tradition, with using the shamrock to explain the Holy Trinity. His legacy of faith has made St. Patrick's Day a global celebration.
-> 
-> Today, we find ourselves in County Donegal in the northwest of Ireland. While not St. Patrick's birthplace, the area is rich in Ireland's spiritual history. Grianan of Aileach, an ancient Iron Age ring fort that was once home to the kings of Ulster, stands here. Its walls remind us of Ireland's ancient Celtic traditions that predate the Christian faith later spread by St. Patrick. Now, St. Patrick's Day is a shamrock-filled celebration of Irish culture, faith, and the timeless spirit of a nation that continues to inspire worldwide.
-> 
-> 
-
-</details>
-
-| ![Happy St. Patrick's Day!](https://cn.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy St. Patrick's Day!](https://cn.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_1080x1920.jpg) |ses_EN-US3179110237_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
