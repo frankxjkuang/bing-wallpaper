@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260325
+
+> Juvenile manatees in a freshwater spring, Crystal River, Florida (© Gregory Sweeney/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Manatees may seem slow and sleepy, but they have some surprising tricks under the surface. For starters, they are one of the few mammals that constantly replace their teeth. As old molars wear down from chewing gritty seagrass, new ones slowly roll forward like a conveyor belt—handy for an animal that eats for up to eight hours a day.
+> 
+> These gentle giants are also close relatives of elephants, which explains their wrinkled skin and flexible upper lips used to grab plants. Despite their size, they have very little body fat, making them sensitive to cold water and dependent on warm springs during winter.
+> 
+> Manatee Appreciation Day on March 25 celebrates these unusual mammals and raises awareness about threats like boat strikes and habitat loss. It's a reminder that even animals that may look like floating potatoes with flippers can be fascinating—and still need our protection.
+
+</details>
+
+| ![Juvenile manatees in a freshwater spring, Crystal River, Florida](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Juvenile manatees in a freshwater spring, Crystal River, Florida](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_1080x1920.jpg) |
+
 ### 20260324
 
 > Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Short-beaked echidna, Adelaide Hills, Australia](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Short-beaked echidna, Adelaide Hills, Australia](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_1080x1920.jpg) |
-
-### 20260318
-
-> Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon (© Eric Vogt/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Tom McCall Waterfront Park, a 36-acre urban oasis along the Willamette River in Portland, Oregon, is one of the city's most beloved green spaces. Each spring—typically from mid-March to early April—it transforms into a sea of soft pink and white as cherry blossoms bloom. These vibrant trees along scenic walking paths offer a peaceful escape in the heart of the city. The park also features notable landmarks like Salmon Street Springs, an interactive fountain with numerous water jets, and the Portland Saturday Market, a favorite local destination.
-> 
-> From the park's paths, visitors can enjoy panoramic views of the river, Portland's bridges, and, on clear days, Mount Hood rising in the distance. Tom McCall Waterfront Park combines natural beauty with urban charm. Whether you're relaxing under the cherry blossoms or exploring its open spaces, it is a symbol of Portland's deep connection to nature and community, offering visitors a refreshing break from the bustle of city life.
-> 
-> 
-
-</details>
-
-| ![Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
