@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260326
+
+> Logan Creek Suspension Bridge, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> Running along the remote southwest coast of Vancouver Island in Canada, the West Coast Trail is one of the country's most legendary hikes. Located in British Columbia's Pacific Rim National Park Reserve, the trail stretches about 47 miles through rainforest, beaches, and rocky shoreline. It was established in 1907 as a lifesaving route for shipwreck survivors along what sailors once called the 'Graveyard of the Pacific.'
+> 
+> A modern feature is the Logan Creek Suspension Bridge—seen in today's image—an impressive structure that makes the journey safer without dulling the thrill. The bridge spans roughly 371 feet and hangs about 130 feet above the creek below, replacing a steep ladder descent that challenged even strong hikers. Crossing it offers wide views of dense forest and rushing water far beneath your boots.
+> 
+> The route passes through the traditional lands of the Huu-ay-aht, Ditidaht, and Pacheedaht First Nations, adding cultural depth to the experience. For adventurous travelers, the West Coast Trail delivers a true taste of wild coastal Canada.
+
+</details>
+
+| ![Logan Creek Suspension Bridge, West Coast Trail, Canada](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Logan Creek Suspension Bridge, West Coast Trail, Canada](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_1080x1920.jpg) |
+
 ### 20260325
 
 > Juvenile manatees in a freshwater spring, Crystal River, Florida (© Gregory Sweeney/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Spring equinox](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spring equinox](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |
-
-### 20260319
-
-> Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)
-
-<details>
-<summary>Description</summary>
-
-> An egg-laying mammal. No teeth. Reptilian gait. Built-in body armor. If the short-beaked echidna sounds like a checklist of contradictions, that's because it is—and it owns it. Native to Australia, Tasmania, and parts of New Guinea, it's one of the few surviving monotremes, or mammals that lay eggs. Despite the headlines, it still qualifies as a mammal: it has fur, produces milk, and is warm-blooded. The twist? Milk is released through specialized skin patches rather than nipples, leaving the young to lap it up.
-> 
-> Ants and termites make up most of its diet. A long snout with electroreceptors helps detect prey underground before strong claws break in, and a sticky tongue finishes the job. Defense is equally direct. Spines—modified hairs—deter predators, while digging straight down or curling into a ball seals the deal. Echidnas are mostly solitary but briefly social during breeding season in slow-moving 'echidna trains.' Long-lived and unhurried, they prove that evolution doesn't need upgrades when the design already works.
-> 
-> 
-
-</details>
-
-| ![Short-beaked echidna, Adelaide Hills, Australia](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Short-beaked echidna, Adelaide Hills, Australia](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_1080x1920.jpg) |_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
