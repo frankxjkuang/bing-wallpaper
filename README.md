@@ -1,139 +1,137 @@
 ## bing wallpaper
 
-### 20260328
+### 20260329
 
-> 非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚 (© jesuss8/500px/Getty Images)
+> Peggy's Point Lighthouse, Atlantic Coast, Nova Scotia, Canada (© Prashanth Bala/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 非洲水牛体型庞大，威风凛凛，漫步于坦桑尼亚的稀树草原和湿地，尤其是在恩戈罗恩戈罗保护区（NCA）内。它们以硕大弯曲的牛角和庞大的体型而闻名，是“非洲五霸”（水牛、大象、豹子、犀牛、狮子）之一，并因其力量和适应力而备受尊崇。恩戈罗恩戈罗保护区是联合国教科文组织世界遗产，为观察这些令人敬畏的食草动物提供了壮丽而丰富的生态环境。
+> Peggy's Cove is a small yet captivating village on the rugged coast of Nova Scotia that offers a glimpse of life by the sea. The village's most famous landmark is Peggy's Point Lighthouse—also known as Peggy's Cove Lighthouse—first established in 1868 and replaced by the current structure in 1915. For over a century, it has guided ships through the ever-changing Atlantic waters, serving as a timeless symbol of coastal life. The surrounding landscape, with its windswept beauty and crashing waves, feels almost untouched by time.
 > 
-> 保护区内坐落着恩戈罗恩戈罗火山口，这是一个形成于数百万年前的巨大火山口，是野生动物的天堂。火山口多样化的生态系统为这些群居动物创造了理想的生存环境，它们经常成群结队地悠闲地吃草，或展现出协调一致的防御行为。非洲水牛目光坚定，性情难以捉摸，它们体现了非洲荒野的桀骜不驯，为这片坦桑尼亚标志性景观增添了魅力，在这里，大自然的原始之美展现得淋漓尽致。
+> The cozy, colorful village is dotted with quaint homes and local shops along the shoreline. While known for its tranquility, Peggy's Cove also boasts a vibrant arts scene, with galleries and workshops celebrating local creativity. The area is a seafood lover's paradise, with nearby restaurants offering the freshest lobster dishes. A trip here is not just a visit—it's an invitation to slow down and enjoy the simple beauty of coastal life.
 > 
 > 
 
 </details>
 
-| ![非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Peggy's Point Lighthouse, Atlantic Coast, Nova Scotia, Canada](https://cn.bing.com/th?id=OHR.PeggysLighthouse_EN-US6365734559_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Peggy's Point Lighthouse, Atlantic Coast, Nova Scotia, Canada](https://cn.bing.com/th?id=OHR.PeggysLighthouse_EN-US6365734559_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PeggysLighthouse_EN-US6365734559_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PeggysLighthouse_EN-US6365734559_1080x1920.jpg) |
+
+### 20260328
+
+> African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The African buffalo, a powerful and imposing creature, roams the savannas and wetlands of Tanzania, particularly within the Ngorongoro Conservation Area (NCA). Known for their large, curved horns and massive size, they are one of Africa's 'Big Five' (buffalo, elephant, leopard, rhino, lion) and are widely respected for their strength and resilience. The NCA, a UNESCO World Heritage Site, offers a dramatic and ecologically rich setting for observing these formidable herbivores.
+> 
+> Within the conservation area lies the Ngorongoro Crater, a vast volcanic caldera formed millions of years ago that serves as a haven for wildlife. The crater's diverse ecosystem creates an ideal environment for these social animals, which are often seen in herds grazing peacefully or displaying coordinated defensive behavior. With their determined gaze and often unpredictable nature, African buffalo embody the untamed spirit of the African wilderness, adding to the allure of this iconic Tanzanian landscape, where nature's raw beauty is on full display.
+> 
+> 
+
+</details>
+
+| ![African buffalo, Ngorongoro Crater, Tanzania](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![African buffalo, Ngorongoro Crater, Tanzania](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg) |
 
 ### 20260327
 
-> 纽约市的无线电城音乐厅, 美国 (© Clarence Holmes Photography/Alamy)
+> Radio City Music Hall in New York City (© Clarence Holmes Photography/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 乍一看，无线电城音乐厅的内部装潢无疑会吸引你的目光，让你兴奋不已。仿佛置身于纽约市中心的阳光下——这是装饰艺术风格狂热的化身，展现了20世纪30年代人们对未来的憧憬。每年的3月27日是世界戏剧日，人们都会庆祝这种令人叹为观止的震撼体验。
+> At first glance, there's no doubt that the interior of Radio City Music Hall pulls you in and cranks up the excitement. It feels like stepping straight into the sun in the middle of New York City—an Art Deco fever dream of how the 1930s imagined the future. This rush of awe is celebrated every March 27 as World Theatre Day.
 > 
-> 1932年，正值大萧条时期，无线电城音乐厅开业了。它的设计初衷并非低调，而是追求极致的震撼。近6000个座位、璀璨夺目的拱门，以及为打造惊艳演出而设计的舞台，使其成为大规模娱乐活动的中心。火箭女郎舞团正是在这里将精准的舞蹈演绎成流行文化的标志，并将戏剧艺术推向了主流。
+> When Radio City opened in 1932, in the middle of the Great Depression, it wasn't built to be modest. It was meant to dazzle. With nearly 6,000 seats, glowing arches, and a stage designed for jaw-dropping spectacle, it became a home for entertainment on a massive scale. The Rockettes turned precision dance into a pop culture icon right here, kicking theatre arts into the mainstream.
 > 
-> 让我们一起庆祝世界戏剧日——当灯光渐暗，舞台焕发生机，你便置身于一个无法暂停的共享时刻。它只存在于那一刻，而这正是戏剧艺术永葆活力的魅力所在。
+> Let's celebrate the spark of World Theatre Day—when the lights dim and the stage comes alive, you're part of a shared moment that can't be paused. It only exists right then, and that's the thrill that keeps the art of theatre burning bright.
 
 </details>
 
-| ![世界戏剧日](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界戏剧日](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Theatre Day](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Theatre Day](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_1080x1920.jpg) |
 
 ### 20260326
 
-> 洛根溪吊桥，西海岸步道，加拿大 (© Tandem Stock/Adobe Stock)
+> Logan Creek Suspension Bridge, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)
 
 <details>
 <summary>Description</summary>
 
-> 沿着加拿大温哥华岛西南部偏远海岸延伸的西海岸步道，是该国最具传奇色彩的徒步路线之一。这条步道位于 太平洋沿岸国家公园保护区，全长约47英里，穿越雨林、沙滩和岩石海岸线。该步道始建于1907年，最初是一条为海难幸存者设立的救生通道，沿线海域曾被水手称为“太平洋墓地”。
+> Running along the remote southwest coast of Vancouver Island in Canada, the West Coast Trail is one of the country's most legendary hikes. Located in British Columbia's Pacific Rim National Park Reserve, the trail stretches about 47 miles through rainforest, beaches, and rocky shoreline. It was established in 1907 as a lifesaving route for shipwreck survivors along what sailors once called the 'Graveyard of the Pacific.'
 > 
-> 步道上的现代设施之一是洛根溪吊桥——也就是今日画面中的主角。这座结构壮观的桥梁在提升安全性的同时，并未削弱徒步的刺激感。这座洛根溪吊桥桥长约371英尺，悬挂在下方溪流约130英尺高的空中，取代了原本陡峭的木梯下行路段——那段路即使对体力充沛的徒步者来说也极具挑战。穿越吊桥时，可以俯瞰脚下远处茂密的森林和奔腾的溪水，视野开阔而壮观。
+> A modern feature is the Logan Creek Suspension Bridge—seen in today's image—an impressive structure that makes the journey safer without dulling the thrill. The bridge spans roughly 371 feet and hangs about 130 feet above the creek below, replacing a steep ladder descent that challenged even strong hikers. Crossing it offers wide views of dense forest and rushing water far beneath your boots.
 > 
-> 这条路线穿越胡艾阿特族、迪蒂达特族和帕奇达特族原住民族的传统领地，为徒步体验增添了深厚的人文内涵。对于热爱探险的旅行者来说，西海岸步道展现了加拿大原始海岸风貌的真实魅力。
+> The route passes through the traditional lands of the Huu-ay-aht, Ditidaht, and Pacheedaht First Nations, adding cultural depth to the experience. For adventurous travelers, the West Coast Trail delivers a true taste of wild coastal Canada.
 
 </details>
 
-| ![洛根溪吊桥，西海岸步道，加拿大](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![洛根溪吊桥，西海岸步道，加拿大](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Logan Creek Suspension Bridge, West Coast Trail, Canada](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Logan Creek Suspension Bridge, West Coast Trail, Canada](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_1080x1920.jpg) |
 
 ### 20260325
 
-> 淡水泉中的幼年海牛，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)
+> Juvenile manatees in a freshwater spring, Crystal River, Florida (© Gregory Sweeney/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 海牛看起来行动缓慢、昏昏欲睡，但在水下却有不少令人惊讶的“本领”。首先，它们是少数会持续更换牙齿的哺乳动物之一。首先，它们是少数会持续更换牙齿的哺乳动物之一。当臼齿因咀嚼含沙的海草而磨损时，新牙会像传送带一样缓缓向前移动、替换旧牙——这对每天进食可达8小时的它们来说尤为重要。
+> Manatees may seem slow and sleepy, but they have some surprising tricks under the surface. For starters, they are one of the few mammals that constantly replace their teeth. As old molars wear down from chewing gritty seagrass, new ones slowly roll forward like a conveyor belt—handy for an animal that eats for up to eight hours a day.
 > 
-> 这些温和的“巨人”还是大象的近亲，这也解释了它们褶皱的皮肤以及用于抓取植物的灵活上唇。尽管体型庞大，它们体脂却很少，因此对冷水十分敏感，冬季往往依赖温暖的泉水栖息。
+> These gentle giants are also close relatives of elephants, which explains their wrinkled skin and flexible upper lips used to grab plants. Despite their size, they have very little body fat, making them sensitive to cold water and dependent on warm springs during winter.
 > 
-> 3月25日的世界海牛日日旨在庆祝这些独特的哺乳动物，并提高公众对船只撞击、栖息地丧失等威胁的认识。这一天提醒我们，即便是看起来像长着鳍的“漂浮土豆”般憨态可掬的动物，也同样令人着迷，更值得我们用心保护。
+> Manatee Appreciation Day on March 25 celebrates these unusual mammals and raises awareness about threats like boat strikes and habitat loss. It's a reminder that even animals that may look like floating potatoes with flippers can be fascinating—and still need our protection.
 
 </details>
 
-| ![淡水泉中的幼年海牛，水晶河，佛罗里达州](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![淡水泉中的幼年海牛，水晶河，佛罗里达州](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Juvenile manatees in a freshwater spring, Crystal River, Florida](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Juvenile manatees in a freshwater spring, Crystal River, Florida](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_1080x1920.jpg) |
 
 ### 20260324
 
-> 东湖樱花园的樱花，武汉，中国 (© Zhang Qiao/VCG/Getty Images)
+> Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 从空中俯瞰，中国武汉的东湖樱花园宛如一朵淡紫色的云，轻柔地停驻在大地之上。成千上万株樱花同时盛放，浅色花瓣在公园中心一座金色五层宝塔周围织就出一片生机盎然的花海穹顶。宝塔以沉静而对称的姿态挺立，层层飞檐在柔和的春日色彩映衬下熠熠生辉。
+> From above, East Lake Cherry Blossom Park in Wuhan, China, looks like a soft lilac cloud settled gently over the land. Thousands of cherry trees bloom at once, their pale petals forming a living canopy around a golden five-story pagoda at the park's heart. The pagoda rises in calm symmetry, its tiered rooflines glowing against the delicate pastels of spring.
 > 
-> 这座园区隶属于更大的东湖风景区——中国最大的城市湖泊公园之一，现已成为全国最负盛名的赏樱胜地之一。许多樱花树可追溯至20世纪中日往来的历史时期，见证了文化交流的成果，也映照出那段历史中更为复杂与艰难的篇章。
+> This garden is part of the larger East Lake Scenic Area, China's largest urban lake park, and has become one of the country's most celebrated places to see cherry blossoms. Many of the trees trace their roots to periods of contact between China and Japan during the 20th century, reflecting a history shaped by cultural exchange and more difficult chapters.
 > 
-> 
+> The park contains more than 10,000 cherry trees representing over 30 varieties, including Somei Yoshino and weeping cherries, planted in a landscape inspired by Japanese garden design. For a brief time each spring, nature and design meet here in perfect balance.
 
 </details>
 
-| ![东湖樱花园的樱花，武汉，中国](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![东湖樱花园的樱花，武汉，中国](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_EN-US5963967452_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_EN-US5963967452_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_EN-US5963967452_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_EN-US5963967452_1080x1920.jpg) |
 
 ### 20260323
 
-> 坦噶尼喀湖，非洲 (© BEST-BACKGROUNDS/NASA/Shutterstock)
+> Lightning storm over saguaro cacti, Sonoran Desert, Arizona (© Jack Dykinga/Nature Picture Library)
 
 <details>
 <summary>Description</summary>
 
-> 今天是世界水日。该纪念日由联合国于1992年设立，并于次年首次举行。人类已不能再随波逐流——我们必须守护那些维系生命的水流。在非洲东部大裂谷的坦噶尼喀湖，几乎最能体现这种紧迫感。从太空俯瞰，它宛如一条长约420英里（约676公里）的蓝色丝带，连接着坦桑尼亚、布隆迪、刚果民主共和国和赞比亚。在湖岸边，它则是一处拥有约1000万年历史的裂谷盆地，由地壳缓慢张裂形成。
+> The strength of nature is nowhere more evident than in powerful storms. Scary? Yes. Fascinating? Even more so. Learning to understand and respect these forces helps humanity live more safely.
 > 
-> 坦噶尼喀湖最深处超过4800英尺（约1460米），储存着地球未冻结地表淡水资源的约16%。它养育着数百万人，提供饮用水、食物来源以及交通通道。湖中生活着色彩鲜艳的慈鲷等特有物种，这些在世界其他地方找不到的鱼类，使湖泊深处成为一座“活的进化实验室”。
+> This idea sits at the heart of World Meteorological Day, observed every year on March 23. The day marks the founding of the World Meteorological Organization in 1950 and highlights how weather, climate, and water services protect lives and support daily decisions—from storm warnings to long-term climate planning. This year's theme is 'Observing Today, Protecting Tomorrow.'
 > 
-> 从空中俯瞰，这座古老的水库似乎坚不可摧；但近距离观察，它却正面临水温升高、污染和过度捕捞等威胁。今天的图片提醒我们一个现实：水不仅滋养生命，也引导着生命的方向。而每一滴水，都值得我们去守护。
+> The image of lightning over saguaro cacti captures this message perfectly. The Sonoran Desert may look dry and still, but it has one of the most dynamic climates in North America. It is defined by two rainy seasons: gentle winter rains and intense summer monsoon storms that bring lightning, heavy downpours, and sudden temperature drops. These patterns shape the desert's rich biodiversity and show why accurate weather observation is essential in extreme environments.
 
 </details>
 
-| ![世界水日](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界水日](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![World Meteorological Day](https://cn.bing.com/th?id=OHR.SonoranStorm_EN-US5792303901_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Meteorological Day](https://cn.bing.com/th?id=OHR.SonoranStorm_EN-US5792303901_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_1080x1920.jpg) |
-
-### 20260322
-
-> 坦噶尼喀湖，非洲 (© BEST-BACKGROUNDS/NASA/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> 今天是世界水日。该纪念日由联合国于1992年设立，并于次年首次举行。人类已不能再随波逐流——我们必须守护那些维系生命的水流。在非洲东部大裂谷的坦噶尼喀湖，几乎最能体现这种紧迫感。从太空俯瞰，它宛如一条长约420英里（约676公里）的蓝色丝带，连接着坦桑尼亚、布隆迪、刚果民主共和国和赞比亚。在湖岸边，它则是一处拥有约1000万年历史的裂谷盆地，由地壳缓慢张裂形成。
-> 
-> 坦噶尼喀湖最深处超过4800英尺（约1460米），储存着地球未冻结地表淡水资源的约16%。它养育着数百万人，提供饮用水、食物来源以及交通通道。湖中生活着色彩鲜艳的慈鲷等特有物种，这些在世界其他地方找不到的鱼类，使湖泊深处成为一座“活的进化实验室”。
-> 
-> 从空中俯瞰，这座古老的水库似乎坚不可摧；但近距离观察，它却正面临水温升高、污染和过度捕捞等威胁。今天的图片提醒我们一个现实：水不仅滋养生命，也引导着生命的方向。而每一滴水，都值得我们去守护。
-
-</details>
-
-| ![世界水日](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界水日](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_1080x1920.jpg) |c=4) | ![Spring equinox](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SonoranStorm_EN-US5792303901_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SonoranStorm_EN-US5792303901_1080x1920.jpg) |owdrops_EN-US5032204696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
