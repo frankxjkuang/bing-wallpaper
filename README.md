@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260401
+
+> Japanese tree frog in a pink morning glory (© Tetsuya Tanooka/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> April is National Frog Month, a time to appreciate one of nature's smallest yet most remarkable ambassadors. Frogs help balance insect populations and often serve as early indicators of environmental change, as their permeable skin readily responds to shifts in water and air quality. Their presence reveals much about the health of their habitats, making this month a fitting time to pause and recognize their vital role.
+> 
+> The image shows a Japanese tree frog nestled inside a pink morning glory bloom. Native to East Asia, including Japan, China, and Korea, this tiny species is an agile climber with adhesive toe pads that allow it to move easily across smooth petals and leaves. It is also known for its cold tolerance, a trait shaped by the temperate and seasonal climates found across its range. Seeing such a small creature tucked into a flower reminds us that even delicate natural spaces support essential life.
+> 
+> 
+
+</details>
+
+| ![National Frog Month](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_EN-US6527297660_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Frog Month](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_EN-US6527297660_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg) |
+
 ### 20260331
 
 > Paradise Cave, Phong Nha-Ke Bang National Park, Vietnam (© Pakawat Thongcharoen/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Logan Creek Suspension Bridge, West Coast Trail, Canada](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Logan Creek Suspension Bridge, West Coast Trail, Canada](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_1080x1920.jpg) |
-
-### 20260325
-
-> Juvenile manatees in a freshwater spring, Crystal River, Florida (© Gregory Sweeney/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Manatees may seem slow and sleepy, but they have some surprising tricks under the surface. For starters, they are one of the few mammals that constantly replace their teeth. As old molars wear down from chewing gritty seagrass, new ones slowly roll forward like a conveyor belt—handy for an animal that eats for up to eight hours a day.
-> 
-> These gentle giants are also close relatives of elephants, which explains their wrinkled skin and flexible upper lips used to grab plants. Despite their size, they have very little body fat, making them sensitive to cold water and dependent on warm springs during winter.
-> 
-> Manatee Appreciation Day on March 25 celebrates these unusual mammals and raises awareness about threats like boat strikes and habitat loss. It's a reminder that even animals that may look like floating potatoes with flippers can be fascinating—and still need our protection.
-
-</details>
-
-| ![Juvenile manatees in a freshwater spring, Crystal River, Florida](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Juvenile manatees in a freshwater spring, Crystal River, Florida](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_1080x1920.jpg) |SonoranStorm_EN-US5792303901_1080x1920.jpg) |owdrops_EN-US5032204696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_1080x1920.jpg) |cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_1080x1920.jpg) |SonoranStorm_EN-US5792303901_1080x1920.jpg) |owdrops_EN-US5032204696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
