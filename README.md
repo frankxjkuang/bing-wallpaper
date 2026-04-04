@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260402
+
+> Wildflower bloom, Central Valley, California (© Jeff Lewis/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Spring announces itself across California's Central Valley with the first bursts of wildflowers following the winter rains. Stretching roughly 450 miles from north to south and covering about 20,000 square miles, the valley is one of the world's most productive agricultural regions. In early spring, however, an older identity briefly resurfaces. From March through April, native annuals such as goldfields, tidy tips, and owl's clover quickly germinate once temperature and soil moisture are optimal. They race to complete their life cycles before the long dry season begins.
+> 
+> Many of these species are remnants of California's original grassland ecosystem. Today, they persist mainly in nature reserves, on uncultivated land, and in strips between fields. Their seeds can remain viable for decades, germinating only when conditions meet specific thresholds. Rainfall patterns influence both the strength and the distribution of the bloom. Differences in soil texture and drainage create the bands and patches that appear across the valley floor each spring. For a few weeks, agricultural and ecological history share the same landscape.
+> 
+> 
+
+</details>
+
+| ![Wildflower bloom, Central Valley, California](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wildflower bloom, Central Valley, California](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_1080x1920.jpg) |
+
 ### 20260401
 
 > Japanese tree frog in a pink morning glory (© Tetsuya Tanooka/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Theatre Day](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Theatre Day](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_1080x1920.jpg) |
-
-### 20260326
-
-> Logan Creek Suspension Bridge, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> Running along the remote southwest coast of Vancouver Island in Canada, the West Coast Trail is one of the country's most legendary hikes. Located in British Columbia's Pacific Rim National Park Reserve, the trail stretches about 47 miles through rainforest, beaches, and rocky shoreline. It was established in 1907 as a lifesaving route for shipwreck survivors along what sailors once called the 'Graveyard of the Pacific.'
-> 
-> A modern feature is the Logan Creek Suspension Bridge—seen in today's image—an impressive structure that makes the journey safer without dulling the thrill. The bridge spans roughly 371 feet and hangs about 130 feet above the creek below, replacing a steep ladder descent that challenged even strong hikers. Crossing it offers wide views of dense forest and rushing water far beneath your boots.
-> 
-> The route passes through the traditional lands of the Huu-ay-aht, Ditidaht, and Pacheedaht First Nations, adding cultural depth to the experience. For adventurous travelers, the West Coast Trail delivers a true taste of wild coastal Canada.
-
-</details>
-
-| ![Logan Creek Suspension Bridge, West Coast Trail, Canada](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Logan Creek Suspension Bridge, West Coast Trail, Canada](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_1080x1920.jpg) |cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_1080x1920.jpg) |SonoranStorm_EN-US5792303901_1080x1920.jpg) |owdrops_EN-US5032204696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_1080x1920.jpg) |nStorm_EN-US5792303901_1080x1920.jpg) |owdrops_EN-US5032204696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
