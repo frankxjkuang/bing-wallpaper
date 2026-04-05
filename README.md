@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260403
+
+> Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Some bridges in Amsterdam just get you across a canal. The Armbrug does more—it seems to wave hello as you pass. Nestled over the Oudezijds Voorburgwal canal, its name, meaning 'arm bridge,' refers to the nearby Oudezijds Armsteeg (Old Side Arm Alley), not a literal limb, but it's easy to imagine it greeting cyclists and pedestrians along the way.
+> 
+> Built of concrete, this historic fixed bridge doesn't swing or lift—it simply carries locals and visitors safely across the water. Yet its charm lies in the view: historic buildings lining the canal, glimpses of St. Nicholas Church, and the Kolksluis lock make it a photographer's delight.
+> 
+> Artists once sketched and painted the view from the bridge to lure visitors from Dutch provinces, and today it remains a favorite spot for pictures and casual strolls. Simple, sturdy, and scenic, the Armbrug proves that sometimes, the best bridges don't just connect places—they connect people with the city's history and spirit.
+
+</details>
+
+| ![Armbrug bridge, Amsterdam, Netherlands](https://cn.bing.com/th?id=OHR.ArmbrugBridge_EN-US3302230248_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Armbrug bridge, Amsterdam, Netherlands](https://cn.bing.com/th?id=OHR.ArmbrugBridge_EN-US3302230248_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArmbrugBridge_EN-US3302230248_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArmbrugBridge_EN-US3302230248_1080x1920.jpg) |
+
 ### 20260402
 
 > Wildflower bloom, Central Valley, California (© Jeff Lewis/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![African buffalo, Ngorongoro Crater, Tanzania](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![African buffalo, Ngorongoro Crater, Tanzania](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg) |
-
-### 20260327
-
-> Radio City Music Hall in New York City (© Clarence Holmes Photography/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> At first glance, there's no doubt that the interior of Radio City Music Hall pulls you in and cranks up the excitement. It feels like stepping straight into the sun in the middle of New York City—an Art Deco fever dream of how the 1930s imagined the future. This rush of awe is celebrated every March 27 as World Theatre Day.
-> 
-> When Radio City opened in 1932, in the middle of the Great Depression, it wasn't built to be modest. It was meant to dazzle. With nearly 6,000 seats, glowing arches, and a stage designed for jaw-dropping spectacle, it became a home for entertainment on a massive scale. The Rockettes turned precision dance into a pop culture icon right here, kicking theatre arts into the mainstream.
-> 
-> Let's celebrate the spark of World Theatre Day—when the lights dim and the stage comes alive, you're part of a shared moment that can't be paused. It only exists right then, and that's the thrill that keeps the art of theatre burning bright.
-
-</details>
-
-| ![World Theatre Day](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Theatre Day](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_1080x1920.jpg) |nStorm_EN-US5792303901_1080x1920.jpg) |owdrops_EN-US5032204696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg) |4696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
