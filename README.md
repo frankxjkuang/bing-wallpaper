@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260408
+
+> Seattle, Washington (© Jim Patterson/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Seattle's waterfront seems suspended between sea and sky as soft light settles on the horizon. The city is named after Chief Si'ahl, a leader of the Duwamish and Suquamish peoples, whose legacy remains important to the region's identity. Steep streets lead down to piers that sweep across Elliott Bay. Rising above the shoreline, the Space Needle stands out as the city's most recognizable landmark. Pike Place Market, founded in 1907, overlooks the waterfront and continues to anchor daily life and long-held traditions.
+> 
+> Music adds another layer to the city's story. In the late 20th century, grunge emerged from small clubs, and its raw sound evolved into a global genre that continues to influence Seattle's creative pulse. Framed by water and distant mountain ranges, the city feels open and expansive. Its evergreen landscape earned Seattle the enduring nickname 'Emerald City.'
+> 
+> 
+
+</details>
+
+| ![Seattle, Washington](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Seattle, Washington](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_1080x1920.jpg) |
+
 ### 20260407
 
 > Beaver, Germany (© Andyworks/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Wildflower bloom, Central Valley, California](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wildflower bloom, Central Valley, California](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_1080x1920.jpg) |
-
-### 20260401
-
-> Japanese tree frog in a pink morning glory (© Tetsuya Tanooka/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> April is National Frog Month, a time to appreciate one of nature's smallest yet most remarkable ambassadors. Frogs help balance insect populations and often serve as early indicators of environmental change, as their permeable skin readily responds to shifts in water and air quality. Their presence reveals much about the health of their habitats, making this month a fitting time to pause and recognize their vital role.
-> 
-> The image shows a Japanese tree frog nestled inside a pink morning glory bloom. Native to East Asia, including Japan, China, and Korea, this tiny species is an agile climber with adhesive toe pads that allow it to move easily across smooth petals and leaves. It is also known for its cold tolerance, a trait shaped by the temperate and seasonal climates found across its range. Seeing such a small creature tucked into a flower reminds us that even delicate natural spaces support essential life.
-> 
-> 
-
-</details>
-
-| ![National Frog Month](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_EN-US6527297660_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Frog Month](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_EN-US6527297660_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_1080x1920.jpg) |th?id=OHR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg) |4696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
