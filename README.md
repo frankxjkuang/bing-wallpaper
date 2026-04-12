@@ -1,5 +1,43 @@
 ## bing wallpaper
 
+### 20260411
+
+> Papagayo Beach, Lanzarote, Canary Islands, Spain (© Gavin Hellier/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> A beach born from fire rarely does so subtly, yet Papagayo Beach manages exactly that. The shoreline we see today rests on the southern edge of Lanzarote, one of Spain's Canary Islands. Tropical fantasy? More like volcanic precision. Millions of years ago, this land rose in successive layers of basalt and ash thrust upward by submarine eruptions.
+> 
+> About 400 feet long, the cove feels intimate. Nestled within Los Ajaches Natural Monument, it remains protected and deliberately low-key. Once, it sheltered sailors navigating between Africa and Europe. Today, it is reached by foot, boat, or a famously bumpy dirt road—preservation by inconvenience. Cliffs arc around the bay, forming natural breakwaters that temper the Atlantic into calm, clear shallows. Fish flicker through the light, crabs patrol the tidal edges, and octopuses vanish into stone. The sand's warm, golden tone? Pulverized shells mixed with volcanic rock, refined by millennia of tides. Papagayo's power lies in its contrasts: forged by eruption, shaped by erosion, and preserved by restraint.
+> 
+> 
+
+</details>
+
+| ![Papagayo Beach, Lanzarote, Canary Islands, Spain](https://cn.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Papagayo Beach, Lanzarote, Canary Islands, Spain](https://cn.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_1080x1920.jpg) |
+
+### 20260410
+
+> Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Ever caught siblings plotting? In Karula National Park, Estonia, it looks as though these two red fox kits froze mid-conspiracy, their expressions mirrored in curiosity and caution. They're not just springtime fluff; they're apprentices in survival. Born in litters averaging four to six kits, foxes grow quickly, their underground den becoming their wrestling ring, classroom, and testing ground. Older kits often help feed, guard, and teach the younger ones, turning play into practice and mischief into muscle memory. In their families, siblings are not background—they're backup.
+> 
+> It's an impulse we know well. Siblings Day, observed every April 10, was created in 1995 when Claudia Evart decided the quiet power of brother-sister bonds deserved its own spotlight. Since then, it has leaped across 49 US states, earned presidential praise, and hopped continents. It resonates because the dynamic is universal. Whether in a woodland clearing or around a kitchen table, siblings are our first opponents, our first defenders, and our lifelong witnesses.
+> 
+> 
+
+</details>
+
+| ![Siblings Day](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Siblings Day](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_1080x1920.jpg) |
+
 ### 20260409
 
 > Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)
@@ -93,45 +131,7 @@
 
 | ![Easter Sunday](https://cn.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Easter Sunday](https://cn.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_1080x1920.jpg) |
-
-### 20260404
-
-> Black grouse males facing off on a lekking site, Estonia (© Sven Zacek/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Before sunrise, the moorland clock punches in—and the dance floor opens. Male black grouse don't send invites; they boom them. Welcome to lekking season, where romance is competitive, noisy, and strictly outdoors.
-> 
-> Each spring, male black grouse gather at traditional sites called leks. They fan out their lyre-shaped tails, drop their wings, puff up their white undertail coverts, and produce a low, bubbling 'roo-kooing' call. They also hiss and posture at rivals. No pecking order? There is one—front-row spots usually belong to the most dominant males. Females arrive quietly, watch the show, and choose. Only a few top performers win most of the matings. It's survival of the flashiest.
-> 
-> Lekking peaks at dawn from April to May in the United Kingdom and other parts of Eurasia. After mating, females nest alone and raise the chicks without help. The males? They're off the stage until next season. In short, it's a spring spectacle—where love is loud, rivals ruffle feathers, and the early bird really does get the girl.
-
-</details>
-
-| ![Black grouse males, Estonia](https://cn.bing.com/th?id=OHR.GrouseGuff_EN-US4212457538_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black grouse males, Estonia](https://cn.bing.com/th?id=OHR.GrouseGuff_EN-US4212457538_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrouseGuff_EN-US4212457538_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrouseGuff_EN-US4212457538_1080x1920.jpg) |
-
-### 20260403
-
-> Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Some bridges in Amsterdam just get you across a canal. The Armbrug does more—it seems to wave hello as you pass. Nestled over the Oudezijds Voorburgwal canal, its name, meaning 'arm bridge,' refers to the nearby Oudezijds Armsteeg (Old Side Arm Alley), not a literal limb, but it's easy to imagine it greeting cyclists and pedestrians along the way.
-> 
-> Built of concrete, this historic fixed bridge doesn't swing or lift—it simply carries locals and visitors safely across the water. Yet its charm lies in the view: historic buildings lining the canal, glimpses of St. Nicholas Church, and the Kolksluis lock make it a photographer's delight.
-> 
-> Artists once sketched and painted the view from the bridge to lure visitors from Dutch provinces, and today it remains a favorite spot for pictures and casual strolls. Simple, sturdy, and scenic, the Armbrug proves that sometimes, the best bridges don't just connect places—they connect people with the city's history and spirit.
-
-</details>
-
-| ![Armbrug bridge, Amsterdam, Netherlands](https://cn.bing.com/th?id=OHR.ArmbrugBridge_EN-US3302230248_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Armbrug bridge, Amsterdam, Netherlands](https://cn.bing.com/th?id=OHR.ArmbrugBridge_EN-US3302230248_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArmbrugBridge_EN-US3302230248_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArmbrugBridge_EN-US3302230248_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_1080x1920.jpg) |th?id=OHR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_1080x1920.jpg) |th?id=OHR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg) |4696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
