@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260412
+
+> City lights streak below, taken from the International Space Station (© NASA)
+
+<details>
+<summary>Description</summary>
+
+> Today, the world marks the International Day of Human Space Flight, a United Nations observance honoring the first human journey into space and the start of the space age for humanity. The date recalls April 12, 1961, when Yuri Gagarin orbited Earth, proving that people could leave the planet and return safely.
+> 
+> That spirit of exploration lives on aboard the International Space Station. From the ISS, astronauts photograph glowing city grids and powerful lightning storms streaking through Earth's atmosphere—views that turn science into magic. Orbiting about 250 miles above the planet, the station circles Earth every 90 minutes, giving crews up to 16 sunrises and sunsets a day. It has been continuously occupied since 2000 and is operated by a partnership of the United States, Russia, Europe, Japan, and Canada. Inside, astronauts conduct research that advances medicine, materials, and climate science, while also learning how humans can live and work farther from home.
+> 
+> 
+
+</details>
+
+| ![International Day of Human Space Flight](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Human Space Flight](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_1080x1920.jpg) |
+
 ### 20260411
 
 > Papagayo Beach, Lanzarote, Canary Islands, Spain (© Gavin Hellier/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Castle Day Japan](https://cn.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castle Day Japan](https://cn.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_1080x1920.jpg) |
-
-### 20260405
-
-> Colorful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> What follows 40 days of waiting is not a spectacle, but a chapter rooted in belief. Easter Sunday arrives at the end of Lent, carrying forward ideas of life over death and the promise of renewal. For Christians, today marks the resurrection of Jesus Christ and brings Holy Week to a close. It's a turning point, both spiritual and symbolic.
-> 
-> Over time, symbols have helped carry this story forward: the Easter Bunny, rabbits, chicks, and, most enduringly, the egg. Long before chocolate wrappers and baskets, eggs represented fresh beginnings. Painted, carved, hidden, or shared, they remain one of Easter's most recognizable decorations. The handmade wooden eggs featured here, from Vilnius in Lithuania, reflect how this tradition travels across cultures and generations.
-> 
-> This Sunday is observed in many ways across the United States. Some begin with sunrise services, while others move straight into family meals or local gatherings. Egg hunts bring children together, conversations stretch longer for adults, and the day moves at a gentler pace.
-
-</details>
-
-| ![Easter Sunday](https://cn.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Easter Sunday](https://cn.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_1080x1920.jpg) |th?id=OHR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_1080x1920.jpg) |US5074250791_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_1080x1920.jpg) |th?id=OHR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg) |4696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
