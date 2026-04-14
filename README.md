@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260413
+
+> Milky Way over Anza-Borrego Desert State Park, California (© Kevin Key/Slworking)/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> When the lights go down, the universe puts on a show. International Dark Sky Week, celebrated each April, invites everyone to rediscover the night and learn why darkness is worth protecting. Launched in 2003, the week highlights how excessive artificial light affects wildlife, human health, energy use, and our ability to see the stars. Fewer lights don't mean less safety—smart, well-designed lighting can do both.
+> 
+> The image of the Milky Way glowing above Anza-Borrego Desert State Park captures this idea perfectly. As California's largest state park and an officially designated International Dark-Sky Park, Anza-Borrego offers some of the best stargazing in the country. On a clear night, the sky fills with planets, star clusters, and the bright band of our home galaxy—views that have vanished from many urban areas.
+> 
+> International Dark Sky Week encourages simple actions, from shielding porch lights to joining a local star party. Look up, get curious, and help keep nights naturally brilliant.
+
+</details>
+
+| ![International Dark Sky Week](https://cn.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Dark Sky Week](https://cn.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_1080x1920.jpg) |
+
 ### 20260412
 
 > City lights streak below, taken from the International Space Station (© NASA)
@@ -112,26 +131,7 @@
 
 | ![International Beaver Day](https://cn.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Beaver Day](https://cn.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_1080x1920.jpg) |
-
-### 20260406
-
-> Hirosaki Castle with cherry blossoms, Hirosaki, Japan (© Glenn Waters/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Picture northern Japan in the early 1600s. Castles stood at the crossroads of politics, trade, and governance. Across generations, they came to reflect not only moments of tension, but also endurance, adaptation, and everyday life. Castle Day, celebrated on April 6, was created to highlight that layered past. The day uses a simple phonetic link—shi (4) and ro (6)—to form Shiro-no-Hi, because 'shiro' means castle in Japanese. It's a reminder that castles had serious jobs long before they had cinematic appeal.
-> 
-> Today's image features Hirosaki Castle, completed in 1611 under the Tsugaru clan, an influential Japanese samurai family. Fires, repairs, and rebuilding reshaped it, but the castle remained in use until the feudal system ended in the 19th century. Rather than a relic, it endures as evidence of local rule and Edo-period design—a past that remained present as aesthetics moved toward minimalism.
-> 
-> 
-
-</details>
-
-| ![Castle Day Japan](https://cn.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Castle Day Japan](https://cn.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_1080x1920.jpg) |US5074250791_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_1080x1920.jpg) |th?id=OHR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_1080x1920.jpg) |HR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg) |4696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
