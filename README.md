@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260414
+
+> Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Sea anemones may look like underwater flowers, but they're actually animals—close relatives of jellyfish and corals. Anchored to rocks or reefs, they use a sticky base and a crown of waving tentacles armed with tiny stingers to capture passing prey. Those stings can paralyze small fish, yet one famous neighbor is immune.
+> 
+> In the image, a common clownfish peeks out from its sea anemone home in Indonesia's Raja Ampat Islands, a remote archipelago at the heart of the Coral Triangle, known for extraordinary marine diversity. The clownfish's special mucus coating protects it from harm, allowing it to shelter safely among the tentacles. In return, the fish helps deter predators and drops food scraps the anemone can eat. In the reefs of Raja Ampat, moments like this play out everywhere—quiet alliances that keep the waters humming with life.
+> 
+> 
+
+</details>
+
+| ![Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia](https://cn.bing.com/th?id=OHR.OcellarisClownfish_EN-US8509728179_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia](https://cn.bing.com/th?id=OHR.OcellarisClownfish_EN-US8509728179_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OcellarisClownfish_EN-US8509728179_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OcellarisClownfish_EN-US8509728179_1080x1920.jpg) |
+
 ### 20260413
 
 > Milky Way over Anza-Borrego Desert State Park, California (© Kevin Key/Slworking)/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Seattle, Washington](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Seattle, Washington](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_1080x1920.jpg) |
-
-### 20260407
-
-> Beaver, Germany (© Andyworks/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> International Beaver Day, celebrated on April 7, recognizes a hardworking little engineer quietly building a better world—one stick at a time. The beaver—buck-toothed, paddle-tailed, and famously industrious—has been reshaping freshwater landscapes for millions of years. With their iron-reinforced orange incisors, these skilled rodents cut down trees and build dams that slow the flow of water, improve its quality, and create wetlands that support a remarkable diversity of life. Their sturdy lodges, made of branches and mud, have underwater entrances that protect them from predators and keep their families safe.
-> 
-> Among the world's largest rodents, beavers can reach nearly 3 feet in body length (excluding the tail). They are superbly adapted to aquatic life and can remain submerged for up to 15 minutes. Once heavily hunted and often misunderstood, they're now widely recognized as ecological powerhouses. Wherever they settle, these natural architects leave thriving habitats in their wake—proof that even small builders can shape big ecosystems.
-> 
-> 
-
-</details>
-
-| ![International Beaver Day](https://cn.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Beaver Day](https://cn.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_1080x1920.jpg) |HR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_1080x1920.jpg) |id=OHR.BeaverPortrait_EN-US6459336252_1080x1920.jpg) |HR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg) |4696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
