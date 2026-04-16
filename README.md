@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260415
+
+> The Carrières des Lumières exhibit of Vincent Van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Art surrounds us. Creativity and self-expression are part of human identity and mold our past and future. While some might dedicate their lives to the arts, others are the recipients of what artists channel. World Art Day on April 15 celebrates this ever-flowing link between artistic creations and society that shapes our cultures.
+> 
+> Imagine stepping inside the larger-than-life artworks of Vincent van Gogh, immersing yourself in the bold and textured brushstrokes. The Carrières des Lumières exhibit in Les Baux-de-Provence, France, offered exactly that during its 2019-2020 run.
+> 
+> Housed in a former limestone quarry, the exhibition transformed Van Gogh's paintings into a shared physical space, projected across towering stone walls and floors. Rather than standing back to observe, visitors moved through color, rhythm, and scale, experiencing how technology can reshape the way we encounter art. It's a fitting reflection of World Art Day's purpose: not just honoring masterpieces, but rethinking how art lives, evolves, and continues to engage new audiences.
+
+</details>
+
+| ![World Art Day](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Art Day](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_1080x1920.jpg) |
+
 ### 20260414
 
 > Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)
@@ -112,28 +131,7 @@
 
 | ![Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_1080x1920.jpg) |
-
-### 20260408
-
-> Seattle, Washington (© Jim Patterson/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Seattle's waterfront seems suspended between sea and sky as soft light settles on the horizon. The city is named after Chief Si'ahl, a leader of the Duwamish and Suquamish peoples, whose legacy remains important to the region's identity. Steep streets lead down to piers that sweep across Elliott Bay. Rising above the shoreline, the Space Needle stands out as the city's most recognizable landmark. Pike Place Market, founded in 1907, overlooks the waterfront and continues to anchor daily life and long-held traditions.
-> 
-> Music adds another layer to the city's story. In the late 20th century, grunge emerged from small clubs, and its raw sound evolved into a global genre that continues to influence Seattle's creative pulse. Framed by water and distant mountain ranges, the city feels open and expansive. Its evergreen landscape earned Seattle the enduring nickname 'Emerald City.'
-> 
-> 
-
-</details>
-
-| ![Seattle, Washington](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Seattle, Washington](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_1080x1920.jpg) |id=OHR.BeaverPortrait_EN-US6459336252_1080x1920.jpg) |HR.JapaneseTreeFrog_EN-US6527297660_1080x1920.jpg) |=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg) |4696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_1080x1920.jpg) |o_EN-US6304011521_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg) |4696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
