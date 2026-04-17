@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260416
+
+> Skagit Valley Tulip Fields, Washington (© Alan Majchrowicz/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Each spring, Washington's Skagit Valley transforms into a patchwork of color as the Skagit Valley Tulip Festival celebrates the arrival of bloom season. Throughout April, visitors can explore tulip gardens and farmland lined with vibrant rows of flowers, all framed by mountain views.
+> 
+> The festival isn't limited to one location—it stretches across the valley, inviting guests to discover multiple gardens, each offering its own experience. Some focus on carefully designed displays, while others highlight working farms and wide- open fields. Alongside the flowers, the festival connects visitors with art exhibits, family-friendly activities, and community events hosted throughout the region.
+> 
+> Bloom timing changes every year, making each visit a little different, so checking bloom updates is part of the adventure. What began as a small local celebration in 1984 has grown into one of the Pacific Northwest's most loved spring traditions, drawing photographers, nature lovers, and road trip enthusiasts eager to welcome the season.
+
+</details>
+
+| ![Skagit Valley Tulip Festival](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Skagit Valley Tulip Festival](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_1080x1920.jpg) |
+
 ### 20260415
 
 > The Carrières des Lumières exhibit of Vincent Van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Siblings Day](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Siblings Day](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_1080x1920.jpg) |
-
-### 20260409
-
-> Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Water spills in clean lines at Sgwd yr Eira, one of South Wales' most distinctive waterfalls. Its Welsh name means 'Waterfall of Snow,' referring to the pale curtain of water sliding over the rock face. What sets this waterfall apart is access. A narrow path leads visitors behind the falling water, immersing them in sound, light, and movement at close range. Sgwd yr Eira lies within Bannau Brycheiniog National Park, often called 'Waterfall Country' for its network of rivers and falls carved into wooded gorges. Well-marked trails connect this waterfall to others along the River Hepste, making it a popular stop on longer hikes. Above the valleys, the landscape opens into rolling moorland and long ridgelines where upland paths are shaped by wind and changing weather. These contrasts define the park, where open, exposed uplands give way to sheltered water, tying the landscape together.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_1080x1920.jpg) |o_EN-US6304011521_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg) |4696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_1080x1920.jpg) |ownload portrait 4K](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1080x1920.jpg) |4696_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1080x1920.jpg) |=OHR.RilaCrocuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
