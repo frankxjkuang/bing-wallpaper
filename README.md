@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260419
+
+> Books in the children's section of The New York Public Library, New York (© Ken Welsh/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> National Library Week kicks off today as libraries across the United States celebrate the power of free access to knowledge—and for younger generations, that availability can be life-shaping. Created by the American Library Association, it highlights how libraries support literacy, curiosity, and learning at every age, especially in childhood, when reading habits first take root.
+> 
+> The image of books lining the children's section of The New York Public Library captures this idea in action. At the Children's Center in the Stephen A. Schwarzman Building, shelves are designed for small hands and big questions, offering picture books, early readers, and nonfiction that invite exploration and imagination. These spaces encourage children to choose their own stories, build vocabulary, and discover that learning can be joyful, not intimidating.
+> 
+> National Library Week also celebrates libraries as shared civic spaces. In a time when reliable knowledge can feel fragmented, libraries remain trusted places to learn, connect, and explore ideas.
+
+</details>
+
+| ![National Library Week](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Library Week](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_1080x1920.jpg) |
+
 ### 20260418
 
 > Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)
@@ -112,26 +131,7 @@
 
 | ![International Dark Sky Week](https://cn.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Dark Sky Week](https://cn.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_1080x1920.jpg) |
-
-### 20260412
-
-> City lights streak below, taken from the International Space Station (© NASA)
-
-<details>
-<summary>Description</summary>
-
-> Today, the world marks the International Day of Human Space Flight, a United Nations observance honoring the first human journey into space and the start of the space age for humanity. The date recalls April 12, 1961, when Yuri Gagarin orbited Earth, proving that people could leave the planet and return safely.
-> 
-> That spirit of exploration lives on aboard the International Space Station. From the ISS, astronauts photograph glowing city grids and powerful lightning storms streaking through Earth's atmosphere—views that turn science into magic. Orbiting about 250 miles above the planet, the station circles Earth every 90 minutes, giving crews up to 16 sunrises and sunsets a day. It has been continuously occupied since 2000 and is operated by a partnership of the United States, Russia, Europe, Japan, and Canada. Inside, astronauts conduct research that advances medicine, materials, and climate science, while also learning how humans can live and work farther from home.
-> 
-> 
-
-</details>
-
-| ![International Day of Human Space Flight](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of Human Space Flight](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_1080x1920.jpg) |[帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_1080x1920.jpg) |�群岛, 西班牙](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
