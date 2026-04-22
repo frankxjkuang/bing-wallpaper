@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260421
+
+> European hedgehog, France (© Klein & Hubert/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Spring arrives with a small, spiky ambassador: the European hedgehog, spotted here in France. Part cuddle, part survival gear, this tiny forager is mostly nocturnal and usually solitary, guided mainly by smell and sound. Its job description is simple: roam, sniff through leaf litter, and vacuum up invertebrates like worms, beetles, slugs, and caterpillars—the kind of snacks that keep ecosystems running and gardeners smiling. When danger shows up, it doesn't negotiate or flee. It curls into a tight ball and lets its spines do the talking.
+> 
+> Across colder regions, many hedgehogs hibernate through winter, reemerging as the earth hums with new life. Although these night-wanderers face real pressures in parts of Europe, especially from roads and habitat fragmentation, scenes like this are the hopeful bit. As long as forests stay connected and a little wild, spring will keep doing what it does best: rebooting the woods, one small prickly life at a time.
+> 
+> 
+
+</details>
+
+| ![European hedgehog, France](https://cn.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European hedgehog, France](https://cn.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_1080x1920.jpg) |
+
 ### 20260420
 
 > Sunset in Canyonlands National Park, Moab, Utah (© Jason Hatfield/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![World Art Day](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Art Day](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_1080x1920.jpg) |
-
-### 20260414
-
-> Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Sea anemones may look like underwater flowers, but they're actually animals—close relatives of jellyfish and corals. Anchored to rocks or reefs, they use a sticky base and a crown of waving tentacles armed with tiny stingers to capture passing prey. Those stings can paralyze small fish, yet one famous neighbor is immune.
-> 
-> In the image, a common clownfish peeks out from its sea anemone home in Indonesia's Raja Ampat Islands, a remote archipelago at the heart of the Coral Triangle, known for extraordinary marine diversity. The clownfish's special mucus coating protects it from harm, allowing it to shelter safely among the tentacles. In return, the fish helps deter predators and drops food scraps the anemone can eat. In the reefs of Raja Ampat, moments like this play out everywhere—quiet alliances that keep the waters humming with life.
-> 
-> 
-
-</details>
-
-| ![Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia](https://cn.bing.com/th?id=OHR.OcellarisClownfish_EN-US8509728179_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia](https://cn.bing.com/th?id=OHR.OcellarisClownfish_EN-US8509728179_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OcellarisClownfish_EN-US8509728179_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OcellarisClownfish_EN-US8509728179_1080x1920.jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_1080x1920.jpg) |8179_1080x1920.jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
