@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260422
+
+> Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Earth Day didn't knock gently. It kicked the door wide open. In 1970, oil‑soaked beaches, burning rivers, and toxic air mobilized millions into street protests. When looking away was no longer an option, conservation was forced onto political agendas, sparking landmark environmental laws and flipping planet‑care from fringe concern to global priority. Every April 22, over 190 countries pause, reflect, and reassess.
+> 
+> The 2026 theme, 'Our Power, Our Planet,' sets an ambitious target: triple renewable energy capacity worldwide by 2030. But action isn't only about turbines and solar panels. It's also protecting the natural engines already doing heavy lifting. Take Alam‑Pedja Nature Reserve in Estonia, captured here. Since 1994, it has safeguarded one of Europe's largest wetland systems. How? By letting it be. Rivers run freely, bogs store carbon, and floodplains soak excess water without concrete barriers. Elk, lynx, and black storks thrive as seasons redraw the map. Alam‑Pedja teaches that restraint can be the boldest move—to step back and let nature lead the way.
+> 
+> 
+
+</details>
+
+| ![Earth Day](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Earth Day](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_1080x1920.jpg) |
+
 ### 20260421
 
 > European hedgehog, France (© Klein & Hubert/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Skagit Valley Tulip Festival](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Skagit Valley Tulip Festival](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_1080x1920.jpg) |
-
-### 20260415
-
-> The Carrières des Lumières exhibit of Vincent Van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Art surrounds us. Creativity and self-expression are part of human identity and mold our past and future. While some might dedicate their lives to the arts, others are the recipients of what artists channel. World Art Day on April 15 celebrates this ever-flowing link between artistic creations and society that shapes our cultures.
-> 
-> Imagine stepping inside the larger-than-life artworks of Vincent van Gogh, immersing yourself in the bold and textured brushstrokes. The Carrières des Lumières exhibit in Les Baux-de-Provence, France, offered exactly that during its 2019-2020 run.
-> 
-> Housed in a former limestone quarry, the exhibition transformed Van Gogh's paintings into a shared physical space, projected across towering stone walls and floors. Rather than standing back to observe, visitors moved through color, rhythm, and scale, experiencing how technology can reshape the way we encounter art. It's a fitting reflection of World Art Day's purpose: not just honoring masterpieces, but rethinking how art lives, evolves, and continues to engage new audiences.
-
-</details>
-
-| ![World Art Day](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Art Day](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_1080x1920.jpg) |8179_1080x1920.jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_1080x1920.jpg) |933044_1080x1920.jpg) |8179_1080x1920.jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
