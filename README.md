@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260423
+
+> Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Each April 23, the curtain rises on the life and legacy of William Shakespeare, a playwright whose words still command the world's literary stage. Shakespeare Day commemorates the anniversary of his death in 1616 and the traditionally accepted date of his birth in 1564—a symbolic pairing that honors a writer whose works reshaped English literature. From the psychological depths of 'Hamlet' to the enduring romance of 'Romeo and Juliet,' his language continues to echo through classrooms, theaters, and everyday speech. His plays have been performed in numerous languages worldwide.
+> 
+> Today's image shows Anne Hathaway's cottage in Stratford‑upon‑Avon, England, the childhood home of Shakespeare's future wife. This 15th-century thatched cottage, now preserved as a museum, offers a rare glimpse into the domestic world that surrounded the young playwright. Visitors can explore original features, centuries‑old furnishings, and gardens inspired by Tudor life—an evocative setting in which to reflect on a legacy that continues to inspire new generations.
+> 
+> 
+
+</details>
+
+| ![Shakespeare Day](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shakespeare Day](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_1080x1920.jpg) |
+
 ### 20260422
 
 > Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![International Bat Appreciation Day](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Bat Appreciation Day](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |
-
-### 20260416
-
-> Skagit Valley Tulip Fields, Washington (© Alan Majchrowicz/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Each spring, Washington's Skagit Valley transforms into a patchwork of color as the Skagit Valley Tulip Festival celebrates the arrival of bloom season. Throughout April, visitors can explore tulip gardens and farmland lined with vibrant rows of flowers, all framed by mountain views.
-> 
-> The festival isn't limited to one location—it stretches across the valley, inviting guests to discover multiple gardens, each offering its own experience. Some focus on carefully designed displays, while others highlight working farms and wide- open fields. Alongside the flowers, the festival connects visitors with art exhibits, family-friendly activities, and community events hosted throughout the region.
-> 
-> Bloom timing changes every year, making each visit a little different, so checking bloom updates is part of the adventure. What began as a small local celebration in 1984 has grown into one of the Pacific Northwest's most loved spring traditions, drawing photographers, nature lovers, and road trip enthusiasts eager to welcome the season.
-
-</details>
-
-| ![Skagit Valley Tulip Festival](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Skagit Valley Tulip Festival](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_1080x1920.jpg) |933044_1080x1920.jpg) |8179_1080x1920.jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
