@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260424
+
+> Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida (© Mary Liz Austin/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Arbor Day celebrates the quiet power of trees—the way they steady ecosystems, shelter wildlife, cool cities, and shape the environments we rely on every day. Observed in the United States on the last Friday in April, the day encourages communities here—and in many other countries, where dates vary according to growing season—to plant, protect, and care for forests of every kind, from neighborhood canopies to iconic wildlands.
+> 
+> In Florida's Everglades National Park, a UNESCO World Heritage Site, elevated pinelands rise above the marshes and prairies that form one of the world's largest wetland systems. Seen here, sunlit slash pines and saw palmetto create open woodlands that contrast sharply with the Everglades' vast wetlands and mangrove forests. On Arbor Day, landscapes like this offer a clear reminder of how essential trees are to the health and balance of this remarkable subtropical ecosystem.
+> 
+> 
+
+</details>
+
+| ![Arbor Day](https://cn.bing.com/th?id=OHR.SlashPine_EN-US2059787604_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arbor Day](https://cn.bing.com/th?id=OHR.SlashPine_EN-US2059787604_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SlashPine_EN-US2059787604_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SlashPine_EN-US2059787604_1080x1920.jpg) |
+
 ### 20260423
 
 > Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![World Heritage Day](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Heritage Day](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_1080x1920.jpg) |
-
-### 20260417
-
-> Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> On April 17, International Bat Appreciation Day flips its cape to the planet's night shift: bats. With more than 1,400 species on every continent except Antarctica, these winged mammals keep ecosystems balanced. They've been on Earth for over 50 million years, and only three species are true vampires. Found only in the Americas, these bats feed on blood, while the rest survive on insects, fruit, nectar, or pollen. In Texas, Bracken Cave can host up to 20 million Mexican free-tailed bats in summer. Many gulp crop pests, cutting pesticide use; others pollinate wild agaves and disperse seeds that help forests rebound.
-> 
-> In today's image, a grey-headed flying fox mom in Yarra Bend Park, Australia, carries her pup. One of the country's largest bats, she can span about 3 feet, navigates by sharp sight and smell—not echolocation—and flies up to 30 miles for figs and blossoms. Batman is fictional; the real bat-signal is conservation, as habitat loss and disease are shrinking populations.
-> 
-> 
-
-</details>
-
-| ![International Bat Appreciation Day](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Bat Appreciation Day](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_1080x1920.jpg) |d=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
