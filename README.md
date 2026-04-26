@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260425
+
+> Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Penguins usually bring Antarctica to mind, but these endearing flightless seabirds don't always follow the ice. On World Penguin Day, the Galápagos penguins pictured here offer a vivid counterpoint. Found only in the Galápagos Islands—a volcanic archipelago about 600 miles off Ecuador's coast—this species lives farther north than any other penguin. Cool, nutrient‑rich ocean currents make this equatorial habitat possible by supplying food and keeping surrounding waters within survivable temperatures. Compact and agile, these birds spend much of the day in the water to stay cool.
+> 
+> Due to their restricted range, they are especially susceptible to changes in ocean temperature and food availability. On World Penguin Day, this rare tropical scene highlights the remarkable diversity of penguins worldwide and the fragile balance that sustains species living at the limits of their habitats.
+> 
+> 
+
+</details>
+
+| ![World Penguin Day](https://cn.bing.com/th?id=OHR.GalapagosPenguins_EN-US2287809863_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Penguin Day](https://cn.bing.com/th?id=OHR.GalapagosPenguins_EN-US2287809863_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GalapagosPenguins_EN-US2287809863_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GalapagosPenguins_EN-US2287809863_1080x1920.jpg) |
+
 ### 20260424
 
 > Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida (© Mary Liz Austin/Alamy)
@@ -112,26 +131,7 @@
 
 | ![National Library Week](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Library Week](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_1080x1920.jpg) |
-
-### 20260418
-
-> Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Today, on World Heritage Day, attention turns to places that tell humanity's shared story—protected for their exceptional cultural or natural value. One of them rises from volcanic stone on Easter Island, Chile. At Rano Raraku, the slopes of an extinct volcano became the workshop where nearly all of the island's famous moai were carved. The image captures this remarkable quarry, where half-finished figures emerge from the rock, frozen mid-creation.
-> 
-> Carved by the Rapa Nui people between about the 13th and 16th centuries, the statues were shaped directly from compressed volcanic ash, then transported across the island to ceremonial platforms. Rano Raraku lies within Rapa Nui National Park, a UNESCO World Heritage Site recognized for its extraordinary archaeological landscape and living Polynesian heritage.
-> 
-> World Heritage Day highlights why protecting such places matters. Sites like Rano Raraku are more than landmarks—they are records of human ingenuity, belief, and connection to the land, preserved for future generations to study and experience.
-
-</details>
-
-| ![World Heritage Day](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Heritage Day](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_1080x1920.jpg) |d=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_1080x1920.jpg) |752877903_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_1080x1920.jpg) |d=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
