@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260426
+
+> Pink apple blossoms, Avila Beach, California (© Mimi Ditchie Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Spring brings apple trees to life with clouds of soft pink blossoms. Their delicate petals brighten orchards and hillsides, standing out against clear blue skies as the season shifts from winter toward warmer days. These blooms attract pollinators such as bees and butterflies, helping fruit trees produce the apples that will grow later in the year.
+> 
+> Along the central coast of California, mild temperatures and steady sunshine support this seasonal display. In places like Avila Beach, flowering trees spread across nearby valleys and hills while ocean breezes move through the landscape. Spring weather also draws people outdoors for activities such as cycling, hiking, and golf.
+> 
+> Apple orchards reflect a long agricultural tradition in this region. Trees planted for fruit and shade still grow throughout surrounding valleys, connecting today's scenery with earlier farming practices. A walk among blooming apple trees in spring brings color, fragrance, and a gentle reminder of the seasonal rhythm along California's coast.
+
+</details>
+
+| ![Pink apple blossoms, Avila Beach, California](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pink apple blossoms, Avila Beach, California](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |
+
 ### 20260425
 
 > Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![National Park Week](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Park Week](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_1080x1920.jpg) |
-
-### 20260419
-
-> Books in the children's section of The New York Public Library, New York (© Ken Welsh/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> National Library Week kicks off today as libraries across the United States celebrate the power of free access to knowledge—and for younger generations, that availability can be life-shaping. Created by the American Library Association, it highlights how libraries support literacy, curiosity, and learning at every age, especially in childhood, when reading habits first take root.
-> 
-> The image of books lining the children's section of The New York Public Library captures this idea in action. At the Children's Center in the Stephen A. Schwarzman Building, shelves are designed for small hands and big questions, offering picture books, early readers, and nonfiction that invite exploration and imagination. These spaces encourage children to choose their own stories, build vocabulary, and discover that learning can be joyful, not intimidating.
-> 
-> National Library Week also celebrates libraries as shared civic spaces. In a time when reliable knowledge can feel fragmented, libraries remain trusted places to learn, connect, and explore ideas.
-
-</details>
-
-| ![National Library Week](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Library Week](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_1080x1920.jpg) |752877903_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_1080x1920.jpg) |d=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_1080x1920.jpg) |d=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
