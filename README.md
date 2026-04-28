@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260427
+
+> The glass dome of Galleria Vittorio Emanuele II, Milan, Italy (© PhillipMinnis/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Designed by architect Giuseppe Mengoni and completed in 1877, the Galleria Vittorio Emanuele II in Milan, Italy, is one of the world's oldest and most famous shopping arcades. Located between Piazza del Duomo and Piazza della Scala, it features a stunning glass-and-iron roof and an elegant, octagonal layout. Affectionately known as 'Milan's living room,' the Galleria is home to high-end boutiques, historic cafés such as Caffè Biffi and Camparino in Galleria, and renowned restaurants.
+> 
+> Over the years, the Galleria has undergone several restorations, including major projects in the 1950s to repair damage caused by World War II, in the 1980s to preserve the original structure, and most recently in preparation for the 2015 Expo. One of the most iconic features is the bull mosaic set into the floor, around which visitors spin for good luck. Among its notable features are four mosaics representing Europe, Asia, Africa, and America. It remains a symbol of Milan's elegance and cultural sophistication, attracting locals and tourists.
+> 
+> 
+
+</details>
+
+| ![The glass dome of Galleria Vittorio Emanuele II, Milan, Italy](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The glass dome of Galleria Vittorio Emanuele II, Milan, Italy](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |
+
 ### 20260426
 
 > Pink apple blossoms, Avila Beach, California (© Mimi Ditchie Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![European hedgehog, France](https://cn.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European hedgehog, France](https://cn.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_1080x1920.jpg) |
-
-### 20260420
-
-> Sunset in Canyonlands National Park, Moab, Utah (© Jason Hatfield/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> National Park Week is your cue to trade routine for trail dust. It's a nine-day celebration running April 18–26, highlighting more than 400 places across the National Park System that preserve natural and cultural heritage while creating unforgettable outdoor experiences. From coastlines and forests to vast desert landscapes, these protected sites invite exploration, reflection, and wonder.
-> 
-> In southeastern Utah, Canyonlands National Park near Moab offers a striking reminder that the adventure doesn't end at sundown. As the last light fades, the Colorado and Green rivers trace their way through carved canyons, towering buttes, and rugged spires. With its remote setting and minimal light pollution, the park's clear skies reveal a brilliant canopy of stars.
-> 
-> Designated an International Dark Sky Park, Canyonlands is one of the best places to experience the desert after dark. Stargazing here doesn't require heading deep into the backcountry—short walks and scenic pullouts provide unforgettable nighttime views, especially on moonless nights when the Milky Way stretches across the sky.
-
-</details>
-
-| ![National Park Week](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Park Week](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_1080x1920.jpg) |d=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_1080x1920.jpg) |MaoiStatues_EN-US0752877903_1080x1920.jpg) |d=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
