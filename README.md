@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260429
+
+> Belém Tower on the bank of the Tagus River, Lisbon, Portugal (© f9photos/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Ships leaving Lisbon once passed a small stone tower before meeting the wide Atlantic. That tower, standing on the bank of the Tagus River, served as both a guardian and a farewell. Say hello to Belém Tower—a fortress that watched Portugal sail into the Age of Exploration.
+> 
+> Built in the early 1500s under King Manuel I of Portugal, the tower helped defend Lisbon's harbor while explorers set out to chart new sea routes. Its Manueline design mixes Gothic forms with maritime symbols—stone ropes, shields, and sea-inspired carvings that clearly embraced their oceanic purpose.
+> 
+> The tower once stood on a small island, but shifting riverbanks brought it closer to land. Inside were cannons, soldiers, and even prisoners. Today, this UNESCO World Heritage Site is proof that some landmarks truly stand the test of time and tide.
+
+</details>
+
+| ![Belém Tower, Lisbon, Portugal](https://cn.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Belém Tower, Lisbon, Portugal](https://cn.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_1080x1920.jpg) |
+
 ### 20260428
 
 > Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)
@@ -112,25 +131,7 @@
 
 | ![Shakespeare Day](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shakespeare Day](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_1080x1920.jpg) |
-
-### 20260422
-
-> Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Earth Day didn't knock gently. It kicked the door wide open. In 1970, oil‑soaked beaches, burning rivers, and toxic air mobilized millions into street protests. When looking away was no longer an option, conservation was forced onto political agendas, sparking landmark environmental laws and flipping planet‑care from fringe concern to global priority. Every April 22, over 190 countries pause, reflect, and reassess.
-> 
-> The 2026 theme, 'Our Power, Our Planet,' sets an ambitious target: triple renewable energy capacity worldwide by 2030. But action isn't only about turbines and solar panels. It's also protecting the natural engines already doing heavy lifting. Take Alam‑Pedja Nature Reserve in Estonia, captured here. Since 1994, it has safeguarded one of Europe's largest wetland systems. How? By letting it be. Rivers run freely, bogs store carbon, and floodplains soak excess water without concrete barriers. Elk, lynx, and black storks thrive as seasons redraw the map. Alam‑Pedja teaches that restraint can be the boldest move—to step back and let nature lead the way.
-> 
-> 
-
-</details>
-
-| ![Earth Day](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Earth Day](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_1080x1920.jpg) |:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_1080x1920.jpg) |MaoiStatues_EN-US0752877903_1080x1920.jpg) |d=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
