@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260430
+
+> Grape hyacinths and tulips, Keukenhof Gardens, Lisse, Netherlands (© Martin Ruegner/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Imagine a flower sparking a financial frenzy. Sounds unlikely, right? Yet in the 1630s, tulips did exactly that in the Netherlands. During tulip mania, rare bulbs became luxury items traded for astonishing sums—some valued at prices comparable to a house. Why so valuable? Unusual colors and striped patterns were scarce and unpredictable, and collectors wanted the rarest varieties they could find.
+> 
+> The bubble eventually burst, but the country's fascination with tulips never faded. Centuries later, that long relationship with the flower found a new stage: Keukenhof Gardens near Lisse, seen in today's image. Opened in 1950, the park began as a spring exhibition where Dutch bulb growers presented their newest varieties to buyers and visitors.
+> 
+> Each autumn, about 40 gardeners plant over seven million bulbs in layered designs so colors appear in waves through spring. Around 800 varieties of tulips lead the show, while grape hyacinths and daffodils add bursts of blue and yellow. The catch? The garden opens to the public for only a few weeks each year.
+
+</details>
+
+| ![Keukenhof Gardens, Lisse, Netherlands](https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Keukenhof Gardens, Lisse, Netherlands](https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_1080x1920.jpg) |
+
 ### 20260429
 
 > Belém Tower on the bank of the Tagus River, Lisbon, Portugal (© f9photos/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Arbor Day](https://cn.bing.com/th?id=OHR.SlashPine_EN-US2059787604_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arbor Day](https://cn.bing.com/th?id=OHR.SlashPine_EN-US2059787604_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SlashPine_EN-US2059787604_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SlashPine_EN-US2059787604_1080x1920.jpg) |
-
-### 20260423
-
-> Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Each April 23, the curtain rises on the life and legacy of William Shakespeare, a playwright whose words still command the world's literary stage. Shakespeare Day commemorates the anniversary of his death in 1616 and the traditionally accepted date of his birth in 1564—a symbolic pairing that honors a writer whose works reshaped English literature. From the psychological depths of 'Hamlet' to the enduring romance of 'Romeo and Juliet,' his language continues to echo through classrooms, theaters, and everyday speech. His plays have been performed in numerous languages worldwide.
-> 
-> Today's image shows Anne Hathaway's cottage in Stratford‑upon‑Avon, England, the childhood home of Shakespeare's future wife. This 15th-century thatched cottage, now preserved as a museum, offers a rare glimpse into the domestic world that surrounded the young playwright. Visitors can explore original features, centuries‑old furnishings, and gardens inspired by Tudor life—an evocative setting in which to reflect on a legacy that continues to inspire new generations.
-> 
-> 
-
-</details>
-
-| ![Shakespeare Day](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shakespeare Day](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_1080x1920.jpg) |:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_1080x1920.jpg) |MaoiStatues_EN-US0752877903_1080x1920.jpg) |d=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SlashPine_EN-US2059787604_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SlashPine_EN-US2059787604_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_1080x1920.jpg) |MaoiStatues_EN-US0752877903_1080x1920.jpg) |d=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
