@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260502
+
+> Small lake and marsh in Jasper National Park in Alberta, Canada (© Don White/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Can you picture more than 4,200 square miles of protected wilderness? That's Jasper National Park in Alberta, Canada. Established in 1907 as part of a growing network of protected landscapes in the Canadian Rockies, it was designated a national park in 1930. The park reflects both conservation efforts and much older Indigenous connections, including those of the Nakoda and Secwépemc peoples. Its terrain ranges from glacier-fed rivers and alpine meadows to dense conifer forests dominated by spruce and pine.
+> 
+> Wildlife is ever-present. Elk move through open valleys, moose feed in wetlands, and the occasional grizzly bear or wolf is a reminder that this is their space. Caribou still roam parts of the park, though their numbers remain fragile. Do you hope to catch sight of the fauna? Trails range from short walks to multi-day backcountry routes. The Icefields Parkway offers access to glaciers and wide valley views, while Maligne Lake draws paddlers in summer. Winter brings cross-country skiing and snowshoeing. After sunset, Jasper's Dark Sky Preserve status reveals clear, star-filled skies.
+> 
+> 
+
+</details>
+
+| ![Jasper National Park in Alberta, Canada](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Jasper National Park in Alberta, Canada](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_1080x1920.jpg) |
+
 ### 20260501
 
 > Koi fish, Lan Su Chinese Garden, Portland, Oregon (© Greg Vaughn/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Pink apple blossoms, Avila Beach, California](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pink apple blossoms, Avila Beach, California](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |
-
-### 20260425
-
-> Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Penguins usually bring Antarctica to mind, but these endearing flightless seabirds don't always follow the ice. On World Penguin Day, the Galápagos penguins pictured here offer a vivid counterpoint. Found only in the Galápagos Islands—a volcanic archipelago about 600 miles off Ecuador's coast—this species lives farther north than any other penguin. Cool, nutrient‑rich ocean currents make this equatorial habitat possible by supplying food and keeping surrounding waters within survivable temperatures. Compact and agile, these birds spend much of the day in the water to stay cool.
-> 
-> Due to their restricted range, they are especially susceptible to changes in ocean temperature and food availability. On World Penguin Day, this rare tropical scene highlights the remarkable diversity of penguins worldwide and the fragile balance that sustains species living at the limits of their habitats.
-> 
-> 
-
-</details>
-
-| ![World Penguin Day](https://cn.bing.com/th?id=OHR.GalapagosPenguins_EN-US2287809863_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Penguin Day](https://cn.bing.com/th?id=OHR.GalapagosPenguins_EN-US2287809863_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GalapagosPenguins_EN-US2287809863_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GalapagosPenguins_EN-US2287809863_1080x1920.jpg) |-US1627168155_1080x1920.jpg) |MaoiStatues_EN-US0752877903_1080x1920.jpg) |d=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1080x1920.jpg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
