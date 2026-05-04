@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260503
+
+> Leopard sleeping in a tree in savanna, Masai Mara National Reserve, Kenya (© Klein & Hubert/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> High above the savanna in Kenya's Masai Mara, a leopard curls up on a tree branch, napping as the grasslands glow at sunset. On International Leopard Day, observed on May 3, we celebrate one of the world's most adaptable big cats. Leopards roam across Africa and parts of Asia, thriving in habitats that range from forests and mountains to open savannas. Their spotted coats are unique to each individual, like fingerprints, and their powerful climbing skills allow them to stash prey high in trees, out of reach of scavengers.
+> 
+> Mostly active at night, leopards rely on stealth, sharp senses, and patience rather than speed. Despite their resilience, global populations are declining due to habitat loss and conflict with humans. International Leopard Day invites us to learn more—and help ensure these remarkable cats keep their place in the wild.
+> 
+> 
+
+</details>
+
+| ![International Leopard Day](https://cn.bing.com/th?id=OHR.MasaiLeopard_EN-US0388943780_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Leopard Day](https://cn.bing.com/th?id=OHR.MasaiLeopard_EN-US0388943780_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MasaiLeopard_EN-US0388943780_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MasaiLeopard_EN-US0388943780_1080x1920.jpg) |
+
 ### 20260502
 
 > Small lake and marsh in Jasper National Park in Alberta, Canada (© Don White/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![The glass dome of Galleria Vittorio Emanuele II, Milan, Italy](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The glass dome of Galleria Vittorio Emanuele II, Milan, Italy](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |
-
-### 20260426
-
-> Pink apple blossoms, Avila Beach, California (© Mimi Ditchie Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Spring brings apple trees to life with clouds of soft pink blossoms. Their delicate petals brighten orchards and hillsides, standing out against clear blue skies as the season shifts from winter toward warmer days. These blooms attract pollinators such as bees and butterflies, helping fruit trees produce the apples that will grow later in the year.
-> 
-> Along the central coast of California, mild temperatures and steady sunshine support this seasonal display. In places like Avila Beach, flowering trees spread across nearby valleys and hills while ocean breezes move through the landscape. Spring weather also draws people outdoors for activities such as cycling, hiking, and golf.
-> 
-> Apple orchards reflect a long agricultural tradition in this region. Trees planted for fruit and shade still grow throughout surrounding valleys, connecting today's scenery with earlier farming practices. A walk among blooming apple trees in spring brings color, fragrance, and a gentle reminder of the seasonal rhythm along California's coast.
-
-</details>
-
-| ![Pink apple blossoms, Avila Beach, California](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pink apple blossoms, Avila Beach, California](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
