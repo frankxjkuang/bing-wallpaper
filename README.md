@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260504
+
+> Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)
+
+<details>
+<summary>Description</summary>
+
+> May the 4th be with you! On Star Wars Day, reality cosplays as science fiction and dares you to tell the difference. Our image takes us to Ksar Ouled Soltane in Tunisia's Tataouine district, where stacked clay granaries rise like sand‑colored fortresses. Dating back to the 15th century, this storehouse complex was built by Berber communities to protect harvests from heat, theft, and time. Function first. Beauty as a side effect.
+> 
+> Centuries later, filmmakers stumbled upon these structures and instantly recognized the world they were looking for. The architecture slid straight into Star Wars mythology, helping shape Tatooine, a planet whose name echoes Tataouine.
+> 
+> Each May 4, what began as a playful pun grew into a global tribute to visual magic, storytelling, and a galaxy far, far away. Places like this are where imagination gets its texture: a combination of open horizons, sunbaked mud, and human ingenuity. Cinematic wonder isn't limited to special effects—sometimes it's Earth itself, perfectly cast.
+
+</details>
+
+| ![Star Wars Day](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Star Wars Day](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_1080x1920.jpg) |
+
 ### 20260503
 
 > Leopard sleeping in a tree in savanna, Masai Mara National Reserve, Kenya (© Klein & Hubert/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Spectacled bear resting in tree, Ecuador](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spectacled bear resting in tree, Ecuador](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_1080x1920.jpg) |
-
-### 20260427
-
-> The glass dome of Galleria Vittorio Emanuele II, Milan, Italy (© PhillipMinnis/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Designed by architect Giuseppe Mengoni and completed in 1877, the Galleria Vittorio Emanuele II in Milan, Italy, is one of the world's oldest and most famous shopping arcades. Located between Piazza del Duomo and Piazza della Scala, it features a stunning glass-and-iron roof and an elegant, octagonal layout. Affectionately known as 'Milan's living room,' the Galleria is home to high-end boutiques, historic cafés such as Caffè Biffi and Camparino in Galleria, and renowned restaurants.
-> 
-> Over the years, the Galleria has undergone several restorations, including major projects in the 1950s to repair damage caused by World War II, in the 1980s to preserve the original structure, and most recently in preparation for the 2015 Expo. One of the most iconic features is the bull mosaic set into the floor, around which visitors spin for good luck. Among its notable features are four mosaics representing Europe, Asia, Africa, and America. It remains a symbol of Milan's elegance and cultural sophistication, attracting locals and tourists.
-> 
-> 
-
-</details>
-
-| ![The glass dome of Galleria Vittorio Emanuele II, Milan, Italy](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The glass dome of Galleria Vittorio Emanuele II, Milan, Italy](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_1080x1920.jpg) |2_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
