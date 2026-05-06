@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260505
+
+> Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Cinco de Mayo marks a defining moment in history: on May 5, 1862, a smaller Mexican force defeated the French army at the Battle of Puebla, slowing France's attempt to expand its control over the country. It's not Mexico's Independence Day—that's celebrated in September—but a symbol of resilience that later took on special meaning in the United States, where it grew into a celebration of Mexican heritage and culture.
+> 
+> The image of blue agave fields near Tequila, Jalisco, adds another layer to the story. These spiky plants shape a UNESCO-listed cultural landscape, recognized in 2006 for centuries of agave cultivation and tequila production. Blue agave has been used here since the 16th century, linking land, labor, and tradition in a living landscape that remains central to Mexican identity today.
+> 
+> Together, history and landscape remind us that Cinco de Mayo is rooted in real events—and real places.
+
+</details>
+
+| ![Cinco de Mayo](https://cn.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cinco de Mayo](https://cn.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_1080x1920.jpg) |
+
 ### 20260504
 
 > Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)
@@ -112,26 +131,7 @@
 
 | ![Belém Tower, Lisbon, Portugal](https://cn.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Belém Tower, Lisbon, Portugal](https://cn.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_1080x1920.jpg) |
-
-### 20260428
-
-> Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> The spectacled bear, also known as the Andean bear, is the only South American bear of the Ursidae family. Inhabiting the northern and central Andes Mountains, it dwells primarily in forested areas and feeds mainly on shoots and fruit. Pale markings around the eyes often resemble eyeglasses, or 'spectacles,' giving the species its distinctive name.
-> 
-> This animal is an excellent climber and spends much of its time in trees, sometimes building platforms from branches on which to feed or rest. Its diet is mainly vegetarian, consisting of fruit, leaves, and other plant matter, although it may also eat insects or small animals. Generally shy and solitary, they tend to avoid contact with humans. The IUCN considers them vulnerable due to habitat loss, hunting, and other human pressures. Safeguarding the spectacled bear means protecting a living treasure of the Andes and ensuring that this gentle forest guardian continues to thrive.
-> 
-> 
-
-</details>
-
-| ![Spectacled bear resting in tree, Ecuador](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Spectacled bear resting in tree, Ecuador](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_1080x1920.jpg) |2_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_1080x1920.jpg) |2_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
