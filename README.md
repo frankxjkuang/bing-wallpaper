@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260507
+
+> Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Stretching across the Sonoran Desert in southwestern Arizona, Kofa National Wildlife Refuge is a land of sharp peaks, wide skies, and surprising life. The refuge was established in 1939 to protect desert bighorn sheep, whose sure-footed silhouettes still define the rugged landscape.
+> 
+> The name 'Kofa' comes from the historic King of Arizona gold mine, once a booming operation in the nearby mountains—its title shortened into a single, memorable word.
+> 
+> Today, Kofa spans 665,400 acres of open desert, where saguaros rise from rocky washes and quiet canyons shelter rare palm groves. Bighorn sheep share this vast terrain with desert tortoises, coyotes, and cactus wrens—each adapted to heat, scarcity, and space. Hiking routes and backcountry tracks reveal ancient volcanic rock, sudden blooms after rain, and seemingly endless horizons. At dusk, light softens the desert, and wildlife stirs beneath the cooling air. Remote and largely undeveloped, Kofa rewards curiosity with silence, scale, and the thrill of true desert wilderness.
+
+</details>
+
+| ![Kofa National Wildlife Refuge, Arizona](https://cn.bing.com/th?id=OHR.Kofa_EN-US0655690866_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kofa National Wildlife Refuge, Arizona](https://cn.bing.com/th?id=OHR.Kofa_EN-US0655690866_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Kofa_EN-US0655690866_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Kofa_EN-US0655690866_1080x1920.jpg) |
+
 ### 20260506
 
 > Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Asian American and Pacific Islander Heritage Month](https://cn.bing.com/th?id=OHR.KoiPond_EN-US0207799352_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Asian American and Pacific Islander Heritage Month](https://cn.bing.com/th?id=OHR.KoiPond_EN-US0207799352_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KoiPond_EN-US0207799352_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KoiPond_EN-US0207799352_1080x1920.jpg) |
-
-### 20260430
-
-> Grape hyacinths and tulips, Keukenhof Gardens, Lisse, Netherlands (© Martin Ruegner/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Imagine a flower sparking a financial frenzy. Sounds unlikely, right? Yet in the 1630s, tulips did exactly that in the Netherlands. During tulip mania, rare bulbs became luxury items traded for astonishing sums—some valued at prices comparable to a house. Why so valuable? Unusual colors and striped patterns were scarce and unpredictable, and collectors wanted the rarest varieties they could find.
-> 
-> The bubble eventually burst, but the country's fascination with tulips never faded. Centuries later, that long relationship with the flower found a new stage: Keukenhof Gardens near Lisse, seen in today's image. Opened in 1950, the park began as a spring exhibition where Dutch bulb growers presented their newest varieties to buyers and visitors.
-> 
-> Each autumn, about 40 gardeners plant over seven million bulbs in layered designs so colors appear in waves through spring. Around 800 varieties of tulips lead the show, while grape hyacinths and daffodils add bursts of blue and yellow. The catch? The garden opens to the public for only a few weeks each year.
-
-</details>
-
-| ![Keukenhof Gardens, Lisse, Netherlands](https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Keukenhof Gardens, Lisse, Netherlands](https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KoiPond_EN-US0207799352_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KoiPond_EN-US0207799352_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
