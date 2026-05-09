@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260508
+
+> Sardinian donkey mare and foal, France (© Klein & Hubert/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> World Donkey Day celebrates one of humanity's most quietly capable partners. Donkeys have worked alongside people for thousands of years, prized for their endurance, sharp memory, and sure-footed confidence on rugged ground. Often mistaken for stubborn, they are actually careful thinkers—pausing to assess risk rather than rushing into trouble.
+> 
+> In the image, a Sardinian donkey mare stands close to her foal, a reminder that these animals are not only hardworking but deeply social. Donkeys form strong bonds, recognize familiar faces long after separation, and communicate with brays that can travel miles across open land. Their famously long ears help with both hearing and cooling in hot climates.
+> 
+> First domesticated from African wild asses, donkeys helped move goods, shape trade routes, and support daily life long before engines existed. World Donkey Day, observed each year on May 8, invites us to notice their intelligence, resilience, and lasting role in human history—past, present, and braying proudly into the future.
+
+</details>
+
+| ![World Donkey Day](https://cn.bing.com/th?id=OHR.SardinianDonkey_EN-US0705945312_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Donkey Day](https://cn.bing.com/th?id=OHR.SardinianDonkey_EN-US0705945312_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_EN-US0705945312_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_EN-US0705945312_1080x1920.jpg) |
+
 ### 20260507
 
 > Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Jasper National Park in Alberta, Canada](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Jasper National Park in Alberta, Canada](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_1080x1920.jpg) |
-
-### 20260501
-
-> Koi fish, Lan Su Chinese Garden, Portland, Oregon (© Greg Vaughn/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> They don't rush—they ripple. Meet the koi, photographed at a Lan Su Chinese Garden pond in Portland, Oregon. In many Asian cultures, these colorful swimmers symbolize patience, perseverance, and transformation. They can live for decades—some reach 25 to 50 years, and others live far longer: one koi named Hanako was reportedly 226 years old.
-> 
-> In China, paintings of nine koi represent wealth and prosperity, while a pair of black-and-white fish symbolizes balance, or yin and yang. The legend of a koi swimming upstream and leaping a waterfall to become a dragon reminds us to keep moving. In Japan, they are associated with samurai, embodying composure and the spirit of Bushido (the way of the warrior). Koi are also associated with love, thanks to a homophone in Japanese, and appear in Children's Day celebrations as carp-shaped streamers, or koinobori.
-> 
-> This May—Asian American and Pacific Islander Heritage Month—let them inspire you to honor your roots, embrace growth, and carp-e diem—one ripple at a time.
-
-</details>
-
-| ![Asian American and Pacific Islander Heritage Month](https://cn.bing.com/th?id=OHR.KoiPond_EN-US0207799352_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Asian American and Pacific Islander Heritage Month](https://cn.bing.com/th?id=OHR.KoiPond_EN-US0207799352_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KoiPond_EN-US0207799352_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KoiPond_EN-US0207799352_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_1080x1920.jpg) |99352_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
