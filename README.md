@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260510
+
+> Polar bear mother and cubs playing in Wapusk National Park, Manitoba, Canada (© Hao Jiang/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On Mother's Day, we honor the care, patience, and protection that shape lives everywhere. In the wild, these qualities often stand out most where survival is hardest. Captured in Wapusk National Park in northern Manitoba, Canada, today's image shows a polar bear mother and her cubs sharing a playful moment on the Arctic tundra.
+> 
+> For polar bears, motherhood is a long and demanding commitment. Females give birth in winter, sheltering their newborn cubs in snow dens that provide vital insulation. Cubs are born very small and rely entirely on their mother's rich milk for warmth and growth. For more than two years, she raises them alone—guiding their movements, teaching essential survival skills, and protecting them from danger. Play helps cubs build strength and coordination before they face life on their own. The scene offers a quiet reminder of the dedication behind motherhood—enduring, protective, and essential—even in one of the world's harshest environments.
+> 
+> 
+
+</details>
+
+| ![Happy Mother's Day!](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Mother's Day!](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_1080x1920.jpg) |
+
 ### 20260509
 
 > Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)
@@ -112,26 +131,7 @@
 
 | ![Star Wars Day](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Star Wars Day](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_1080x1920.jpg) |
-
-### 20260503
-
-> Leopard sleeping in a tree in savanna, Masai Mara National Reserve, Kenya (© Klein & Hubert/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> High above the savanna in Kenya's Masai Mara, a leopard curls up on a tree branch, napping as the grasslands glow at sunset. On International Leopard Day, observed on May 3, we celebrate one of the world's most adaptable big cats. Leopards roam across Africa and parts of Asia, thriving in habitats that range from forests and mountains to open savannas. Their spotted coats are unique to each individual, like fingerprints, and their powerful climbing skills allow them to stash prey high in trees, out of reach of scavengers.
-> 
-> Mostly active at night, leopards rely on stealth, sharp senses, and patience rather than speed. Despite their resilience, global populations are declining due to habitat loss and conflict with humans. International Leopard Day invites us to learn more—and help ensure these remarkable cats keep their place in the wild.
-> 
-> 
-
-</details>
-
-| ![International Leopard Day](https://cn.bing.com/th?id=OHR.MasaiLeopard_EN-US0388943780_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Leopard Day](https://cn.bing.com/th?id=OHR.MasaiLeopard_EN-US0388943780_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MasaiLeopard_EN-US0388943780_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MasaiLeopard_EN-US0388943780_1080x1920.jpg) |GreenJasper_EN-US0253969334_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_1080x1920.jpg) |99352_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_1080x1920.jpg) |reenJasper_EN-US0253969334_1080x1920.jpg) |99352_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
