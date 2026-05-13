@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260512
+
+> Atlantic puffins, Wales (© FLPA/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Along the rocky coasts of the North Atlantic, Atlantic puffins make their homes in burrows and cliffside crevices. These seabirds, with their black‑and‑white plumage and colorful beaks, are classified by the IUCN as vulnerable, as overfishing and changing ocean conditions reduce the availability of their prey. Each spring, they return to breed, laying a single egg in carefully dug burrows. Remarkable swimmers, they use their wings to 'fly' underwater when hunting small fish such as herring and sand eels.
+> 
+> During the breeding season, their beaks brighten in color, helping attract a mate. Observing puffins in their natural habitat reveals a seabird perfectly adapted to both air and sea, resilient yet facing modern environmental challenges. A fun pop-culture twist: these charismatic birds inspired the 'porgs'—adorable bird-like creatures in 'Star Wars: The Last Jedi.' The filmmakers embraced their likeness rather than digitally remove them from a real ocean island set.
+> 
+> 
+
+</details>
+
+| ![Atlantic puffins, Wales](https://cn.bing.com/th?id=OHR.Fratercula_EN-US1020898539_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Atlantic puffins, Wales](https://cn.bing.com/th?id=OHR.Fratercula_EN-US1020898539_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Fratercula_EN-US1020898539_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Fratercula_EN-US1020898539_1080x1920.jpg) |
+
 ### 20260511
 
 > Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Thunderstorm above the plains, Bulgaria](https://cn.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Thunderstorm above the plains, Bulgaria](https://cn.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_1080x1920.jpg) |
-
-### 20260505
-
-> Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Cinco de Mayo marks a defining moment in history: on May 5, 1862, a smaller Mexican force defeated the French army at the Battle of Puebla, slowing France's attempt to expand its control over the country. It's not Mexico's Independence Day—that's celebrated in September—but a symbol of resilience that later took on special meaning in the United States, where it grew into a celebration of Mexican heritage and culture.
-> 
-> The image of blue agave fields near Tequila, Jalisco, adds another layer to the story. These spiky plants shape a UNESCO-listed cultural landscape, recognized in 2006 for centuries of agave cultivation and tequila production. Blue agave has been used here since the 16th century, linking land, labor, and tradition in a living landscape that remains central to Mexican identity today.
-> 
-> Together, history and landscape remind us that Cinco de Mayo is rooted in real events—and real places.
-
-</details>
-
-| ![Cinco de Mayo](https://cn.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cinco de Mayo](https://cn.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_1080x1920.jpg) |id=OHR.DutchTulips_EN-US2575617067_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
