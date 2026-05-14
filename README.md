@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260513
+
+> Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> In today's image, the granite arches of the Alabama Hills frame the Milky Way over a rugged landscape in California's eastern Sierra Nevada. Famous for its rounded boulders and weathered rock formations, this area formed when molten rock cooled deep underground around 100 million years ago. Water and wind gradually shaped the stone into the smooth shapes seen today. Visitors can explore the natural arches, hike among the rocks, capture photographs of the unique landscape, ride horses or mountain bikes, and enjoy seasonal displays of wildflowers.
+> 
+> With minimal light pollution, the hills are popular for stargazing and night photography. On a clear night, the dense band of stars that forms our galaxy is visible to the naked eye. While it might look like a peaceful desert today, this terrain has played many roles on screen. Since the 1920s, hundreds of movies and television shows have used these hills as a backdrop for westerns and sci-fi adventures, including 'Yellow Sky' with Gregory Peck, 'Django Unchained' by Quentin Tarantino, and the Marvel classic 'Iron Man' by Jon Favreau.
+> 
+> 
+
+</details>
+
+| ![Arch and Milky Way, Alabama Hills, Sierra Nevada, California](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arch and Milky Way, Alabama Hills, Sierra Nevada, California](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_1080x1920.jpg) |
+
 ### 20260512
 
 > Atlantic puffins, Wales (© FLPA/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Kofa National Wildlife Refuge, Arizona](https://cn.bing.com/th?id=OHR.Kofa_EN-US0655690866_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kofa National Wildlife Refuge, Arizona](https://cn.bing.com/th?id=OHR.Kofa_EN-US0655690866_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Kofa_EN-US0655690866_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Kofa_EN-US0655690866_1080x1920.jpg) |
-
-### 20260506
-
-> Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Located on the eastern Balkan Peninsula, Bulgaria sits at the crossroads of Europe and Asia, where ancient cultures, fertile landscapes, and shifting climates converge.
-> 
-> Under dramatic skies, Bulgaria's two great plains reveal the country's agricultural heart. The Danubian Plain spreads across the north, a rolling landscape of fields and river valleys shaped by a temperate continental climate, where warm summers often fuel powerful thunderstorms. Farther south lies the Upper Thracian Plain, lower and warmer, influenced by continental systems and Mediterranean air masses flowing inward from the Aegean region. Here, hot summers and moisture from the Maritsa River basin combine to make the region especially prone to intense summer storms—like the one unfolding above the plains in this image.
-> 
-> Together, these plains anchor Bulgaria's food production and reflect a land where weather, geography, and human history remain closely linked.
-
-</details>
-
-| ![Thunderstorm above the plains, Bulgaria](https://cn.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Thunderstorm above the plains, Bulgaria](https://cn.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1080x1920.jpg) |load landscape 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Kofa_EN-US0655690866_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Kofa_EN-US0655690866_1080x1920.jpg) |id=OHR.AppleBlossoms_EN-US2396192691_1080x1920.jpg) |pg) |jpg) |yo_ZH-CN7708804019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
