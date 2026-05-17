@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260516
+
+> Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> What do you call a place where the rocks do the climbing, and humans try to keep up? Welcome to Smith Rock State Park in Oregon, where cliffs rise fast, and excuses fall faster. It sits inside the 26-mile-long Crooked River Caldera, shaped by multiple volcanic eruptions. Its welded tuff cliffs are made from compressed volcanic ash that cooled under pressure. The Crooked River carved the canyon, while formations like the Spire rise up to 700 feet.
+> 
+> The park helped launch modern sport climbing in the 1980s and now hosts over 2,000 routes. Trails like Misery Ridge offer sweeping views, with a side of leg burn. Wildlife keeps things lively, from golden eagles to river otters, with the occasional mountain lion cameo.
+> 
+> It is one of the 'Seven Wonders of Oregon,' just 30 minutes from the city of Bend. Summer can top 100°F, so spring and fall are the sweet spots, with mild temperatures and clear skies. Smith Rock keeps things simple. It rocks, you roll.
+
+</details>
+
+| ![Smith Rock State Park, Oregon](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Smith Rock State Park, Oregon](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_1080x1920.jpg) |
+
 ### 20260515
 
 > A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Happy Mother's Day!](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Mother's Day!](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_1080x1920.jpg) |
-
-### 20260509
-
-> Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> Water is the architect of Krka National Park in Croatia, shaping emerald pools and layered waterfalls along the Krka River. Today's image highlights Skradinski Buk, the park's most famous waterfall system, where multiple streams spill over travertine terraces in a dense forest near the village of Lozovac.
-> 
-> Skradinski Buk is not a single waterfall, but a wide cascade of 17 steps stretching nearly half a mile. These terraces form when mineral-rich water flows over moss and stone, slowly creating natural barriers that reshape the river's course. Wooden walkways cross the water, offering close-up views of rushing falls, small islands, and restored watermills that once powered local communities.
-> 
-> Beyond the waterfall complex, Krka National Park protects a network of natural waters and wildlife habitats, making it one of Croatia's most distinctive landscapes—where movement, history, and geology remain deeply intertwined.
-
-</details>
-
-| ![Skradinski Buk Waterfall, Krka National Park, Croatia](https://cn.bing.com/th?id=OHR.SkradinskiBuk_EN-US0750882952_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Skradinski Buk Waterfall, Krka National Park, Croatia](https://cn.bing.com/th?id=OHR.SkradinskiBuk_EN-US0750882952_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SkradinskiBuk_EN-US0750882952_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SkradinskiBuk_EN-US0750882952_1080x1920.jpg) |c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_1080x1920.jpg) |id=OHR.SkradinskiBuk_EN-US0750882952_1080x1920.jpg) |c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
