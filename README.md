@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260517
+
+> Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> How high is high enough for a great view? In the eastern United States, it doesn't take much. Hawksbill Mountain is the highest point in Shenandoah National Park, Virginia, at 4,050 feet, showing how these older mountains rely on openness, not elevation. The park's establishment in 1935 involved reforestation after extensive farming and logging. Today, much of that land has returned to forest, supporting mixed hardwoods, mountain laurel, and rhododendron. What else? Some of the rocks found here date back over 1 billion years, among the oldest in the state. The park shelters over 200 bird species and 32 species of fish and remains dog friendly, allowing pets in campgrounds and on most trails.
+> 
+> Hawksbill's summit does not rely on steep cliffs. Instead, a stone platform built in the 1930s by the Civilian Conservation Corps marks the top. From here, ridges stretch into the distance in soft blue layers, an effect caused by atmospheric scattering. Skyline Drive connects visitors to trailheads leading to peaks like this.
+> 
+> 
+
+</details>
+
+| ![Hawksbill Mountain in Shenandoah National Park, Virginia](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hawksbill Mountain in Shenandoah National Park, Virginia](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1080x1920.jpg) |
+
 ### 20260516
 
 > Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Great Barrier Reef from above, Queensland, Australia](https://cn.bing.com/th?id=OHR.QueenslandReef_EN-US0977236952_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Barrier Reef from above, Queensland, Australia](https://cn.bing.com/th?id=OHR.QueenslandReef_EN-US0977236952_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QueenslandReef_EN-US0977236952_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QueenslandReef_EN-US0977236952_1080x1920.jpg) |
-
-### 20260510
-
-> Polar bear mother and cubs playing in Wapusk National Park, Manitoba, Canada (© Hao Jiang/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On Mother's Day, we honor the care, patience, and protection that shape lives everywhere. In the wild, these qualities often stand out most where survival is hardest. Captured in Wapusk National Park in northern Manitoba, Canada, today's image shows a polar bear mother and her cubs sharing a playful moment on the Arctic tundra.
-> 
-> For polar bears, motherhood is a long and demanding commitment. Females give birth in winter, sheltering their newborn cubs in snow dens that provide vital insulation. Cubs are born very small and rely entirely on their mother's rich milk for warmth and growth. For more than two years, she raises them alone—guiding their movements, teaching essential survival skills, and protecting them from danger. Play helps cubs build strength and coordination before they face life on their own. The scene offers a quiet reminder of the dedication behind motherhood—enduring, protective, and essential—even in one of the world's harshest environments.
-> 
-> 
-
-</details>
-
-| ![Happy Mother's Day!](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Mother's Day!](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_1080x1920.jpg) |id=OHR.SkradinskiBuk_EN-US0750882952_1080x1920.jpg) |c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QueenslandReef_EN-US0977236952_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QueenslandReef_EN-US0977236952_1080x1920.jpg) |d=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
