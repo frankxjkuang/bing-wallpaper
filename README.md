@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260519
+
+> Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> At Mallorca's far northern tip, in Spain's Balearic Islands, the Formentor Lighthouse stands on the sheer cliffs of Cap de Formentor. This exposed headland is often called the 'Meeting of the Winds.' Built in 1863 and first lit on September 30 of that year, the lighthouse rises nearly 700 feet above the Mediterranean Sea and is reached by a narrow, switchback road about 8 miles from Port de Pollença. Under your feet is pale limestone—rock formed from ancient marine life and later lifted and carved by erosion into dramatic faces, sea caves, and natural arches. This rugged geology gives rise to the area's stark beauty and sense of isolation. Want to earn the view? Follow one of the peninsula's hiking routes, or tackle the short, steep climb to Talaia d'Albercutx for a watchtower panorama before continuing to the lighthouse. Keep an eye on the slopes: wild goats, descended from early domestic herds, spring across the ledges with effortless balance.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Formentor Lighthouse, Mallorca, Balearic Islands, Spain](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Formentor Lighthouse, Mallorca, Balearic Islands, Spain](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_1080x1920.jpg) |
+
 ### 20260518
 
 > Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Arch and Milky Way, Alabama Hills, Sierra Nevada, California](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arch and Milky Way, Alabama Hills, Sierra Nevada, California](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_1080x1920.jpg) |
-
-### 20260512
-
-> Atlantic puffins, Wales (© FLPA/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Along the rocky coasts of the North Atlantic, Atlantic puffins make their homes in burrows and cliffside crevices. These seabirds, with their black‑and‑white plumage and colorful beaks, are classified by the IUCN as vulnerable, as overfishing and changing ocean conditions reduce the availability of their prey. Each spring, they return to breed, laying a single egg in carefully dug burrows. Remarkable swimmers, they use their wings to 'fly' underwater when hunting small fish such as herring and sand eels.
-> 
-> During the breeding season, their beaks brighten in color, helping attract a mate. Observing puffins in their natural habitat reveals a seabird perfectly adapted to both air and sea, resilient yet facing modern environmental challenges. A fun pop-culture twist: these charismatic birds inspired the 'porgs'—adorable bird-like creatures in 'Star Wars: The Last Jedi.' The filmmakers embraced their likeness rather than digitally remove them from a real ocean island set.
-> 
-> 
-
-</details>
-
-| ![Atlantic puffins, Wales](https://cn.bing.com/th?id=OHR.Fratercula_EN-US1020898539_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Atlantic puffins, Wales](https://cn.bing.com/th?id=OHR.Fratercula_EN-US1020898539_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Fratercula_EN-US1020898539_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Fratercula_EN-US1020898539_1080x1920.jpg) |HR.QueenslandReef_EN-US0977236952_1080x1920.jpg) |d=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
