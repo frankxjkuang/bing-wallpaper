@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260520
+
+> Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> A soft buzz and a dusting of pollen can shape the future of our food. World Bee Day, observed each year on May 20, celebrates pollinators like the bumble bee pictured here during its quiet yet essential work. Unlike many insects, bumble bees use 'buzz pollination,' vibrating their flight muscles to shake pollen from flowers—a method vital for crops such as tomatoes, peppers, and blueberries.
+> 
+> Bees and other pollinators contribute to more than 75% of the world's major food crops, improving both yield and quality. Recognizing their importance, the United Nations designated World Bee Day in 2018 to draw attention to their role and the growing threats they face, from habitat loss to climate change.
+> 
+> With over 20,000 bee species worldwide—most of them wild—protecting pollinators also means safeguarding entire ecosystems. Each flower visit, like this one, supports biodiversity and helps keep food systems resilient, one vibration at a time.
+
+</details>
+
+| ![World Bee Day](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bee Day](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_1080x1920.jpg) |
+
 ### 20260519
 
 > Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Pitigliano, Tuscany, Italy](https://cn.bing.com/th?id=OHR.Pitigliano_EN-US1208308627_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pitigliano, Tuscany, Italy](https://cn.bing.com/th?id=OHR.Pitigliano_EN-US1208308627_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Pitigliano_EN-US1208308627_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Pitigliano_EN-US1208308627_1080x1920.jpg) |
-
-### 20260513
-
-> Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> In today's image, the granite arches of the Alabama Hills frame the Milky Way over a rugged landscape in California's eastern Sierra Nevada. Famous for its rounded boulders and weathered rock formations, this area formed when molten rock cooled deep underground around 100 million years ago. Water and wind gradually shaped the stone into the smooth shapes seen today. Visitors can explore the natural arches, hike among the rocks, capture photographs of the unique landscape, ride horses or mountain bikes, and enjoy seasonal displays of wildflowers.
-> 
-> With minimal light pollution, the hills are popular for stargazing and night photography. On a clear night, the dense band of stars that forms our galaxy is visible to the naked eye. While it might look like a peaceful desert today, this terrain has played many roles on screen. Since the 1920s, hundreds of movies and television shows have used these hills as a backdrop for westerns and sci-fi adventures, including 'Yellow Sky' with Gregory Peck, 'Django Unchained' by Quentin Tarantino, and the Marvel classic 'Iron Man' by Jon Favreau.
-> 
-> 
-
-</details>
-
-| ![Arch and Milky Way, Alabama Hills, Sierra Nevada, California](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arch and Milky Way, Alabama Hills, Sierra Nevada, California](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Pitigliano_EN-US1208308627_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Pitigliano_EN-US1208308627_1080x1920.jpg) |52_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
