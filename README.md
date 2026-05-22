@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260521
+
+> Tea terraces in Sichuan Province, China (© lzf/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> International Tea Day celebrates a drink that connects daily rituals to ancient landscapes. Just one look at the terraced tea fields of Sichuan Province, China, shows how deep those roots run. This misty region in southwest China is one of the earliest centers of tea culture, where people drank and cultivated tea more than 2,000 years ago. On nearby Mengding Mountain, a scholar named Wu Lizhen planted some of the world's first managed tea gardens during the Han Dynasty, laying the groundwork for generations of growers.
+> 
+> The steep terraces weren't built for beauty alone. They helped farmers manage rainfall, protect fragile soil, and hand-pick tender leaves that later traveled far beyond Sichuan. For centuries, harvests from these hills moved along rugged trade routes toward Tibet, carried by porters across mountain passes.
+> 
+> Recognized by the United Nations, International Tea Day highlights the beverage's cultural legacy and the millions of livelihoods tied to every cup—whether brewed at home or grown on a mountainside.
+
+</details>
+
+| ![International Tea Day](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Tea Day](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_1080x1920.jpg) |
+
 ### 20260520
 
 > Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Endangered Species Day](https://cn.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Day](https://cn.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_1080x1920.jpg) |
-
-### 20260514
-
-> Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)
-
-<details>
-<summary>Description</summary>
-
-> Perched on a tufa ridge in southern Tuscany, Italy, Pitigliano is a small town with a big personality. Its roots stretch back to Etruscan times, and the winding streets still echo the past, from medieval fortifications to Renaissance palaces. Walking through its narrow alleys, you can feel centuries of life carved into the stone, while small piazzas invite pauses for coffee or gelato. This enduring treasure is often called 'Little Jerusalem' for its historic Jewish quarter, where a synagogue and historic cemetery tell stories of a once-thriving community.
-> 
-> Local trattorias serve classic Tuscan dishes, from rich pappardelle with wild boar to creamy pecorino cheeses, making every meal a chance to savor the region. The town's flair comes from its combination of history, architecture, and everyday life—market stalls, church bells, and the chatter of locals. Even a brief stroll through Pitigliano turns into a journey through time, where culture, cuisine, and the simple joy of walking intertwine naturally.
-> 
-> 
-
-</details>
-
-| ![Pitigliano, Tuscany, Italy](https://cn.bing.com/th?id=OHR.Pitigliano_EN-US1208308627_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pitigliano, Tuscany, Italy](https://cn.bing.com/th?id=OHR.Pitigliano_EN-US1208308627_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Pitigliano_EN-US1208308627_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Pitigliano_EN-US1208308627_1080x1920.jpg) |52_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_1080x1920.jpg) |x1920.jpg) |52_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
