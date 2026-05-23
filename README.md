@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260522
+
+> Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Observed each year on May 22, International Day for Biological Diversity is a global reminder that life on Earth is richer—and more fragile—than it appears. Established by the United Nations, today highlights why protecting plants, animals, and ecosystems matters for food, medicine, climate stability, and everyday well-being.
+> 
+> Few places reveal our planet's secrets with such clarity as Kauehi Atoll, seen here from above in the Tuamotu Archipelago of French Polynesia. Its thin coral ring encloses a vast turquoise lagoon, shaped over millennia by living reefs and sheltered currents. Kauehi's ecosystem is part of Fakarava Biosphere Reserve and supports coral communities, fish nurseries, seabirds, and island vegetation adapted to life between ocean and sky.
+> 
+> For centuries, Polynesian navigators understood this balance, relying on healthy lagoons and reefs for survival and culture—a relationship still reflected in the atoll today. On International Day for Biological Diversity, landscapes like Kauehi remind us that safeguarding nature protects stories, cultures, and futures across our shared planet.
+
+</details>
+
+| ![International Day for Biological Diversity](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biological Diversity](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_1080x1920.jpg) |
+
 ### 20260521
 
 > Tea terraces in Sichuan Province, China (© lzf/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![Smith Rock State Park, Oregon](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Smith Rock State Park, Oregon](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_1080x1920.jpg) |
-
-### 20260515
-
-> A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Brains, brawn, and a serious case of going deep—the sperm whale isn't here for surface-level living. This Endangered Species Day, meet a giant that thinks big and dives deeper.
-> 
-> Sperm whales have the largest brain ever recorded—up to 20 pounds (about five times heavier than a human's). Their massive head, about one-third of their body length, holds spermaceti, a waxy oil once prized for candles and machinery. They're also record-breaking divers, plunging over 3,000 feet for up to 90 minutes to hunt squid. Down there, they rely on echolocation clicks that can reach around 230 decibels, making them the loudest animal on the planet.
-> 
-> They often nap vertically, eat up to 2 tons of food a day, and have an off-center blowhole. Living in matriarchal pods, with males going solo, they communicate through click patterns called codas. Once hunted for oil and ambergris, they now face ship strikes, noise, and plastic pollution. Whales mastered diving deep. Now it's on us to not let their future sink.
-
-</details>
-
-| ![Endangered Species Day](https://cn.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Endangered Species Day](https://cn.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_1080x1920.jpg) |x1920.jpg) |52_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_1080x1920.jpg) |-US1154221052_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
