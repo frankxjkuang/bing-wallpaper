@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260523
+
+> Turtles with butterflies (© Patrick Gallet/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Turtles are not only fascinating animals; they also play vital roles in nature. Sea turtles help keep seagrass beds and coral reefs healthy, while freshwater and land counterparts support balanced ecosystems. Their shells are part of their skeletons, formed from dozens of fused bones, and some species navigate using Earth's magnetic field to return to the beaches where they hatched.
+> 
+> These reptiles have been around for more than 200 million years—long before dinosaurs—yet many species are now struggling to survive. World Turtle Day, celebrated every year on May 23, shines a spotlight on one of Earth's oldest living survivors. Created as a global awareness day, today celebrates turtles and tortoises while drawing attention to the threats they face, from habitat loss and plastic pollution to illegal wildlife trade and fishing bycatch. It also serves as a call to action. Simple choices, such as reducing single-use plastics or protecting nesting areas, can help ensure these remarkable animals are still around for future generations.
+> 
+> 
+
+</details>
+
+| ![World Turtle Day](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Turtle Day](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_1080x1920.jpg) |
+
 ### 20260522
 
 > Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Hawksbill Mountain in Shenandoah National Park, Virginia](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hawksbill Mountain in Shenandoah National Park, Virginia](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1080x1920.jpg) |
-
-### 20260516
-
-> Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> What do you call a place where the rocks do the climbing, and humans try to keep up? Welcome to Smith Rock State Park in Oregon, where cliffs rise fast, and excuses fall faster. It sits inside the 26-mile-long Crooked River Caldera, shaped by multiple volcanic eruptions. Its welded tuff cliffs are made from compressed volcanic ash that cooled under pressure. The Crooked River carved the canyon, while formations like the Spire rise up to 700 feet.
-> 
-> The park helped launch modern sport climbing in the 1980s and now hosts over 2,000 routes. Trails like Misery Ridge offer sweeping views, with a side of leg burn. Wildlife keeps things lively, from golden eagles to river otters, with the occasional mountain lion cameo.
-> 
-> It is one of the 'Seven Wonders of Oregon,' just 30 minutes from the city of Bend. Summer can top 100°F, so spring and fall are the sweet spots, with mild temperatures and clear skies. Smith Rock keeps things simple. It rocks, you roll.
-
-</details>
-
-| ![Smith Rock State Park, Oregon](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Smith Rock State Park, Oregon](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_1080x1920.jpg) |-US1154221052_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1080x1920.jpg) |1052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
