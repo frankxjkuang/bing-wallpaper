@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260524
+
+> Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The European Day of Parks celebrates protected areas across the continent, marking the creation of Europe's first national parks in 1909. It serves as a reminder that many of today's most iconic landscapes exist because of long-term conservation efforts. Today's image highlights a prime example of this legacy: Tre Cime Nature Park in northern Italy.
+> 
+> Located in the Dolomites—a UNESCO World Heritage Site known for striking geology—the park was established in 1981. It is best known for the Tre Cime di Lavaredo: three towering dolomite peaks that rise sharply above alpine meadows. Their sheer rock faces make them among the Alps' most recognizable landmarks.
+> 
+> Created to protect fragile alpine ecosystems, Tre Cime Nature Park balances preservation with carefully managed access. Well-maintained trails guide visitors through the landscape, and limits on development help safeguard native wildlife and the area's rugged character. European Day of Parks reminds us that these places endure because conservation remains a priority.
+
+</details>
+
+| ![European Day of Parks](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European Day of Parks](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_1080x1920.jpg) |
+
 ### 20260523
 
 > Turtles with butterflies (© Patrick Gallet/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Museum Day](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Museum Day](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_1080x1920.jpg) |
-
-### 20260517
-
-> Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> How high is high enough for a great view? In the eastern United States, it doesn't take much. Hawksbill Mountain is the highest point in Shenandoah National Park, Virginia, at 4,050 feet, showing how these older mountains rely on openness, not elevation. The park's establishment in 1935 involved reforestation after extensive farming and logging. Today, much of that land has returned to forest, supporting mixed hardwoods, mountain laurel, and rhododendron. What else? Some of the rocks found here date back over 1 billion years, among the oldest in the state. The park shelters over 200 bird species and 32 species of fish and remains dog friendly, allowing pets in campgrounds and on most trails.
-> 
-> Hawksbill's summit does not rely on steep cliffs. Instead, a stone platform built in the 1930s by the Civilian Conservation Corps marks the top. From here, ridges stretch into the distance in soft blue layers, an effect caused by atmospheric scattering. Skyline Drive connects visitors to trailheads leading to peaks like this.
-> 
-> 
-
-</details>
-
-| ![Hawksbill Mountain in Shenandoah National Park, Virginia](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hawksbill Mountain in Shenandoah National Park, Virginia](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1080x1920.jpg) |1052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1080x1920.jpg) |1052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
