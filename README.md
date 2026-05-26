@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260525
+
+> Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Memorial Day honors the men and women who lost their lives while serving in the United States Armed Forces. Observed on the last Monday in May, the holiday traces its origins to the years following the Civil War, when communities began decorating the graves of fallen soldiers. Over time, it became a national observance dedicated to remembrance and gratitude—marked by solemn ceremonies, moments of silence, and visits to memorials across the country.
+> 
+> Today's image looks up at the Memorial Amphitheater at Arlington National Cemetery in Arlington, Virginia, the focal point of the nation's Memorial Day ceremonies. Dedicated in 1920, the amphitheater's marble colonnade and coffered ceiling frame annual observances attended by US presidents, veterans, and the families of the fallen. Located beside the Tomb of the Unknown Soldier, the site underscores Arlington's enduring role as a place of honor and national memory, drawing millions of visitors each year.
+> 
+> 
+
+</details>
+
+| ![Memorial Day](https://cn.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Memorial Day](https://cn.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_1080x1920.jpg) |
+
 ### 20260524
 
 > Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Formentor Lighthouse, Mallorca, Balearic Islands, Spain](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Formentor Lighthouse, Mallorca, Balearic Islands, Spain](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_1080x1920.jpg) |
-
-### 20260518
-
-> Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> You walk into a museum, and suddenly time shifts. A fossil hints at life millions of years ago. A gemstone reflects geological change you can't see. That sense of connection is exactly what International Museum Day, created in 1977 by the International Council of Museums, aims to celebrate.
-> 
-> At the Natural History Museum in London, which opened in 1881, those moments come quickly. Built in Romanesque Revival style, the building reflects natural forms in its design, while four color-coded zones organize the galleries by theme. Today, it houses over 80 million specimens, spanning botany, zoology, mineralogy, and paleontology. The museum's dinosaur gallery and the massive blue whale skeleton , named Hope, suspended in Hintze Hall, are among its most recognized displays.
-> 
-> What draws people in—curiosity or nostalgia? Museums turn abstract ideas into real objects you can see and question. From science documentaries to films like 'Night at the Museum,' they remind us that exploration doesn't end in textbooks—it starts when you walk through the door.
-
-</details>
-
-| ![International Museum Day](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Museum Day](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1080x1920.jpg) |1052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_1080x1920.jpg) |om/th?id=OHR.MuseumLondon_EN-US0527592013_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1080x1920.jpg) |1052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
