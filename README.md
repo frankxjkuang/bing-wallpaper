@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260526
+
+> Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> As spring sweeps across Northern California, the landscape is transformed by the vibrant displays of lupine flowers in shades of blue, purple, and white. Flourishing in the region's Mediterranean climate, these wildflowers provide a vital source of nectar for pollinators such as bees, butterflies, and beetles. With over 200 species found worldwide, lupines range from coastal varieties to those that thrive in mountain meadows. Beyond their striking beauty, lupines are essential to the ecosystem: by fixing nitrogen underground, they enrich soil fertility and support the growth of surrounding plants, even in nutrient-poor environments.
+> 
+> In some cultures, specially prepared lupine seeds are enjoyed as a snack. However, caution is necessary—untreated seeds are extremely bitter and potentially toxic. By late spring, the vibrant blooms give way to seed pods, continuing the cycle of life for another year. Witnessing this seasonal transformation offers a quiet reminder of how color and life return to the land each year.
+> 
+> 
+
+</details>
+
+| ![Lupine flowers in bloom, Northern California](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lupine flowers in bloom, Northern California](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_1080x1920.jpg) |
+
 ### 20260525
 
 > Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Bee Day](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bee Day](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_1080x1920.jpg) |
-
-### 20260519
-
-> Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> At Mallorca's far northern tip, in Spain's Balearic Islands, the Formentor Lighthouse stands on the sheer cliffs of Cap de Formentor. This exposed headland is often called the 'Meeting of the Winds.' Built in 1863 and first lit on September 30 of that year, the lighthouse rises nearly 700 feet above the Mediterranean Sea and is reached by a narrow, switchback road about 8 miles from Port de Pollença. Under your feet is pale limestone—rock formed from ancient marine life and later lifted and carved by erosion into dramatic faces, sea caves, and natural arches. This rugged geology gives rise to the area's stark beauty and sense of isolation. Want to earn the view? Follow one of the peninsula's hiking routes, or tackle the short, steep climb to Talaia d'Albercutx for a watchtower panorama before continuing to the lighthouse. Keep an eye on the slopes: wild goats, descended from early domestic herds, spring across the ledges with effortless balance.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Formentor Lighthouse, Mallorca, Balearic Islands, Spain](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Formentor Lighthouse, Mallorca, Balearic Islands, Spain](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_1080x1920.jpg) |om/th?id=OHR.MuseumLondon_EN-US0527592013_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1080x1920.jpg) |1052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_1080x1920.jpg) |n_EN-US0527592013_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1080x1920.jpg) |1052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
