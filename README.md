@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260527
+
+> Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On World Otter Day, just look at this cutie swimming in the waters of Kachemak Bay, Alaska! Otters are captivating creatures that play an essential role in maintaining healthy ecosystems. Supported by the Otter Specialist Group (OSG)—a global network of professionals dedicated to the conservation of all 14 species—this day highlights the otter's vital contribution to nature. Known for their playful behavior and remarkable intelligence, otters are key indicators of waterway health. Sadly, they face growing challenges from habitat loss and pollution.
+> 
+> Sea otters are particularly important in coastal ecosystems, where their relationship with kelp forests earns them the title of 'climate heroes.' They help to maintain kelp by preying on sea urchins, which would otherwise destroy the brown algae that provides shelter and sustenance for numerous marine species.
+> 
+> Their presence is crucial not only for maintaining biodiversity, but also for combating climate change. Healthy kelp forests sequester carbon and protect coastlines from erosion. Protecting these charismatic animals means safeguarding the future of our planet's delicate coastal habitats.
+
+</details>
+
+| ![World Otter Day](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Otter Day](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1080x1920.jpg) |
+
 ### 20260526
 
 > Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![International Tea Day](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Tea Day](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_1080x1920.jpg) |
-
-### 20260520
-
-> Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> A soft buzz and a dusting of pollen can shape the future of our food. World Bee Day, observed each year on May 20, celebrates pollinators like the bumble bee pictured here during its quiet yet essential work. Unlike many insects, bumble bees use 'buzz pollination,' vibrating their flight muscles to shake pollen from flowers—a method vital for crops such as tomatoes, peppers, and blueberries.
-> 
-> Bees and other pollinators contribute to more than 75% of the world's major food crops, improving both yield and quality. Recognizing their importance, the United Nations designated World Bee Day in 2018 to draw attention to their role and the growing threats they face, from habitat loss to climate change.
-> 
-> With over 20,000 bee species worldwide—most of them wild—protecting pollinators also means safeguarding entire ecosystems. Each flower visit, like this one, supports biodiversity and helps keep food systems resilient, one vibration at a time.
-
-</details>
-
-| ![World Bee Day](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bee Day](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_1080x1920.jpg) |n_EN-US0527592013_1080x1920.jpg) |ps://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1080x1920.jpg) |1052_1080x1920.jpg) |rtrait 4K](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_1080x1920.jpg) |8031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
