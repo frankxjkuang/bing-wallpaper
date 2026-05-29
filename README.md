@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260528
+
+> Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As night settles over Suwon, South Korea, the old city wall pictured here shows that function doesn't necessarily cancel out beauty—it can create it. Built between 1794 and 1796 under King Jeongjo of the Joseon Dynasty, Hwaseong Fortress was more than a barrier. It was policy in stone: a reform minded push for a leaner, better-run state, driven by practicality and a deeply personal motive. Jeongjo ordered its construction to honor his father while strengthening a kingdom that wanted smarter systems, not just thicker walls.
+> 
+> Ahead of its time, this masterpiece of Korean fortification hid innovation in plain sight. Rather than wrestling with the landscape, the roughly 3.5-mile wall follows its curves. Bastions widened defensive coverage, watchtowers doubled as signaling points, concealed gates allowed discreet movement, and pulley systems quickened construction. Recognized as a UNESCO World Heritage Site in 1997, the site is remarkably intact—and still very much in motion. Hwaseong remains walkable, watchable, and woven into daily life. Defense by day, poetry by night.
+> 
+> 
+
+</details>
+
+| ![Old city wall of Hwaseong Fortress, Suwon, South Korea](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Old city wall of Hwaseong Fortress, Suwon, South Korea](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1080x1920.jpg) |
+
 ### 20260527
 
 > Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Day for Biological Diversity](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biological Diversity](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_1080x1920.jpg) |
-
-### 20260521
-
-> Tea terraces in Sichuan Province, China (© lzf/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> International Tea Day celebrates a drink that connects daily rituals to ancient landscapes. Just one look at the terraced tea fields of Sichuan Province, China, shows how deep those roots run. This misty region in southwest China is one of the earliest centers of tea culture, where people drank and cultivated tea more than 2,000 years ago. On nearby Mengding Mountain, a scholar named Wu Lizhen planted some of the world's first managed tea gardens during the Han Dynasty, laying the groundwork for generations of growers.
-> 
-> The steep terraces weren't built for beauty alone. They helped farmers manage rainfall, protect fragile soil, and hand-pick tender leaves that later traveled far beyond Sichuan. For centuries, harvests from these hills moved along rugged trade routes toward Tibet, carried by porters across mountain passes.
-> 
-> Recognized by the United Nations, International Tea Day highlights the beverage's cultural legacy and the millions of livelihoods tied to every cup—whether brewed at home or grown on a mountainside.
-
-</details>
-
-| ![International Tea Day](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Tea Day](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_1080x1920.jpg) |8031524_1080x1920.jpg) |m/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_1080x1920.jpg) |080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
