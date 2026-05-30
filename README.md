@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260529
+
+> Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In Sagarmatha National Park, Nepal, Mount Everest rises into view, calm and unmoved as evening settles in. But on May 29, 1953, that stillness was broken. After years of planning and weeks of climbing, New Zealander Edmund Hillary and Sherpa mountaineer Tenzing Norgay reached the summit. At over 29,000 feet above sea level, they became the first people known to have stood at Earth's highest point.
+> 
+> That moment became part of a much older story. Long before modern expeditions arrived, local communities honored the mountain as sacred. They lived in its shadow, reading its moods with knowledge refined over generations. Such understanding proved essential in a place shaped by thin air, sudden storms, and unforgiving routes.
+> 
+> The 1953 ascent showed what cooperation could unlock: British logistics, Sherpa expertise, and a broad support team came together on one ridge. As daylight fades across Everest, the glow along its peak recalls a spring day when curiosity and courage lifted humans to the very edge of the sky.
+
+</details>
+
+| ![1953 Mount Everest Expedition](https://cn.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![1953 Mount Everest Expedition](https://cn.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_1080x1920.jpg) |
+
 ### 20260528
 
 > Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Turtle Day](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Turtle Day](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_1080x1920.jpg) |
-
-### 20260522
-
-> Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Observed each year on May 22, International Day for Biological Diversity is a global reminder that life on Earth is richer—and more fragile—than it appears. Established by the United Nations, today highlights why protecting plants, animals, and ecosystems matters for food, medicine, climate stability, and everyday well-being.
-> 
-> Few places reveal our planet's secrets with such clarity as Kauehi Atoll, seen here from above in the Tuamotu Archipelago of French Polynesia. Its thin coral ring encloses a vast turquoise lagoon, shaped over millennia by living reefs and sheltered currents. Kauehi's ecosystem is part of Fakarava Biosphere Reserve and supports coral communities, fish nurseries, seabirds, and island vegetation adapted to life between ocean and sky.
-> 
-> For centuries, Polynesian navigators understood this balance, relying on healthy lagoons and reefs for survival and culture—a relationship still reflected in the atoll today. On International Day for Biological Diversity, landscapes like Kauehi remind us that safeguarding nature protects stories, cultures, and futures across our shared planet.
-
-</details>
-
-| ![International Day for Biological Diversity](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for Biological Diversity](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_1080x1920.jpg) |080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_1080x1920.jpg) |N-US6299031230_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_1080x1920.jpg) |080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
