@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260530
+
+> Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Etosha National Park, Namibia, is not a place for soft starts, and the plains zebra foal in this image seems to get the memo. In a land this vast—nearly 8,600 square miles of salt pans and grassland—timing is everything, and hesitation is expensive. Lions, spotted hyenas, wild dogs, cheetahs, and leopards constantly pressure the herd—especially the youngest—so zebras are born ready. Minutes after arrival, they're upright. Hours later, they're moving.
+> 
+> Those bold stripes aren't decoration; they disrupt vision and make it harder to isolate a single body. Each pattern is unique, yet together they form a moving puzzle predators struggle to solve. The strategy pays off. With hundreds of thousands spread across Africa, plains zebras have strong populations in protected areas like Etosha. The advantage lies in consistency: learn the pattern, read the space, stay close—and suddenly the odds look a lot better.
+> 
+> 
+
+</details>
+
+| ![Plains zebra foal in Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Plains zebra foal in Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg) |
+
 ### 20260529
 
 > Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![European Day of Parks](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European Day of Parks](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_1080x1920.jpg) |
-
-### 20260523
-
-> Turtles with butterflies (© Patrick Gallet/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Turtles are not only fascinating animals; they also play vital roles in nature. Sea turtles help keep seagrass beds and coral reefs healthy, while freshwater and land counterparts support balanced ecosystems. Their shells are part of their skeletons, formed from dozens of fused bones, and some species navigate using Earth's magnetic field to return to the beaches where they hatched.
-> 
-> These reptiles have been around for more than 200 million years—long before dinosaurs—yet many species are now struggling to survive. World Turtle Day, celebrated every year on May 23, shines a spotlight on one of Earth's oldest living survivors. Created as a global awareness day, today celebrates turtles and tortoises while drawing attention to the threats they face, from habitat loss and plastic pollution to illegal wildlife trade and fishing bycatch. It also serves as a call to action. Simple choices, such as reducing single-use plastics or protecting nesting areas, can help ensure these remarkable animals are still around for future generations.
-> 
-> 
-
-</details>
-
-| ![World Turtle Day](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Turtle Day](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_1080x1920.jpg) |N-US6299031230_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_1080x1920.jpg) |080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_1080x1920.jpg) |com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_1080x1920.jpg) |N-US6299031230_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_1080x1920.jpg) |080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
