@@ -1,139 +1,137 @@
 ## bing wallpaper
 
-### 20260530
+### 20260531
 
-> Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)
+> 大沼泽地国家公园航拍景观，佛罗里达州，美国 (© Tetra Images/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Etosha National Park, Namibia, is not a place for soft starts, and the plains zebra foal in this image seems to get the memo. In a land this vast—nearly 8,600 square miles of salt pans and grassland—timing is everything, and hesitation is expensive. Lions, spotted hyenas, wild dogs, cheetahs, and leopards constantly pressure the herd—especially the youngest—so zebras are born ready. Minutes after arrival, they're upright. Hours later, they're moving.
+> 今天是美国湿地月的最后一天，但对湿地生态的关注并不应随之结束。每年 5 月举行的这一全国性活动，旨在让更多人了解湿地这一美国最具生产力的重要生态系统之一。而位于佛罗里达州的大沼泽地国家公园，正是展现湿地力量的典型代表。从空中俯瞰，浅水、锯齿草、红树林与蜿蜒水道共同构成广阔景观，淡水从奥基乔比湖缓缓向南流动，塑造出独特生态环境。
 > 
-> Those bold stripes aren't decoration; they disrupt vision and make it harder to isolate a single body. Each pattern is unique, yet together they form a moving puzzle predators struggle to solve. The strategy pays off. With hundreds of thousands spread across Africa, plains zebras have strong populations in protected areas like Etosha. The advantage lies in consistency: learn the pattern, read the space, stay close—and suddenly the odds look a lot better.
+> 大沼泽地国家公园面积约达 150 万英亩，是美国最大的亚热带荒野地区之一，也是众多鸟类、鱼类、爬行动物以及佛罗里达美洲狮等珍稀物种的重要栖息地。除了维持生物多样性，湿地还在生态系统中发挥着关键作用，例如过滤污染物、储存碳、减缓洪水，并为周边社区提供更洁净的水源。美国湿地月也提醒人们，无论从空中还是地面观察，这些水域景观都值得长期保护与关注。
 > 
 > 
 
 </details>
 
-| ![Plains zebra foal in Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Plains zebra foal in Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![大沼泽地国家公园](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大沼泽地国家公园](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_1080x1920.jpg) |
+
+### 20260530
+
+> 平原斑马幼崽，埃托沙国家公园，纳米比亚 (© Sharon Heald/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> 平原斑马身上鲜明的黑白条纹并不只是装饰，它们能够干扰捕食者的视觉判断，让猎手难以锁定单独个体。每只斑马的纹路都独一无二，但当它们聚集行动时，交错的条纹会形成复杂的视觉迷阵，增加捕食难度。这种生存策略十分有效。如今，数十万只平原斑马分布于非洲各地，在埃托沙等自然保护区中依然维持着稳定数量。
+> 
+> 对于平原斑马来说，群体协作同样重要。它们会通过观察环境、保持队形以及紧密行动来提高警觉性与生存概率。当斑马群一同穿越草原时，整齐流动的条纹不仅形成独特景观，也成为它们抵御天敌的重要天然屏障。
+> 
+> 
+
+</details>
+
+| ![纳米比亚埃托沙国家公园的平原斑马幼崽](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![纳米比亚埃托沙国家公园的平原斑马幼崽](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_1080x1920.jpg) |
 
 ### 20260529
 
-> Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)
+> 珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔 (© fotoVoyager/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> In Sagarmatha National Park, Nepal, Mount Everest rises into view, calm and unmoved as evening settles in. But on May 29, 1953, that stillness was broken. After years of planning and weeks of climbing, New Zealander Edmund Hillary and Sherpa mountaineer Tenzing Norgay reached the summit. At over 29,000 feet above sea level, they became the first people known to have stood at Earth's highest point.
+> 在尼泊尔的萨加玛塔国家公园，珠穆朗玛峰于暮色中巍然显现，平静而沉稳。1953年5月29日，这片宁静被历史性的一刻打破。经过数年的筹备与数周艰苦攀登，新西兰登山家埃德蒙·希拉里与夏尔巴登山家丹增·诺尔盖成功登顶珠穆朗玛峰。在海拔超过29000英尺（约8848米）的高度上，他们成为已知最早成功抵达人类所知地球最高点的人。
 > 
-> That moment became part of a much older story. Long before modern expeditions arrived, local communities honored the mountain as sacred. They lived in its shadow, reading its moods with knowledge refined over generations. Such understanding proved essential in a place shaped by thin air, sudden storms, and unforgiving routes.
+> 这一历史时刻，也成为珠穆朗玛峰悠久文化传统的一部分。早在现代登山远征到来之前，当地社区便将这座山峰视为神圣之地。世代生活于山麓的人们，通过长期积累的经验观察山体与天气变化，并逐渐形成对高海拔环境的深刻认知。在空气稀薄、天气多变、登山路线险峻的环境中，这种经验与理解显得尤为重要。
 > 
-> The 1953 ascent showed what cooperation could unlock: British logistics, Sherpa expertise, and a broad support team came together on one ridge. As daylight fades across Everest, the glow along its peak recalls a spring day when curiosity and courage lifted humans to the very edge of the sky.
+> 1953年的成功登顶，展现了协作所带来的突破：英国远征队的后勤支持、夏尔巴登山者的高山经验，以及众多支援成员的共同努力，最终汇聚于同一条登顶路线之上。当暮色再次笼罩珠穆朗玛峰，峰顶映出的微光，仿佛仍在诉说那个春日——人类凭借好奇心与勇气，首次向世界最高峰发起成功挑战。
 
 </details>
 
-| ![1953 Mount Everest Expedition](https://cn.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![1953 Mount Everest Expedition](https://cn.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![1953年珠穆朗玛峰登山远征](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![1953年珠穆朗玛峰登山远征](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg) |
 
 ### 20260528
 
-> Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)
+> 华城堡的古城墙，水原，韩国 (© aomam/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> As night settles over Suwon, South Korea, the old city wall pictured here shows that function doesn't necessarily cancel out beauty—it can create it. Built between 1794 and 1796 under King Jeongjo of the Joseon Dynasty, Hwaseong Fortress was more than a barrier. It was policy in stone: a reform minded push for a leaner, better-run state, driven by practicality and a deeply personal motive. Jeongjo ordered its construction to honor his father while strengthening a kingdom that wanted smarter systems, not just thicker walls.
+> 当夜幕降临在韩国水原，这里所呈现的华城堡古城墙证明了一点：功能并不一定会削弱美感，反而可以孕育出美。华城建于1794年至1796年间，由朝鲜王朝的正祖下令修建，它不仅仅是一道防御屏障，更是一种“以石为策”的体现——一场以务实为导向、兼具深层个人动机的改革尝试，旨在打造一个更加精简、高效运作的国家。正祖修建华城，一方面是为了纪念他的父亲，另一方面也意在强化这个追求更智慧治理体系、而不仅仅依赖加厚城墙的王国。
 > 
-> Ahead of its time, this masterpiece of Korean fortification hid innovation in plain sight. Rather than wrestling with the landscape, the roughly 3.5-mile wall follows its curves. Bastions widened defensive coverage, watchtowers doubled as signaling points, concealed gates allowed discreet movement, and pulley systems quickened construction. Recognized as a UNESCO World Heritage Site in 1997, the site is remarkably intact—and still very much in motion. Hwaseong remains walkable, watchable, and woven into daily life. Defense by day, poetry by night.
+> 这座走在时代前沿的韩国城防杰作，将创新巧妙地融入于外表之中。华城堡全长约3.5英里（约5.7公里），并未刻意对抗地形，而是顺应山势与地貌自然延展。城墙沿线设置的棱堡扩大了防御覆盖范围，瞭望塔兼具信号传递功能，隐蔽城门便于灵活通行，滑轮等装置则显著提升了建造效率。1997年，华城被联合国教科文组织列入世界文化遗产名录，整体保存状况极为完整，并且至今仍在“运转”之中——它不仅可行、可观，更融入了当地的日常生活。白天是防御体系的历史见证，夜晚则化作充满诗意的文化景观。
 > 
 > 
 
 </details>
 
-| ![Old city wall of Hwaseong Fortress, Suwon, South Korea](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Old city wall of Hwaseong Fortress, Suwon, South Korea](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![韩国水原华城堡的古城墙](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![韩国水原华城堡的古城墙](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_1080x1920.jpg) |
 
 ### 20260527
 
-> Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)
+> 海獭，霍默卡奇马克湾，阿拉斯加州，美国 (© roclwyr/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> On World Otter Day, just look at this cutie swimming in the waters of Kachemak Bay, Alaska! Otters are captivating creatures that play an essential role in maintaining healthy ecosystems. Supported by the Otter Specialist Group (OSG)—a global network of professionals dedicated to the conservation of all 14 species—this day highlights the otter's vital contribution to nature. Known for their playful behavior and remarkable intelligence, otters are key indicators of waterway health. Sadly, they face growing challenges from habitat loss and pollution.
+> 在世界水獭日这一天，不妨看看这只在美国阿拉斯加卡奇马克湾水域中畅游的小可爱！水獭是极具魅力的动物，在维持生态系统健康方面发挥着关键作用。在水獭专家组（OSG）的支持下——这一致力于保护全部14种水獭的全球专业网络——这一纪念日强调了水獭对自然环境的重要贡献。它们以活泼的行为和出色的智慧著称，也是水域健康的重要指示物种。然而，随着栖息地减少和污染加剧，水獭正面临日益严峻的生存挑战。
 > 
-> Sea otters are particularly important in coastal ecosystems, where their relationship with kelp forests earns them the title of 'climate heroes.' They help to maintain kelp by preying on sea urchins, which would otherwise destroy the brown algae that provides shelter and sustenance for numerous marine species.
+> 海獭在沿海生态系统中尤为重要，它们与海藻森林之间的关系，使其被称为“气候英雄”。海獭通过捕食海胆来维持海藻的生长，否则海胆会大量啃食这些褐藻，而这些海藻正是众多海洋生物赖以栖息和获取食物的重要基础。
 > 
-> Their presence is crucial not only for maintaining biodiversity, but also for combating climate change. Healthy kelp forests sequester carbon and protect coastlines from erosion. Protecting these charismatic animals means safeguarding the future of our planet's delicate coastal habitats.
+> 它们的存在不仅对维持生物多样性至关重要，也在应对气候变化方面发挥着关键作用。健康的海藻森林能够吸收并储存碳，同时保护海岸线免受侵蚀。保护这些富有魅力的海獭，也就意味着守护地球脆弱的沿海生态环境的未来。
 
 </details>
 
-| ![World Otter Day](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Otter Day](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![世界水獭日](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界水獭日](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_1080x1920.jpg) |
 
 ### 20260526
 
-> Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)
+> 盛开的羽扇豆，北加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)
 
 <details>
 <summary>Description</summary>
 
-> As spring sweeps across Northern California, the landscape is transformed by the vibrant displays of lupine flowers in shades of blue, purple, and white. Flourishing in the region's Mediterranean climate, these wildflowers provide a vital source of nectar for pollinators such as bees, butterflies, and beetles. With over 200 species found worldwide, lupines range from coastal varieties to those that thrive in mountain meadows. Beyond their striking beauty, lupines are essential to the ecosystem: by fixing nitrogen underground, they enrich soil fertility and support the growth of surrounding plants, even in nutrient-poor environments.
+> 随着春季席卷北加利福尼亚州，大地在蓝色、紫色与白色交织的羽扇豆花海中焕然一新。这些野生物种在当地的地中海气候下生长繁茂，为蜜蜂、蝴蝶及甲虫等授粉媒介提供了至关重要的花蜜来源。羽扇豆在全球拥有200多个物种，其分布极其广泛，涵盖了从沿海地带到高山草甸的多种生境。除了显著的观赏价值外，羽扇豆在生态系统中亦发挥着关键作用：通过地下的固氮作用，它们能够显著提高土壤肥力，即便是在贫瘠的环境中也能支持周边植物的生长。
 > 
-> In some cultures, specially prepared lupine seeds are enjoyed as a snack. However, caution is necessary—untreated seeds are extremely bitter and potentially toxic. By late spring, the vibrant blooms give way to seed pods, continuing the cycle of life for another year. Witnessing this seasonal transformation offers a quiet reminder of how color and life return to the land each year.
+> 在特定文化中，经过特殊加工的羽扇豆种子被当作零食食用。然而，必须谨慎处理——未经脱苦处理的种子含有极高的生物碱，滋味极苦且具有潜在毒性。时至暮春，繁茂的花期结束，取而代之的是发育中的荚果，这标志着生命周期的循环往复。见证这一季节性的更迭，让人静静领悟大地每年色彩重塑与生命回归的自然律动。
 > 
 > 
 
 </details>
 
-| ![Lupine flowers in bloom, Northern California](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lupine flowers in bloom, Northern California](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![盛开的羽扇豆，北加利福尼亚州，美国](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![盛开的羽扇豆，北加利福尼亚州，美国](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_1080x1920.jpg) |
 
 ### 20260525
 
-> Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)
+> 从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度 (© byheaven/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Memorial Day honors the men and women who lost their lives while serving in the United States Armed Forces. Observed on the last Monday in May, the holiday traces its origins to the years following the Civil War, when communities began decorating the graves of fallen soldiers. Over time, it became a national observance dedicated to remembrance and gratitude—marked by solemn ceremonies, moments of silence, and visits to memorials across the country.
+> 如果建筑能够“呼吸”，那会是怎样一番景象？坐落于斋浦尔市中心的风之宫（Hawa Mahal）便实现了这一点——它吸纳清风、排出热气，将建筑设计转化为一场静谧的科学实验。与其说它是一座宫殿，倒不如说是一次精准的“吐故纳新”。它确实名副其实：一座实至名归的“风之宫殿”。
 > 
-> Today's image looks up at the Memorial Amphitheater at Arlington National Cemetery in Arlington, Virginia, the focal point of the nation's Memorial Day ceremonies. Dedicated in 1920, the amphitheater's marble colonnade and coffered ceiling frame annual observances attended by US presidents, veterans, and the families of the fallen. Located beside the Tomb of the Unknown Soldier, the site underscores Arlington's enduring role as a place of honor and national memory, drawing millions of visitors each year.
+> 这座由红粉砂岩砌筑的地标建筑始建于1799年，由萨瓦伊·普拉塔普·辛格国王（Maharaja Sawai Pratap Singh）下令修建，建筑师拉尔·钱德·乌斯塔德（Lal Chand Ustad）操刀设计。其建造初衷是让皇室女性在遵循“深闺制度”（Purdah）而不抛露露面的前提下，能够观察阶前街市（Johari Bazaar）的众生百态。建筑立面拥有953扇名为Jharokhas的小窗，它们能像漏斗一样将微风汇聚并送入内部，实现自然降温。更令人惊叹的是，这座五层建筑并未采用传统地基，而是完全依托其金字塔状的稳固结构屹立不倒。
 > 
-> 
+> 宫殿在街道一侧并未设置正门，访客需从城市皇宫（City Palace）一侧进入。内部以斜坡代替台阶，以便于行走攀爬。其酷似王冠的外观意在致敬奎师那神（Lord Krishna），设计风格则完美融合了穆斯林风格的拱廊与拉其普特式的精巧细节。风之宫向世人证明了一点：当设计与自然律动相契合，一切美感与功能便随之而来。
 
 </details>
 
-| ![Memorial Day](https://cn.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Memorial Day](https://cn.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_1080x1920.jpg) |
-
-### 20260524
-
-> Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The European Day of Parks celebrates protected areas across the continent, marking the creation of Europe's first national parks in 1909. It serves as a reminder that many of today's most iconic landscapes exist because of long-term conservation efforts. Today's image highlights a prime example of this legacy: Tre Cime Nature Park in northern Italy.
-> 
-> Located in the Dolomites—a UNESCO World Heritage Site known for striking geology—the park was established in 1981. It is best known for the Tre Cime di Lavaredo: three towering dolomite peaks that rise sharply above alpine meadows. Their sheer rock faces make them among the Alps' most recognizable landmarks.
-> 
-> Created to protect fragile alpine ecosystems, Tre Cime Nature Park balances preservation with carefully managed access. Well-maintained trails guide visitors through the landscape, and limits on development help safeguard native wildlife and the area's rugged character. European Day of Parks reminds us that these places endure because conservation remains a priority.
-
-</details>
-
-| ![European Day of Parks](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European Day of Parks](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_1080x1920.jpg) |com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_1080x1920.jpg) |N-US6299031230_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_1080x1920.jpg) |080x1920.jpg) |cuses_EN-US3179110237_1080x1920.jpg) |arbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Harbor and longtail boats at Ko Samui, Thailand](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1080x1920.jpg) |3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
