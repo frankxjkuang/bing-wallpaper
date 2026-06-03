@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260602
+
+> Highway through Xitai Jinaier Lake, Qinghai Province, China (© Kaicheng Xu/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Cutting a surreal path through the high-altitude deserts of western China, Xitai Jinaier Lake (also known as West Taijinar Lake) is a striking salt lake in the remote Qaidam Basin. A stretch of National Highway 315 runs directly across its shallow waters, creating the illusion of a road floating between two worlds. On one side, the water often appears deep blue; on the other, a softer green hue, a contrast shaped by differing mineral concentrations in the brine.
+> 
+> Set more than 8,800 feet above sea level, the lake lies within a vast, arid basin where salt lakes and desert expanses dominate the landscape. Here, evaporation leaves behind mineral-rich deposits, giving the water its unusual tones. The result is a stark yet captivating environment—quiet, expansive, and almost otherworldly. Driving across Xitai Jinaier Lake feels like crossing an inland sea at the edge of the world, where geology and isolation combine to create one of China's most unforgettable landscapes.
+> 
+> 
+
+</details>
+
+| ![Highway through Xitai Jinaier Lake, Qinghai Province, China](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Highway through Xitai Jinaier Lake, Qinghai Province, China](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_1080x1920.jpg) |
+
 ### 20260601
 
 > Rainbow flags at Rockefeller Center on June 28, 2020, New York City (© Noam Galai/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Otter Day](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Otter Day](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1080x1920.jpg) |
-
-### 20260526
-
-> Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> As spring sweeps across Northern California, the landscape is transformed by the vibrant displays of lupine flowers in shades of blue, purple, and white. Flourishing in the region's Mediterranean climate, these wildflowers provide a vital source of nectar for pollinators such as bees, butterflies, and beetles. With over 200 species found worldwide, lupines range from coastal varieties to those that thrive in mountain meadows. Beyond their striking beauty, lupines are essential to the ecosystem: by fixing nitrogen underground, they enrich soil fertility and support the growth of surrounding plants, even in nutrient-poor environments.
-> 
-> In some cultures, specially prepared lupine seeds are enjoyed as a snack. However, caution is necessary—untreated seeds are extremely bitter and potentially toxic. By late spring, the vibrant blooms give way to seed pods, continuing the cycle of life for another year. Witnessing this seasonal transformation offers a quiet reminder of how color and life return to the land each year.
-> 
-> 
-
-</details>
-
-| ![Lupine flowers in bloom, Northern California](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lupine flowers in bloom, Northern California](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_1080x1920.jpg) |向世人证明了一点：当设计与自然律动相契合，一切美感与功能便随之而来。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1080x1920.jpg) |US0920778137_1080x1920.jpg) |向世人证明了一点：当设计与自然律动相契合，一切美感与功能便随之而来。
 
 </details>
 
