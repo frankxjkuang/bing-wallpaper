@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260603
+
+> Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Your average route to work might not resemble the one in today's image, but it shouldn't stop you from pedaling. World Bicycle Day invites us to rethink what's possible on two wheels—whether the ride cuts through city streets or remote terrain. Observed every June 3, the United Nations–backed day recognizes cycling as a practical way to move, supporting health, lowering emissions, and making mobility more accessible.
+> 
+> An adventurer shown here cycles through Bardenas Reales Natural Park and Biosphere Reserve in Navarra, Spain, a stark landscape shaped by wind and water over millions of years. Its maze of eroded cliffs, plateaus, and dry channels feels closer to another planet than northern Spain. Protected as a UNESCO Biosphere Reserve, the park allows cycling on designated routes, offering a rare chance to experience a fragile environment at ground level and human speed.
+> 
+> From daily commutes to places like this, bicycles turn travel into exploration—quiet, efficient, and surprisingly bold.
+
+</details>
+
+| ![World Bicycle Day](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bicycle Day](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_1080x1920.jpg) |
+
 ### 20260602
 
 > Highway through Xitai Jinaier Lake, Qinghai Province, China (© Kaicheng Xu/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Old city wall of Hwaseong Fortress, Suwon, South Korea](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Old city wall of Hwaseong Fortress, Suwon, South Korea](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1080x1920.jpg) |
-
-### 20260527
-
-> Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On World Otter Day, just look at this cutie swimming in the waters of Kachemak Bay, Alaska! Otters are captivating creatures that play an essential role in maintaining healthy ecosystems. Supported by the Otter Specialist Group (OSG)—a global network of professionals dedicated to the conservation of all 14 species—this day highlights the otter's vital contribution to nature. Known for their playful behavior and remarkable intelligence, otters are key indicators of waterway health. Sadly, they face growing challenges from habitat loss and pollution.
-> 
-> Sea otters are particularly important in coastal ecosystems, where their relationship with kelp forests earns them the title of 'climate heroes.' They help to maintain kelp by preying on sea urchins, which would otherwise destroy the brown algae that provides shelter and sustenance for numerous marine species.
-> 
-> Their presence is crucial not only for maintaining biodiversity, but also for combating climate change. Healthy kelp forests sequester carbon and protect coastlines from erosion. Protecting these charismatic animals means safeguarding the future of our planet's delicate coastal habitats.
-
-</details>
-
-| ![World Otter Day](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Otter Day](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1080x1920.jpg) |US0920778137_1080x1920.jpg) |向世人证明了一点：当设计与自然律动相契合，一切美感与功能便随之而来。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1080x1920.jpg) |US0920778137_1080x1920.jpg) |向世人证明了一点：当设计与自然律动相契合，一切美感与功能便随之而来。
 
 </details>
 
