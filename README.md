@@ -1,141 +1,137 @@
 ## bing wallpaper
 
-### 20260603
+### 20260604
 
-> Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)
+> 梳理羽毛的雪鹭，佛罗里达州中部，美国 (© Donald M. Jones/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> Your average route to work might not resemble the one in today's image, but it shouldn't stop you from pedaling. World Bicycle Day invites us to rethink what's possible on two wheels—whether the ride cuts through city streets or remote terrain. Observed every June 3, the United Nations–backed day recognizes cycling as a practical way to move, supporting health, lowering emissions, and making mobility more accessible.
+> 名如其诗，形亦如画。这就是雪鹭（Snowy egret）——通体洁白的羽衣，衬托着黑色长腿下明黄色的“脚掌”，构成了一幅极具视觉冲击力的画面。曾几何时，人类对这种鹭鸟在繁殖季节长出的装饰性婚羽（形似蕾丝般轻柔飘逸的丝状羽毛）有着极大的市场需求，用于点缀时尚女帽。这一嗜好险些让该物种走向灭绝，幸而后续的自然保护行动成功挽救了它们。
 > 
-> An adventurer shown here cycles through Bardenas Reales Natural Park and Biosphere Reserve in Navarra, Spain, a stark landscape shaped by wind and water over millions of years. Its maze of eroded cliffs, plateaus, and dry channels feels closer to another planet than northern Spain. Protected as a UNESCO Biosphere Reserve, the park allows cycling on designated routes, offering a rare chance to experience a fragile environment at ground level and human speed.
+> 今日画面展现的是一只在佛罗里达州中部理羽的雪鹭，这在当地的全年常绿湿地中是屡见不鲜的景象。理羽不仅能保持羽毛清洁，更是确保其防水性能的关键——这对于在浅水区潜行、猎食鱼虾及昆虫的捕食者而言至关重要。这些涉禽以其活跃的觅食风格著称，它们会摆动明黄色的脚掌来惊扰水流，从而诱使猎物现身。
 > 
-> From daily commutes to places like this, bicycles turn travel into exploration—quiet, efficient, and surprisingly bold.
+> 雪鹭身高约60厘米（2英尺），翼展近1米。它们具有集群筑巢的习性，每年春天都会返回遍布美国南部的繁育地。如今，它们繁茂的族群不仅是湿地生态的重要组成部分，更是自然保护力量的历史见证。
 
 </details>
 
-| ![World Bicycle Day](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bicycle Day](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![梳理羽毛的雪鹭，美国](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![梳理羽毛的雪鹭，美国](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_1080x1920.jpg) |
+
+### 20260603
+
+> 骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙 (© Artur Debat/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 虽然日常的通勤之路或许不像今日画面中那般波澜壮阔，但这并不妨碍我们跨上单车，开始蹬踏。在“世界自行车日”到来之际，联合国向全球发出倡议，邀我们重新审视两轮出行的无限可能——无论是在穿梭于现代都市，还是纵贯于偏远荒原。每年的6月3日，这一由联合国发起的国际纪念日旨在认可自行车作为一种务实的出行方式，在促进公众健康、降低碳排放以及提升交通普惠性方面所发挥的关键作用。
+> 
+> 画面中，一位探险者正骑行穿越西班牙纳瓦拉自治区的巴德纳斯雷亚莱斯自然公园。这片生物圈保护区呈现出一种苍凉的荒漠景观，是由风力与流水历经数百万年剥蚀而成。其间纵横交错的蚀余悬崖、台地与干涸河床，使其视觉质感比起西班牙北部，更像是某个遥远的外星天体。作为受保护的联合国教科文组织生物圈保护区，该公园允许在指定路径上进行骑行，为人们提供了一个以人类体能时速、近距离感受这一脆弱生态环境的珍贵契机。
+> 
+> 
+
+</details>
+
+| ![世界自行车日](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界自行车日](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_1080x1920.jpg) |
 
 ### 20260602
 
-> Highway through Xitai Jinaier Lake, Qinghai Province, China (© Kaicheng Xu/Getty Images)
+> 穿越西台吉乃尔湖的公路，青海省，中国 (© Kaicheng Xu/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Cutting a surreal path through the high-altitude deserts of western China, Xitai Jinaier Lake (also known as West Taijinar Lake) is a striking salt lake in the remote Qaidam Basin. A stretch of National Highway 315 runs directly across its shallow waters, creating the illusion of a road floating between two worlds. On one side, the water often appears deep blue; on the other, a softer green hue, a contrast shaped by differing mineral concentrations in the brine.
+> 在青藏高原北缘、中国西部的荒漠之中，西台吉乃尔湖以一种超现实的姿态横跨在偏远的柴达木盆地。315国道的一段延伸线直接纵贯其浅水区，营造出一种公路悬浮于两个世界之间的视觉错觉。受卤水中矿物质浓度差异的影响，湖水呈现出鲜明的对比：一侧常显深邃的蓝色，另一侧则呈现柔和的绿色。
 > 
-> Set more than 8,800 feet above sea level, the lake lies within a vast, arid basin where salt lakes and desert expanses dominate the landscape. Here, evaporation leaves behind mineral-rich deposits, giving the water its unusual tones. The result is a stark yet captivating environment—quiet, expansive, and almost otherworldly. Driving across Xitai Jinaier Lake feels like crossing an inland sea at the edge of the world, where geology and isolation combine to create one of China's most unforgettable landscapes.
+> 该湖泊位于海拔超过2,700米的干旱盆地腹地，周围盐湖广布，荒漠无垠。在这里，强烈的蒸发作用留下了丰富的矿物沉积，赋予了湖水不寻常的色调。这种地质作用造就了一个荒凉却迷人的环境——宁静、广袤，充满了域外行星般的质感。驱车驶过西台吉乃尔湖，仿佛在世界边缘跨越一座内陆海，地质演化与极度的孤独感交织，构成了中国境内最令人难忘的自然景观之一。
 > 
 > 
 
 </details>
 
-| ![Highway through Xitai Jinaier Lake, Qinghai Province, China](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Highway through Xitai Jinaier Lake, Qinghai Province, China](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![中国青海省西台吉乃尔湖上的公路](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![中国青海省西台吉乃尔湖上的公路](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_1080x1920.jpg) |
 
 ### 20260601
 
-> Rainbow flags at Rockefeller Center on June 28, 2020, New York City (© Noam Galai/Getty Images)
+> 巴勒莫暮色下的天际线，西西里岛，意大利 (© Sean Pavone/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Every June, Pride Month bursts into cities and streets across the United States—but its origins lie in defiance, not festivity. The observance grew from the Stonewall uprising of June 1969, when LGBTQIA+ New Yorkers pushed back against routine police raids, igniting a movement that reshaped civil rights history.
+> 巴勒莫（Palermo）坐落于意大利南部，是西西里岛的首府。这是一座历史、艺术与文化交织的城市，呈现出一种生动且带有几分繁杂之美的和谐。它由腓尼基人始建，后历经罗马人、阿拉伯人、诺曼人及西班牙人的雕琢，承载了地中海沿岸诸多文明迁移的印记。这种厚重的历史底蕴在建筑中清晰可见：从被联合国教科文组织（UNESCO）列入名录的阿拉伯-诺曼式宫殿与教堂，到勾勒出历史街区轮廓的巴洛克式立面，无不昭示着往昔的辉煌。
 > 
-> Today's image was taken on June 28, 2020, when the legacy took on new meaning. With Pride parades canceled amid the coronavirus pandemic, Rockefeller Center stood unusually quiet as rainbow flags lined its plaza. The installation marked 50 years since the first Pride march, transforming one of New York City's most recognizable landmarks into a place of reflection rather than crowds.
+> 在巴勒莫，艺术与传统自然地融入了日常生活，在巴拉罗（Ballarò）和武奇里亚（Vucciria）等熙攘的集市中表现尤为显著——斑斓的色彩、叫卖声与香气交织出一种令人难忘的氛围。巴勒莫亦是一座“风味之城”，以其独特的街头饮食文化闻名遐迩。从炸饭团（arancine）、鹰嘴豆饼（panelle）到甜美的奶油甜馅煎饼卷（cannoli），每一道珍馐都折射出数世纪以来的文化融合。城市依山傍海，历史并非禁锢于博物馆墙内，而是鲜活地流淌在街道、饮食以及居民的血脉之中。
 > 
-> Pride Month today carries both celebration and weight. It honors decades of activism, creativity, and resilience while acknowledging progress that remains unfinished. From small-town gatherings to iconic urban spaces, Pride continues to be visible—insisting that LGBTQIA+ history is not a footnote, but a living, evolving part of the American story.
+> 
 
 </details>
 
-| ![Happy Pride Month!](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Pride Month!](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![巴勒莫，西西里岛，意大利](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![巴勒莫，西西里岛，意大利](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_1080x1920.jpg) |
 
 ### 20260531
 
-> Aerial view of Everglades National Park, Florida (© Tetra Images/Getty Images)
+> 大沼泽地国家公园航拍景观，佛罗里达州，美国 (© Tetra Images/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Today is the last day of American Wetlands Month, but don't let that bog you down. Take today to shine a spotlight on wetlands. Held throughout May, this national observance shines a spotlight on wetlands—some of the most productive ecosystems in the United States—and few places show their power quite like Everglades National Park. From above, Florida's iconic wetlands unfold as a vast patchwork of shallow water, sawgrass, mangroves, and winding channels, shaped by freshwater slowly flowing south from Lake Okeechobee.
+> 今天是美国湿地月的最后一天，但对湿地生态的关注并不应随之结束。每年 5 月举行的这一全国性活动，旨在让更多人了解湿地这一美国最具生产力的重要生态系统之一。而位于佛罗里达州的大沼泽地国家公园，正是展现湿地力量的典型代表。从空中俯瞰，浅水、锯齿草、红树林与蜿蜒水道共同构成广阔景观，淡水从奥基乔比湖缓缓向南流动，塑造出独特生态环境。
 > 
-> Covering about 1.5 million acres, the Everglades is the largest subtropical wilderness in the country and a vital refuge for birds, fish, reptiles, and rare species such as the Florida panther. Wetlands also work behind the scenes, filtering pollutants, storing carbon, reducing floods, and helping supply clean water to nearby communities.
+> 大沼泽地国家公园面积约达 150 万英亩，是美国最大的亚热带荒野地区之一，也是众多鸟类、鱼类、爬行动物以及佛罗里达美洲狮等珍稀物种的重要栖息地。除了维持生物多样性，湿地还在生态系统中发挥着关键作用，例如过滤污染物、储存碳、减缓洪水，并为周边社区提供更洁净的水源。美国湿地月也提醒人们，无论从空中还是地面观察，这些水域景观都值得长期保护与关注。
 > 
-> American Wetlands Month invites us to appreciate these watery landscapes—from above and on the ground—and recognize why protecting them matters long after May ends.
+> 
 
 </details>
 
-| ![End of American Wetlands Month](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![End of American Wetlands Month](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![大沼泽地国家公园](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![大沼泽地国家公园](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_1080x1920.jpg) |
 
 ### 20260530
 
-> Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)
+> 平原斑马幼崽，埃托沙国家公园，纳米比亚 (© Sharon Heald/Nature Picture Library)
 
 <details>
 <summary>Description</summary>
 
-> Etosha National Park, Namibia, is not a place for soft starts, and the plains zebra foal in this image seems to get the memo. In a land this vast—nearly 8,600 square miles of salt pans and grassland—timing is everything, and hesitation is expensive. Lions, spotted hyenas, wild dogs, cheetahs, and leopards constantly pressure the herd—especially the youngest—so zebras are born ready. Minutes after arrival, they're upright. Hours later, they're moving.
+> 平原斑马身上鲜明的黑白条纹并不只是装饰，它们能够干扰捕食者的视觉判断，让猎手难以锁定单独个体。每只斑马的纹路都独一无二，但当它们聚集行动时，交错的条纹会形成复杂的视觉迷阵，增加捕食难度。这种生存策略十分有效。如今，数十万只平原斑马分布于非洲各地，在埃托沙等自然保护区中依然维持着稳定数量。
 > 
-> Those bold stripes aren't decoration; they disrupt vision and make it harder to isolate a single body. Each pattern is unique, yet together they form a moving puzzle predators struggle to solve. The strategy pays off. With hundreds of thousands spread across Africa, plains zebras have strong populations in protected areas like Etosha. The advantage lies in consistency: learn the pattern, read the space, stay close—and suddenly the odds look a lot better.
+> 对于平原斑马来说，群体协作同样重要。它们会通过观察环境、保持队形以及紧密行动来提高警觉性与生存概率。当斑马群一同穿越草原时，整齐流动的条纹不仅形成独特景观，也成为它们抵御天敌的重要天然屏障。
 > 
 > 
 
 </details>
 
-| ![Plains zebra foal in Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Plains zebra foal in Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![纳米比亚埃托沙国家公园的平原斑马幼崽](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![纳米比亚埃托沙国家公园的平原斑马幼崽](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_1080x1920.jpg) |
 
 ### 20260529
 
-> Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)
+> 珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔 (© fotoVoyager/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> In Sagarmatha National Park, Nepal, Mount Everest rises into view, calm and unmoved as evening settles in. But on May 29, 1953, that stillness was broken. After years of planning and weeks of climbing, New Zealander Edmund Hillary and Sherpa mountaineer Tenzing Norgay reached the summit. At over 29,000 feet above sea level, they became the first people known to have stood at Earth's highest point.
+> 在尼泊尔的萨加玛塔国家公园，珠穆朗玛峰于暮色中巍然显现，平静而沉稳。1953年5月29日，这片宁静被历史性的一刻打破。经过数年的筹备与数周艰苦攀登，新西兰登山家埃德蒙·希拉里与夏尔巴登山家丹增·诺尔盖成功登顶珠穆朗玛峰。在海拔超过29000英尺（约8848米）的高度上，他们成为已知最早成功抵达人类所知地球最高点的人。
 > 
-> That moment became part of a much older story. Long before modern expeditions arrived, local communities honored the mountain as sacred. They lived in its shadow, reading its moods with knowledge refined over generations. Such understanding proved essential in a place shaped by thin air, sudden storms, and unforgiving routes.
+> 这一历史时刻，也成为珠穆朗玛峰悠久文化传统的一部分。早在现代登山远征到来之前，当地社区便将这座山峰视为神圣之地。世代生活于山麓的人们，通过长期积累的经验观察山体与天气变化，并逐渐形成对高海拔环境的深刻认知。在空气稀薄、天气多变、登山路线险峻的环境中，这种经验与理解显得尤为重要。
 > 
-> The 1953 ascent showed what cooperation could unlock: British logistics, Sherpa expertise, and a broad support team came together on one ridge. As daylight fades across Everest, the glow along its peak recalls a spring day when curiosity and courage lifted humans to the very edge of the sky.
+> 1953年的成功登顶，展现了协作所带来的突破：英国远征队的后勤支持、夏尔巴登山者的高山经验，以及众多支援成员的共同努力，最终汇聚于同一条登顶路线之上。当暮色再次笼罩珠穆朗玛峰，峰顶映出的微光，仿佛仍在诉说那个春日——人类凭借好奇心与勇气，首次向世界最高峰发起成功挑战。
 
 </details>
 
-| ![1953 Mount Everest Expedition](https://cn.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![1953 Mount Everest Expedition](https://cn.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![1953年珠穆朗玛峰登山远征](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![1953年珠穆朗玛峰登山远征](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_1080x1920.jpg) |
-
-### 20260528
-
-> Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As night settles over Suwon, South Korea, the old city wall pictured here shows that function doesn't necessarily cancel out beauty—it can create it. Built between 1794 and 1796 under King Jeongjo of the Joseon Dynasty, Hwaseong Fortress was more than a barrier. It was policy in stone: a reform minded push for a leaner, better-run state, driven by practicality and a deeply personal motive. Jeongjo ordered its construction to honor his father while strengthening a kingdom that wanted smarter systems, not just thicker walls.
-> 
-> Ahead of its time, this masterpiece of Korean fortification hid innovation in plain sight. Rather than wrestling with the landscape, the roughly 3.5-mile wall follows its curves. Bastions widened defensive coverage, watchtowers doubled as signaling points, concealed gates allowed discreet movement, and pulley systems quickened construction. Recognized as a UNESCO World Heritage Site in 1997, the site is remarkably intact—and still very much in motion. Hwaseong remains walkable, watchable, and woven into daily life. Defense by day, poetry by night.
-> 
-> 
-
-</details>
-
-| ![Old city wall of Hwaseong Fortress, Suwon, South Korea](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Old city wall of Hwaseong Fortress, Suwon, South Korea](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1080x1920.jpg) |US0920778137_1080x1920.jpg) |向世人证明了一点：当设计与自然律动相契合，一切美感与功能便随之而来。
-
-</details>
-
-| ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg) || ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1080x1920.jpg) |3008233136_1080x1920.jpg) |p&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
