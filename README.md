@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260606
+
+> Natchez Trace Parkway, Tupelo, Mississippi, USA (© The best photo is earned/Getty Images Plus)
+
+<details>
+<summary>Description</summary>
+
+> If your screen time has been winning lately, today is a good time to change that—we suggest hiking. National Trails Day, created in 1993 by the American Hiking Society, nudges people toward exploring trails.
+> 
+> Take the Natchez Trace Parkway near Tupelo, Mississippi, featured in today's image. This trail was used by Native Americans for centuries before serving European and American explorers and traders in the late 18th and early 19th centuries. Now it covers 444 miles, with preserved sections showing how the original path sank below the surrounding land after years of use. Markers along the route explain these layers of history, alongside stretches of forest and open land that make it easy to slow down.
+> 
+> Time on trails can help lower stress, improve mood, and ease stiffness from long hours of sitting. Because it falls on a weekend, it's an easy win—step out, move a little, and let the trail do the rest.
+
+</details>
+
+| ![National Trails Day](https://cn.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Trails Day](https://cn.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_1080x1920.jpg) |
+
 ### 20260605
 
 > View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![End of American Wetlands Month](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![End of American Wetlands Month](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1080x1920.jpg) |
-
-### 20260530
-
-> Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Etosha National Park, Namibia, is not a place for soft starts, and the plains zebra foal in this image seems to get the memo. In a land this vast—nearly 8,600 square miles of salt pans and grassland—timing is everything, and hesitation is expensive. Lions, spotted hyenas, wild dogs, cheetahs, and leopards constantly pressure the herd—especially the youngest—so zebras are born ready. Minutes after arrival, they're upright. Hours later, they're moving.
-> 
-> Those bold stripes aren't decoration; they disrupt vision and make it harder to isolate a single body. Each pattern is unique, yet together they form a moving puzzle predators struggle to solve. The strategy pays off. With hundreds of thousands spread across Africa, plains zebras have strong populations in protected areas like Etosha. The advantage lies in consistency: learn the pattern, read the space, stay close—and suddenly the odds look a lot better.
-> 
-> 
-
-</details>
-
-| ![Plains zebra foal in Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Plains zebra foal in Etosha National Park, Namibia](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg) |400&h=224&rs=1&c=4) | ![1953年珠穆朗玛峰登山远征](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1080x1920.jpg) |m/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg) |400&h=224&rs=1&c=4) | ![1953年珠穆朗玛峰登山远征](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg) || ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
