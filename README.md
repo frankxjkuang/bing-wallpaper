@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260607
+
+> Atlanta Botanical Garden, Atlanta, Georgia (© Marcus E Jones/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Since opening its doors in 1976, the Atlanta Botanical Garden has proven that beauty can be organized. Beds are planned, labels are placed, and every plant has a job. 'To have a garden is not as easy as it seems; it is just as difficult as governing a kingdom.' Nobel Prize-winning German author Hermann Hesse had a point.
+> 
+> Established in 1986 with a presidential proclamation, National Garden Week, held the first full week of June, leans into that idea and asks people to dig in. The group behind it, National Garden Clubs, suggests keeping it practical: host a workshop at a library or public garden, plan a garden tour, or beautify a manageable area with a group. Try something small, learn as you go, and let the plants do the talking. Gardens are a luxury, and they ask for royal attention. Treat yours like a kingdom, and it will pay you back.
+> 
+> 
+
+</details>
+
+| ![National Garden Week](https://cn.bing.com/th?id=OHR.GardenAtlanta_EN-US2319128074_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Garden Week](https://cn.bing.com/th?id=OHR.GardenAtlanta_EN-US2319128074_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GardenAtlanta_EN-US2319128074_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GardenAtlanta_EN-US2319128074_1080x1920.jpg) |
+
 ### 20260606
 
 > Natchez Trace Parkway, Tupelo, Mississippi, USA (© The best photo is earned/Getty Images Plus)
@@ -112,25 +131,7 @@
 
 | ![Happy Pride Month!](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Pride Month!](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_1080x1920.jpg) |
-
-### 20260531
-
-> Aerial view of Everglades National Park, Florida (© Tetra Images/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today is the last day of American Wetlands Month, but don't let that bog you down. Take today to shine a spotlight on wetlands. Held throughout May, this national observance shines a spotlight on wetlands—some of the most productive ecosystems in the United States—and few places show their power quite like Everglades National Park. From above, Florida's iconic wetlands unfold as a vast patchwork of shallow water, sawgrass, mangroves, and winding channels, shaped by freshwater slowly flowing south from Lake Okeechobee.
-> 
-> Covering about 1.5 million acres, the Everglades is the largest subtropical wilderness in the country and a vital refuge for birds, fish, reptiles, and rare species such as the Florida panther. Wetlands also work behind the scenes, filtering pollutants, storing carbon, reducing floods, and helping supply clean water to nearby communities.
-> 
-> American Wetlands Month invites us to appreciate these watery landscapes—from above and on the ground—and recognize why protecting them matters long after May ends.
-
-</details>
-
-| ![End of American Wetlands Month](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![End of American Wetlands Month](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_1080x1920.jpg) |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1080x1920.jpg) |m/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg) |400&h=224&rs=1&c=4) | ![1953年珠穆朗玛峰登山远征](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg) || ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
