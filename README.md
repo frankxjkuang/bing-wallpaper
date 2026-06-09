@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260608
+
+> Lion's mane jellyfish swimming in the ocean (© Alexander Semenov Images/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Today is World Oceans Day, so follow the lead of a creature that goes wherever the water takes it. Want to spot a lion's mane jellyfish? Look in cold northern seas. Its bell is split into eight lobes, and beneath it hang long tentacles and oral arms. As it drifts with the current, stinging cells snare plankton and small fish. For humans, the sting can be painful. Reactions vary, and even a washed-up tentacle can still hurt. The rule is simple: admire it, then leave it alone. Some lion's manes in Arctic waters have bells more than 6 feet across, but most sightings are smaller animals near shore after storms or strong currents.
+> 
+> World Oceans Day is not a lecture. It is a reminder that ocean health is a chain, from plankton to predators. Cut single-use plastic, back cleaner shipping and fishing rules, and support habitat protection where you live. Keep the ocean working, and the wild stays with it.
+> 
+> 
+
+</details>
+
+| ![World Oceans Day](https://cn.bing.com/th?id=OHR.Cyanea_EN-US1146473249_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Oceans Day](https://cn.bing.com/th?id=OHR.Cyanea_EN-US1146473249_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cyanea_EN-US1146473249_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cyanea_EN-US1146473249_1080x1920.jpg) |
+
 ### 20260607
 
 > Atlanta Botanical Garden, Atlanta, Georgia (© Marcus E Jones/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Highway through Xitai Jinaier Lake, Qinghai Province, China](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Highway through Xitai Jinaier Lake, Qinghai Province, China](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_1080x1920.jpg) |
-
-### 20260601
-
-> Rainbow flags at Rockefeller Center on June 28, 2020, New York City (© Noam Galai/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Every June, Pride Month bursts into cities and streets across the United States—but its origins lie in defiance, not festivity. The observance grew from the Stonewall uprising of June 1969, when LGBTQIA+ New Yorkers pushed back against routine police raids, igniting a movement that reshaped civil rights history.
-> 
-> Today's image was taken on June 28, 2020, when the legacy took on new meaning. With Pride parades canceled amid the coronavirus pandemic, Rockefeller Center stood unusually quiet as rainbow flags lined its plaza. The installation marked 50 years since the first Pride march, transforming one of New York City's most recognizable landmarks into a place of reflection rather than crowds.
-> 
-> Pride Month today carries both celebration and weight. It honors decades of activism, creativity, and resilience while acknowledging progress that remains unfinished. From small-town gatherings to iconic urban spaces, Pride continues to be visible—insisting that LGBTQIA+ history is not a footnote, but a living, evolving part of the American story.
-
-</details>
-
-| ![Happy Pride Month!](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Pride Month!](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_1080x1920.jpg) |:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_1080x1920.jpg) |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1080x1920.jpg) |m/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg) |400&h=224&rs=1&c=4) | ![1953年珠穆朗玛峰登山远征](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg) || ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
