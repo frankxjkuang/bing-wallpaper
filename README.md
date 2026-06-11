@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260610
+
+> Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> From above, the lake's smooth surface contrasts sharply with the rugged ground surrounding it. Hnausapollur crater lake—also known as Bláhylur—lies in the heart of Fjallabak Nature Reserve, a remote area of Iceland's highlands shaped more by volcanic activity than by human settlement. The crater formed when magma met groundwater, triggering an explosion that carved out the circular basin visible today.
+> 
+> Over time, rain, meltwater, and groundwater accumulated within the basin, forming the striking lake seen in today's image. Its color shifts with light and weather, often glowing turquoise under clear skies and appearing deeper blue or gray when clouds pass overhead. The surrounding slopes reveal distinct layers of volcanic material, recording successive eruptions that once spread across the landscape.
+> 
+> Fjallabak remains largely undeveloped, protected for its geology and vast open spaces. From this aerial perspective, it's easy to see how powerful natural forces shaped Hnausapollur and why Iceland's highlands continue to captivate visitors—a place where the Earth's restless energy remains visible at the surface.
+
+</details>
+
+| ![Hnausapollur crater lake, Fjallabak Nature Reserve, Iceland](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hnausapollur crater lake, Fjallabak Nature Reserve, Iceland](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg) |
+
 ### 20260609
 
 > Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Snowy egret preening, central Florida](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Snowy egret preening, central Florida](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_1080x1920.jpg) |
-
-### 20260603
-
-> Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Your average route to work might not resemble the one in today's image, but it shouldn't stop you from pedaling. World Bicycle Day invites us to rethink what's possible on two wheels—whether the ride cuts through city streets or remote terrain. Observed every June 3, the United Nations–backed day recognizes cycling as a practical way to move, supporting health, lowering emissions, and making mobility more accessible.
-> 
-> An adventurer shown here cycles through Bardenas Reales Natural Park and Biosphere Reserve in Navarra, Spain, a stark landscape shaped by wind and water over millions of years. Its maze of eroded cliffs, plateaus, and dry channels feels closer to another planet than northern Spain. Protected as a UNESCO Biosphere Reserve, the park allows cycling on designated routes, offering a rare chance to experience a fragile environment at ground level and human speed.
-> 
-> From daily commutes to places like this, bicycles turn travel into exploration—quiet, efficient, and surprisingly bold.
-
-</details>
-
-| ![World Bicycle Day](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Bicycle Day](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_1080x1920.jpg) |Download landscape 4K](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_1080x1920.jpg) |:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_1080x1920.jpg) |kefellerPride_EN-US1087499810_1080x1920.jpg) |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1080x1920.jpg) |m/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg) |400&h=224&rs=1&c=4) | ![1953年珠穆朗玛峰登山远征](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg) || ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
