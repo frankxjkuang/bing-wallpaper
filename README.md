@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260611
+
+> Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Tucked away beneath steep cliffs near Cabo da Roca, the westernmost point of mainland Europe, Praia da Ursa feels like the edge of the continent. Reached by a narrow, rugged trail, this secluded beach along Portugal's Atlantic coast is shaped largely by wind, stone, and powerful waves. When the tide recedes, the shoreline briefly widens. Smooth rocks emerge, and with them, small signs of life. Limpets cling tightly to the exposed stone, holding fast where the ocean usually breaks.
+> 
+> These modest marine snails are well adapted to conditions here, using strong suction and low shells to withstand surf, shifting temperatures, and long periods exposed to air. During high tide or when submerged, they graze on algae, then return to familiar spots as the sea recedes. Praia da Ursa's isolation makes these moments easy to miss and rewarding to notice. In a landscape defined by scale and force, even the smallest survivors reflect the Atlantic coast's quiet resilience.
+> 
+> 
+
+</details>
+
+| ![Limpets at low tide on the coast of Praia da Ursa, Portugal](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Limpets at low tide on the coast of Praia da Ursa, Portugal](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_1080x1920.jpg) |
+
 ### 20260610
 
 > Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![World Environment Day](https://cn.bing.com/th?id=OHR.WedLapland_EN-US9813120088_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Environment Day](https://cn.bing.com/th?id=OHR.WedLapland_EN-US9813120088_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WedLapland_EN-US9813120088_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WedLapland_EN-US9813120088_1080x1920.jpg) |
-
-### 20260604
-
-> Snowy egret preening, central Florida, USA (© Donald M. Jones/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Poetic name, poetic appearance. Meet the snowy egret, whose all-white plumage and bright yellow 'slippers' on black legs give it a striking look. Once nearly wiped out by demand for its delicate breeding-season feathers—soft, lacy plumes prized for fashionable hats—conservation efforts saved its plumage.
-> 
-> Today's image shows a snowy egret preening in central Florida, a common sight in the state's wetlands year-round. Preening keeps its feathers clean and waterproof—essential for a hunter that stalks shallow waters for fish, shrimp, and insects. These wading birds are known for their active style, stirring the water with those yellow feet to startle prey.
-> 
-> Standing about two feet tall with a wingspan around three feet, snowy egrets nest in colonies and return each spring to breeding grounds across the southern US. Today, their thriving presence is a reminder of the power of conservation efforts.
-
-</details>
-
-| ![Snowy egret preening, central Florida](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Snowy egret preening, central Florida](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_1080x1920.jpg) |kefellerPride_EN-US1087499810_1080x1920.jpg) |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1080x1920.jpg) |m/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg) |400&h=224&rs=1&c=4) | ![1953年珠穆朗玛峰登山远征](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WedLapland_EN-US9813120088_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WedLapland_EN-US9813120088_1080x1920.jpg) |bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1080x1920.jpg) |m/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg) |400&h=224&rs=1&c=4) | ![1953年珠穆朗玛峰登山远征](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg) || ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
