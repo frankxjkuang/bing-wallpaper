@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260612
+
+> European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> A streak of color glides past a blur of wildflowers as a European bee-eater cuts through the air. Turquoise, gold, and chestnut shimmer across its wings as it hunts in flight, snatching insects midair with swift turns. Bees and wasps are among its favored prey, and the bird often removes the stinger before feeding—a behavior that reduces the risk of injury.
+> 
+> European bee-eaters breed across southern Europe, the Mediterranean region, and parts of western Asia during the warmer months. After the breeding season, most populations migrate south, with many spending the winter in sub-Saharan Africa, while some eastern groups follow routes to northeastern Africa. Pictured here in Sierra de Grazalema Natural Park in southern Spain, a mountainous area known for high rainfall and rich biodiversity, bee-eaters nest in groups, excavating tunnels in sandy banks where they raise their young in colonies. Away from the nest, they often gather briefly on perches before taking flight in coordinated bursts of color.
+> 
+> 
+
+</details>
+
+| ![European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1080x1920.jpg) |
+
 ### 20260611
 
 > Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![National Trails Day](https://cn.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Trails Day](https://cn.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_1080x1920.jpg) |
-
-### 20260605
-
-> View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> If nature had a 'do not disturb' sign, it would hang over Sarek National Park, often called 'the last European wilderness.' On World Environment Day, this remote corner of Swedish Lapland reminds us what the planet looks like when humans take a step back—and let the wild take the lead.
-> 
-> Established in 1909, Sarek is one of the continent's oldest national parks and remains untouched by modern infrastructure. There are no marked trails, no cozy cafés, and definitely no shortcuts. Instead, it offers over 200 peaks, nearly 100 glaciers, and valleys shaped by ice and time. It is part of the Laponian Area, a UNESCO World Heritage Site, and home to the Indigenous Sámi people, whose reindeer herding traditions still thrive across these lands.
-> 
-> Wildlife here plays it cool—moose, lynx, and wolverines keep things low-key. Even the rivers refuse to stay still, carving their own paths through the landscape. Today is about action, but Sarek makes a strong case for inaction too. Sometimes, protecting the planet means resisting the urge to tame it.
-
-</details>
-
-| ![World Environment Day](https://cn.bing.com/th?id=OHR.WedLapland_EN-US9813120088_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Environment Day](https://cn.bing.com/th?id=OHR.WedLapland_EN-US9813120088_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WedLapland_EN-US9813120088_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WedLapland_EN-US9813120088_1080x1920.jpg) |bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1080x1920.jpg) |m/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg) |400&h=224&rs=1&c=4) | ![1953年珠穆朗玛峰登山远征](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_1080x1920.jpg) |S8572465847_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1080x1920.jpg) |m/th?id=OHR.EquusQuagga_EN-US8240577582_1080x1920.jpg) |400&h=224&rs=1&c=4) | ![1953年珠穆朗玛峰登山远征](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1080x1920.jpg) || ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![从印度拉贾斯坦邦风之宫俯瞰斋浦尔](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
