@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260615
+
+> Great Smoky Mountains National Park, Tennessee (© Mint Images/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> These mountains were shaped over time—and June 15, 1934, helped protect them. That's when the Great Smoky Mountains National Park was established in Tennessee and North Carolina. Covering over 522,000 acres, the park takes its name from the natural smoky haze drifting over its ridgelines. Part of the Appalachian Mountains, these peaks are over 300 million years old.
+> 
+> Native Americans have hunted in these mountains for around 14,000 years. Archaeologists have found Archaic-period projectile points along animal migration routes, while Woodland-period sites reveal 2,000-year-old ceramics and early farming practices.
+> 
+> Recognized as the Salamander Capital of the World, the park is a biodiversity hotspot, home to around 30 salamander species, black bears, elk, over 200 bird species, and thousands of plant varieties. Its forests shift with elevation, supporting a wide range of ecosystems. Kuwohi is the highest point, offering sweeping views. Meanwhile, Cades Cove and Cataloochee Valley contain preserved buildings that reflect life in the region before the park's creation.
+
+</details>
+
+| ![Great Smoky Mountains National Park turns 92!](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Smoky Mountains National Park turns 92!](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_1080x1920.jpg) |
+
 ### 20260614
 
 > US flags surrounding the Washington Monument, Washington, DC (© Orhan Cam/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![Vernazza, Cinque Terre, Liguria, Italy](https://cn.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vernazza, Cinque Terre, Liguria, Italy](https://cn.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_1080x1920.jpg) |
-
-### 20260608
-
-> Lion's mane jellyfish swimming in the ocean (© Alexander Semenov Images/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Today is World Oceans Day, so follow the lead of a creature that goes wherever the water takes it. Want to spot a lion's mane jellyfish? Look in cold northern seas. Its bell is split into eight lobes, and beneath it hang long tentacles and oral arms. As it drifts with the current, stinging cells snare plankton and small fish. For humans, the sting can be painful. Reactions vary, and even a washed-up tentacle can still hurt. The rule is simple: admire it, then leave it alone. Some lion's manes in Arctic waters have bells more than 6 feet across, but most sightings are smaller animals near shore after storms or strong currents.
-> 
-> World Oceans Day is not a lecture. It is a reminder that ocean health is a chain, from plankton to predators. Cut single-use plastic, back cleaner shipping and fishing rules, and support habitat protection where you live. Keep the ocean working, and the wild stays with it.
-> 
-> 
-
-</details>
-
-| ![World Oceans Day](https://cn.bing.com/th?id=OHR.Cyanea_EN-US1146473249_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Oceans Day](https://cn.bing.com/th?id=OHR.Cyanea_EN-US1146473249_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Cyanea_EN-US1146473249_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Cyanea_EN-US1146473249_1080x1920.jpg) |了城堡，后来在克伦威尔征服爱尔兰期间，城堡又遭到进一步破坏。然而，一座小塔楼一直屹立到1978年，最终被海水吞没。
-> 
-> 如今，在国民信托的管理下，这里免费开放，保留着原始风貌，令人耳目一新——距离巨人堤道仅几步之遥。没错，这里是一处遗址——但它拒绝悄然消逝。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_1080x1920.jpg) |保留着原始风貌，令人耳目一新——距离巨人堤道仅几步之遥。没错，这里是一处遗址——但它拒绝悄然消逝。
 
 </details>
 
