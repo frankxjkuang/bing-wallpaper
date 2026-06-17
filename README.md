@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260616
+
+> Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Sea Turtle Day highlights some of the ocean's most ancient mariners—reptiles that have existed for over 100 million years. Observed each year on June 16, it raises awareness of their ecological importance and the growing threats they face. Sea turtles play a vital role in maintaining healthy seagrass beds and coral reefs, ecosystems that support diverse marine life. Long migrations between feeding and nesting areas are central to their life cycle. Despite their resilience, all species are threatened by habitat loss, plastic pollution, climate change, and accidental capture in fishing gear.
+> 
+> Pictured here near the Cayman Islands, a pair of hawksbill sea turtles glide through clear Caribbean waters. Known for their patterned shells and narrow, hawk-like beaks, hawksbills help maintain reef balance by feeding mainly on sponges, which prevents them from overtaking corals. Critically endangered, they are among the rarest sea turtle species—making encounters like this even more remarkable.
+> 
+> 
+
+</details>
+
+| ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Sea Turtle Day](https://cn.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_1080x1920.jpg) |
+
 ### 20260615
 
 > Great Smoky Mountains National Park, Tennessee (© Mint Images/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Hnausapollur crater lake, Fjallabak Nature Reserve, Iceland](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hnausapollur crater lake, Fjallabak Nature Reserve, Iceland](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg) |
-
-### 20260609
-
-> Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Vernazza is a small seaside town in Cinque Terre, in Italy's Liguria region. Built around the area's only natural harbor, it has long been tied to the sea. First recorded in 1080 as a fortified settlement and maritime base, it later became part of the Republic of Genoa's coastal defenses. To this day, the village preserves its past in the ruins of Doria Castle and the watchtowers overlooking the bay. At the water's edge stands the Church of Santa Margherita d'Antiochia, first mentioned in 1318 and expanded in later centuries, with a bell tower overlooking the port. Above the houses and narrow lanes, steep terraces support vineyards and olive groves, shaped by generations of stonework in a landscape protected within Cinque Terre National Park, part of a UNESCO World Heritage Site. Picture an aperitivo here: a glass of local white wine, the harbor in view, and Ligurian favorites like focaccia and basil pesto—basically a postcard you can taste.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Vernazza, Cinque Terre, Liguria, Italy](https://cn.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vernazza, Cinque Terre, Liguria, Italy](https://cn.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_1080x1920.jpg) |保留着原始风貌，令人耳目一新——距离巨人堤道仅几步之遥。没错，这里是一处遗址——但它拒绝悄然消逝。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg) |几步之遥。没错，这里是一处遗址——但它拒绝悄然消逝。
 
 </details>
 
