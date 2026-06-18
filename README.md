@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260617
+
+> Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Follow the glowing ribbon of switchbacks and you'll find one of Switzerland's most legendary drives: Tremola Road, the historic southern approach to the Saint Gotthard Pass, above Airolo. Built in the early 1800s and largely shaped by a 1951 reconstruction, this route is celebrated as Switzerland's longest monument to historic road construction. Its showstopper stretch climbs about 980 feet in just 2.5 miles, curling through 24 named hairpin bends on granite cobblestones, with sturdy retaining walls edging the way. Overall, it runs about 7 miles and features 37 bends in total. Take it slow—every curve feels like a step back in time, trading speed for sweeping mountain scenery and big views toward the upper Leventina Valley. Whether you're driving, cycling, or pulling over for photos, look for the Grand Tour of Switzerland photo spot framing those iconic zigzags.
+> 
+> Adventure tip: Aim for clear, dry conditions—the cobbles are part of the thrill.
+> 
+> 
+
+</details>
+
+| ![Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland](https://cn.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland](https://cn.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_1080x1920.jpg) |
+
 ### 20260616
 
 > Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)
@@ -112,25 +131,7 @@
 
 | ![Limpets at low tide on the coast of Praia da Ursa, Portugal](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Limpets at low tide on the coast of Praia da Ursa, Portugal](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_1080x1920.jpg) |
-
-### 20260610
-
-> Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> From above, the lake's smooth surface contrasts sharply with the rugged ground surrounding it. Hnausapollur crater lake—also known as Bláhylur—lies in the heart of Fjallabak Nature Reserve, a remote area of Iceland's highlands shaped more by volcanic activity than by human settlement. The crater formed when magma met groundwater, triggering an explosion that carved out the circular basin visible today.
-> 
-> Over time, rain, meltwater, and groundwater accumulated within the basin, forming the striking lake seen in today's image. Its color shifts with light and weather, often glowing turquoise under clear skies and appearing deeper blue or gray when clouds pass overhead. The surrounding slopes reveal distinct layers of volcanic material, recording successive eruptions that once spread across the landscape.
-> 
-> Fjallabak remains largely undeveloped, protected for its geology and vast open spaces. From this aerial perspective, it's easy to see how powerful natural forces shaped Hnausapollur and why Iceland's highlands continue to captivate visitors—a place where the Earth's restless energy remains visible at the surface.
-
-</details>
-
-| ![Hnausapollur crater lake, Fjallabak Nature Reserve, Iceland](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hnausapollur crater lake, Fjallabak Nature Reserve, Iceland](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_1080x1920.jpg) |-----:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg) |几步之遥。没错，这里是一处遗址——但它拒绝悄然消逝。
 
 </details>
