@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260618
+
+> Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)
+
+<details>
+<summary>Description</summary>
+
+> Set high above Cusco in Peru, Sacsayhuamán reveals the ambition of the Inca Empire in stone. Built in the 15th century, this vast complex once formed part of the sacred capital of the Incas. From above, the layout becomes clear: terraces, open plazas, and the remains of towers forming a carefully planned citadel. The largest walls, built from enormous blocks, still stand strong today. Some stones rise more than 27 feet tall and were fitted together so precisely—without mortar—that the structure has endured centuries of earthquakes.
+> 
+> Archaeologists believe Sacsayhuamán served both ceremonial and strategic purposes, hosting gatherings and rituals dedicated to Inti, the Inca sun god, while also overlooking the city below. Its name comes from Quechua, often translated as 'Satisfied Falcon,' reflecting the importance of birds of prey in Andean belief. Today, the site remains a powerful reminder of Inca engineering—where design, symbolism, and sheer scale continue to impress from every angle.
+> 
+> 
+
+</details>
+
+| ![Aerial view of the ruins of Sacsayhuamán, Cusco, Peru](https://cn.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of the ruins of Sacsayhuamán, Cusco, Peru](https://cn.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_1080x1920.jpg) |
+
 ### 20260617
 
 > Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1080x1920.jpg) |
-
-### 20260611
-
-> Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Tucked away beneath steep cliffs near Cabo da Roca, the westernmost point of mainland Europe, Praia da Ursa feels like the edge of the continent. Reached by a narrow, rugged trail, this secluded beach along Portugal's Atlantic coast is shaped largely by wind, stone, and powerful waves. When the tide recedes, the shoreline briefly widens. Smooth rocks emerge, and with them, small signs of life. Limpets cling tightly to the exposed stone, holding fast where the ocean usually breaks.
-> 
-> These modest marine snails are well adapted to conditions here, using strong suction and low shells to withstand surf, shifting temperatures, and long periods exposed to air. During high tide or when submerged, they graze on algae, then return to familiar spots as the sea recedes. Praia da Ursa's isolation makes these moments easy to miss and rewarding to notice. In a landscape defined by scale and force, even the smallest survivors reflect the Atlantic coast's quiet resilience.
-> 
-> 
-
-</details>
-
-| ![Limpets at low tide on the coast of Praia da Ursa, Portugal](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Limpets at low tide on the coast of Praia da Ursa, Portugal](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_1080x1920.jpg) |-----:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg) |几步之遥。没错，这里是一处遗址——但它拒绝悄然消逝。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg) |几步之遥。没错，这里是一处遗址——但它拒绝悄然消逝。
 
 </details>
 
