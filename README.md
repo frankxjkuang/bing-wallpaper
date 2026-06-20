@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260619
+
+> National Museum of African American History and Culture, Washington, DC (© Walter Bibikow/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Across the National Mall in Washington, DC, the National Museum of African American History and Culture rises with a striking bronze-colored exterior. This powerful landmark reflects the story of Juneteenth, a holiday marking June 19, 1865, when Union troops arrived in Galveston, Texas, and finally announced freedom for more than 250,000 enslaved people—more than two years after the Emancipation Proclamation took effect.
+> 
+> Often called Freedom Day, Juneteenth honors both the end of slavery in the United States and the long struggle for equality that followed. Celebrations began in Texas and gradually spread nationwide, becoming a federal holiday in 2021.
+> 
+> Like the museum's intricate facade—a tiered 'corona' form inspired by African artistry and craftsmanship—Juneteenth reflects layered meanings of resilience, memory, and hope. Together, the holiday and the museum invite reflection on a past that continues to shape the nation's present.
+
+</details>
+
+| ![Happy Juneteenth!](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Juneteenth!](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_1080x1920.jpg) |
+
 ### 20260618
 
 > Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)
@@ -112,26 +131,7 @@
 
 | ![Sunset in Badlands National Park, South Dakota](https://cn.bing.com/th?id=OHR.BadSunset_EN-US5981956630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sunset in Badlands National Park, South Dakota](https://cn.bing.com/th?id=OHR.BadSunset_EN-US5981956630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadSunset_EN-US5981956630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadSunset_EN-US5981956630_1080x1920.jpg) |
-
-### 20260612
-
-> European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> A streak of color glides past a blur of wildflowers as a European bee-eater cuts through the air. Turquoise, gold, and chestnut shimmer across its wings as it hunts in flight, snatching insects midair with swift turns. Bees and wasps are among its favored prey, and the bird often removes the stinger before feeding—a behavior that reduces the risk of injury.
-> 
-> European bee-eaters breed across southern Europe, the Mediterranean region, and parts of western Asia during the warmer months. After the breeding season, most populations migrate south, with many spending the winter in sub-Saharan Africa, while some eastern groups follow routes to northeastern Africa. Pictured here in Sierra de Grazalema Natural Park in southern Spain, a mountainous area known for high rainfall and rich biodiversity, bee-eaters nest in groups, excavating tunnels in sandy banks where they raise their young in colonies. Away from the nest, they often gather briefly on perches before taking flight in coordinated bursts of color.
-> 
-> 
-
-</details>
-
-| ![European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg) |几步之遥。没错，这里是一处遗址——但它拒绝悄然消逝。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadSunset_EN-US5981956630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadSunset_EN-US5981956630_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg) |几步之遥。没错，这里是一处遗址——但它拒绝悄然消逝。
 
 </details>
 
