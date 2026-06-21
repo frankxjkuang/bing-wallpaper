@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260620
+
+> Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> A sculpted arch of ice rises from the Southern Ocean along the Antarctic Peninsula, one of the fastest-warming regions on Earth. This formation began as compacted snow that turned into glacial ice over thousands of years. Eventually, part of a glacier or floating ice shelf fractured and broke free—a process known as calving—creating a drifting iceberg.
+> 
+> Icebergs are classified by size and shape. To qualify, a mass must tower more than about 16 feet above sea level, yet nearly 90% of it remains hidden below the surface. Flat-topped 'tabular' forms are common in Antarctica, while eroded features like this arch fall into irregular, non-tabular categories.
+> 
+> Though seemingly barren, these floating giants support life. Algae cling to their undersides, feeding swarms of krill, which sustain fish, seals, and whales. As ice melts, it releases nutrients that fertilize surrounding waters, turning these frozen sculptures into mobile ecosystems.
+
+</details>
+
+| ![Arched iceberg, western Antarctic Peninsula, Southern Ocean](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arched iceberg, western Antarctic Peninsula, Southern Ocean](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_1080x1920.jpg) |
+
 ### 20260619
 
 > National Museum of African American History and Culture, Washington, DC (© Walter Bibikow/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Flag Day](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Flag Day](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_1080x1920.jpg) |
-
-### 20260613
-
-> Sunset in Badlands National Park, South Dakota, USA (© Troy Harrison/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Layered ridges stretch across Badlands National Park in South Dakota. Their bands of pink, gray, and gold shift with the light as eroded peaks and valleys come into view. Wind and water continue to shape this terrain, steadily wearing away soft sedimentary rock and exposing millions of years of Earth's history in layers formed by ancient rivers, volcanic ash, and periods when shallow seas covered the region.
-> 
-> Beneath this rugged surface lies one of the world's richest fossil beds, preserving the remains of early mammals such as ancient horses and relatives of modern rhinoceroses that once roamed the region. The Badlands are only a window into the past. Today, bison graze the open prairie, bighorn sheep move along steep ridges, and prairie dogs gather in active colonies across the grasslands.
-> 
-> Scenic roads and overlooks trace the contours of the land, offering sweeping views. Even now, layers of the past continue to emerge as the landscape slowly transforms.
-
-</details>
-
-| ![Sunset in Badlands National Park, South Dakota](https://cn.bing.com/th?id=OHR.BadSunset_EN-US5981956630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sunset in Badlands National Park, South Dakota](https://cn.bing.com/th?id=OHR.BadSunset_EN-US5981956630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BadSunset_EN-US5981956630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadSunset_EN-US5981956630_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg) |几步之遥。没错，这里是一处遗址——但它拒绝悄然消逝。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg) |几步之遥。没错，这里是一处遗址——但它拒绝悄然消逝。
 
 </details>
 
