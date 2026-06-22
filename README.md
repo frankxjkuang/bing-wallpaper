@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260621
+
+> King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On the third Sunday in June, we celebrate Father's Day—a moment to thank the steady, watchful figures who help life grow and thrive. Across the world, fatherhood can take surprising and extraordinary forms.
+> 
+> In the image, a king penguin father carefully cradles a single egg on his feet, tucked beneath a warm fold of skin called a brood pouch. After laying the egg, the mother heads out to sea to rebuild her energy, leaving the father to take over incubation and keep the egg from freezing. There are no nests here—just balance, patience, and precision. For weeks, he may stand almost motionless, fasting while shielding his fragile cargo. Their routine is a carefully timed exchange: one protects, one provides, then they swap roles in a rhythm perfected by nature.
+> 
+> Whether in a bustling city or a windswept colony, fatherhood often looks the same—a careful balancing act of strength, sacrifice, and quiet devotion.
+
+</details>
+
+| ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.EggDad_EN-US6390221455_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.EggDad_EN-US6390221455_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EggDad_EN-US6390221455_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EggDad_EN-US6390221455_1080x1920.jpg) |
+
 ### 20260620
 
 > Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Great Smoky Mountains National Park turns 92!](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Great Smoky Mountains National Park turns 92!](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_1080x1920.jpg) |
-
-### 20260614
-
-> US flags surrounding the Washington Monument, Washington, DC (© Orhan Cam/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> On June 14, the stars align—and not just figuratively. They line up on a piece of fabric that has seen battles, protests, and backyard barbecues. Flag Day marks the 1777 decision by the Second Continental Congress to adopt the national flag, but the story goes beyond stitches and stripes.
-> 
-> Enter Wisconsin teacher Bernard J. Cigrand, the 'father of Flag Day,' who began celebrating it with students in 1885. The idea endured, and in 2004 Congress declared his town, Waubeka, the holiday's official birthplace. Design debates still wave on. While Betsy Ross gets the spotlight, many credit Continental Congress delegate Francis Hopkinson with the pattern, which has since evolved into today's 50-star layout.
-> 
-> Six flags even rest on the Moon, left there by Apollo missions. Back on Earth, worn flags are respectfully burned to honor the flag's symbolism and the sacrifices it represents, as guided by the US Flag Code. Red stands for valor, white for purity, blue for vigilance and justice. Today is not a federal holiday, yet it raises the bar—and the banner.
-
-</details>
-
-| ![Flag Day](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Flag Day](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg) |几步之遥。没错，这里是一处遗址——但它拒绝悄然消逝。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_1080x1920.jpg) |?id=OHR.FlagsMonument_EN-US6034154869_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1080x1920.jpg) |几步之遥。没错，这里是一处遗址——但它拒绝悄然消逝。
 
 </details>
 
