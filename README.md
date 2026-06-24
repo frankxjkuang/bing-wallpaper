@@ -1,129 +1,137 @@
 ## bing wallpaper
 
-### 20260622
+### 20260623
 
-> 奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国 (© Chris Moore/Tandem Stills + Motion)
+> Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 6月22日是世界雨林日，这是一个全球性的日子，也是全年呼吁人们保护世界剩余雨林的行动。这些生态系统并非地图上的点点星罗棋布。它们遍布热带地区及其他地区，却仅覆盖地球表面约6%的面积。想想南美洲的亚马逊雨林、非洲的刚果盆地以及东南亚的森林吧。
+> Mount Fuji, Japan's highest mountain, rises to 12,389 feet on Honshu Island, about 60 miles southwest of Tokyo. Its near-perfect cone is a volcano—dormant since its last eruption in December 1707 yet still classed as active. That last major event is known as the Hōei eruption. It blasted ash and other tephra across eastern Japan, reaching Edo (today's Tokyo). Beyond geology, Fuji has long been treated as a sacred landscape and a destination for pilgrimage climbs, reflecting how nature, religion, and daily life overlap in Japan. That enduring cultural appeal is one reason it was designated a UNESCO World Heritage Site in 2013 as 'a sacred place and source of artistic inspiration.' Fuji is famously visible from far away on clear days but never guaranteed—clouds can hide it in minutes. Whether you hike it or just catch a glimpse from a train window, it still feels like Japan's signature on the horizon.
 > 
-> 位于华盛顿州奥林匹克国家公园的奎诺特雨林是一片原始的温带雨林。雨水和雾气滋养着它，使每一根树枝都成为鲜活的生命之源。仔细观察，你会发现这里郁郁葱葱，湿润丰饶：西加云杉和西部铁杉，披着苔藓和蕨类的大叶枫，以及倒下的参天大树上萌发新芽的“保育原木”。森林地面是真菌、昆虫和两栖动物的柔软实验室。如果你要来这里游览，可以从奎诺特雨林护林站出发，沿着枫树林步道走一小段，就能与森林平视相望。6月22日提醒我们行动起来。让我们每天都为森林挺身而出，守护那些依然屹立的生机。
+> 
 > 
 > 
 
 </details>
 
-| ![世界雨林日](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界雨林日](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Mount Fuji on Honshu Island, Japan](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Fuji on Honshu Island, Japan](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_1080x1920.jpg) |
+
+### 20260622
+
+> Quinault rainforest, Olympic National Park, Washington state (© Chris Moore/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> June 22 is World Rainforest Day, a global moment and a year-round call to protect the world's remaining rainforests. These ecosystems aren't just dots on the map. They thrive across the tropics and beyond yet cover only about 6% of Earth's surface. Think of the Amazon in South America, the Congo Basin in Africa, and the forests of Southeast Asia.
+> 
+> Quinault, in Olympic National Park in Washington, is a primeval temperate rainforest. Rain and fog keep it growing, turning every branch into a living surface. Look closer and you'll see lush, damp abundance: Sitka spruce and western hemlock, bigleaf maples dressed in mosses and ferns, and 'nurse logs' where new trees germinate on fallen giants. The forest floor is a soft laboratory of fungi, insects, and amphibians. If you're visiting, start at the Quinault Rain Forest Ranger Station and take the short Maple Glade Trail to meet the forest at eye level. June 22 is a reminder to act. Let's show up for forests every day and protect what's still standing.
+> 
+> 
+
+</details>
+
+| ![World Rainforest Day](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rainforest Day](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_1080x1920.jpg) |
 
 ### 20260621
 
-> 企鹅爸爸正在检查蛋的情况 (© McDonald Wildlife Photography Inc./Getty Images)
+> King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 六月的第三个星期日是父亲节——一个感谢那些默默守护、悉心照料孩子成长的长辈们的日子。在世界各地，父亲的角色可以呈现出令人意想不到的非凡形式。
+> On the third Sunday in June, we celebrate Father's Day—a moment to thank the steady, watchful figures who help life grow and thrive. Across the world, fatherhood can take surprising and extraordinary forms.
 > 
-> 照片中，一只帝企鹅爸爸小心翼翼地用脚托着一枚蛋，蛋被温暖的育儿袋包裹着。产卵后，雌企鹅会游向大海恢复体力，留下企鹅爸爸负责孵化，防止蛋被冻伤。这里没有巢穴——只有平衡、耐心和精准。他可能连续几周几乎一动不动地站着，挨饿，守护着他脆弱的“宝贝”。它们的日常是一种精心安排的轮换：一方守护，一方哺育，然后它们按照大自然赋予的完美节奏交换角色。
+> In the image, a king penguin father carefully cradles a single egg on his feet, tucked beneath a warm fold of skin called a brood pouch. After laying the egg, the mother heads out to sea to rebuild her energy, leaving the father to take over incubation and keep the egg from freezing. There are no nests here—just balance, patience, and precision. For weeks, he may stand almost motionless, fasting while shielding his fragile cargo. Their routine is a carefully timed exchange: one protects, one provides, then they swap roles in a rhythm perfected by nature.
 > 
-> 无论是在繁华的大都市还是在风吹日晒的偏远乡村，父亲的角色往往都是一样的——需要在力量、牺牲和默默奉献之间小心翼翼地保持平衡。
+> Whether in a bustling city or a windswept colony, fatherhood often looks the same—a careful balancing act of strength, sacrifice, and quiet devotion.
 
 </details>
 
-| ![父亲节快乐！](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![父亲节快乐！](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.EggDad_EN-US6390221455_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Father's Day!](https://cn.bing.com/th?id=OHR.EggDad_EN-US6390221455_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.EggDad_EN-US6390221455_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EggDad_EN-US6390221455_1080x1920.jpg) |
 
 ### 20260620
 
-> 漂浮在南极半岛西部海域的拱形冰山, 南大洋 (© Steven Kazlowski/Nature Picture Library)
+> Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)
 
 <details>
 <summary>Description</summary>
 
-> 在南极半岛沿岸，一道冰雕般的拱形结构从南大洋拔地而起，而南极半岛是地球上变暖速度最快的地区之一。这道拱形结构最初是由积雪压实而成，历经数千年演变为冰川。最终，冰川或漂浮冰架的一部分断裂脱落——这一过程被称为冰崩——形成了漂浮的冰山。
+> A sculpted arch of ice rises from the Southern Ocean along the Antarctic Peninsula, one of the fastest-warming regions on Earth. This formation began as compacted snow that turned into glacial ice over thousands of years. Eventually, part of a glacier or floating ice shelf fractured and broke free—a process known as calving—creating a drifting iceberg.
 > 
-> 冰山按大小和形状分类。要符合冰山的定义，冰山的高度必须超过海平面约16英尺（约4.9米），但其近90%仍隐藏在水面之下。顶部平坦的“板状”冰山在南极洲很常见，而像图中这种拱形冰山则属于不规则的非板状冰山。
+> Icebergs are classified by size and shape. To qualify, a mass must tower more than about 16 feet above sea level, yet nearly 90% of it remains hidden below the surface. Flat-topped 'tabular' forms are common in Antarctica, while eroded features like this arch fall into irregular, non-tabular categories.
 > 
-> 这些看似荒芜的漂浮巨物，实则孕育着生命。藻类附着在它们的底部，为成群的磷虾提供食物，而磷虾又为鱼类、海豹和鲸鱼提供养分。随着冰层融化，释放出的营养物质滋养着周围的水域，使这些冰雕变成了移动的生态系统。
+> Though seemingly barren, these floating giants support life. Algae cling to their undersides, feeding swarms of krill, which sustain fish, seals, and whales. As ice melts, it releases nutrients that fertilize surrounding waters, turning these frozen sculptures into mobile ecosystems.
 
 </details>
 
-| ![南极半岛西部，南大洋，拱形冰山](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![南极半岛西部，南大洋，拱形冰山](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Arched iceberg, western Antarctic Peninsula, Southern Ocean](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arched iceberg, western Antarctic Peninsula, Southern Ocean](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_1080x1920.jpg) |
 
 ### 20260619
 
-> 湖中的龙舟，中国 (©  Zhonghui Bao/Getty Images)
+> National Museum of African American History and Culture, Washington, DC (© Walter Bibikow/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> 在华夏大地的万顷碧波上，龙舟竞渡已绵延了两千多年。这项如今享誉全球的体育活动，不仅是一场速度与力量的博弈，更是一枚深深烙印在中华儿女血脉中的文化符号。龙舟的起源众说纷纭，融汇了神话、历史等多重色彩，共同构成了端午文化的底蕴。
+> Across the National Mall in Washington, DC, the National Museum of African American History and Culture rises with a striking bronze-colored exterior. This powerful landmark reflects the story of Juneteenth, a holiday marking June 19, 1865, when Union troops arrived in Galveston, Texas, and finally announced freedom for more than 250,000 enslaved people—more than two years after the Emancipation Proclamation took effect.
 > 
-> 例如图腾祭祀传说可追溯至新石器时代，我国南方的古代百越族崇拜龙图腾。每逢仲夏五月，他们便将船只雕刻成龙形进行水上祭祀，以此祈福消灾。这也是目前学术界较为公认的龙舟源头。屈原传说： 相传战国时期，楚国爱国诗人屈原于五月初五投汨罗江自尽。沿江百姓闻讯，纷纷划船驱赶江中鱼虾、争相打捞其遗体。历经世代演变，这一义举最终汇聚成了全民族纪念屈原的端午民俗。
+> Often called Freedom Day, Juneteenth honors both the end of slavery in the United States and the long struggle for equality that followed. Celebrations began in Texas and gradually spread nationwide, becoming a federal holiday in 2021.
 > 
-> 另有历史记载，春秋时期越王勾践为了卧薪尝胆、复仇复国，在江浙一带以“水上竞渡”的方式秘密操练水军。随着硝烟散去，这种军事训练逐渐走入民间，蜕变为一种竞技习俗。
+> Like the museum's intricate facade—a tiered 'corona' form inspired by African artistry and craftsmanship—Juneteenth reflects layered meanings of resilience, memory, and hope. Together, the holiday and the museum invite reflection on a past that continues to shape the nation's present.
 
 </details>
 
-| ![端午湖中龙舟，中国](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![端午湖中龙舟，中国](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Happy Juneteenth!](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Juneteenth!](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_1080x1920.jpg) |
 
 ### 20260618
 
-> 萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁 (© Creative-Family/Getty Images Plus)
+> Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)
 
 <details>
 <summary>Description</summary>
 
-> 萨克塞华曼（Sacsayhuamán）坐落于秘鲁库斯科的高处，通过石材展现了印加帝国的宏大雄心。这座宏伟的建筑群始建于15世纪，曾是印加帝国神圣都城的一部分。从高空俯瞰，其布局清晰呈现：梯田、开阔的广场以及塔楼遗迹，共同构成了一座经过精密规划的卫城。其中最为壮观的墙体由巨型石块砌成，至今依然屹立不倒。部分石材高度超过 27 英尺（约 8.2 米），且在未使用灰浆的情况下实现了极度精确的无缝拼接，这使得该结构历经数百年的地震仍完好无损。
+> Set high above Cusco in Peru, Sacsayhuamán reveals the ambition of the Inca Empire in stone. Built in the 15th century, this vast complex once formed part of the sacred capital of the Incas. From above, the layout becomes clear: terraces, open plazas, and the remains of towers forming a carefully planned citadel. The largest walls, built from enormous blocks, still stand strong today. Some stones rise more than 27 feet tall and were fitted together so precisely—without mortar—that the structure has endured centuries of earthquakes.
 > 
-> 考古学家认为，萨克塞华曼遗址兼具祭祀与战略双重用途，既是举办祭祀印加太阳神“因蒂”（Inti）等集会与仪式的场所，也承担着俯瞰并守卫下方城市的作用。其名称源于克丘亚语（Quechua），通常译为“心满意足的猎鹰”，体现了猛禽在安第斯信仰中的重要地位。如今，这处遗址仍是印加工程技术的有力见证——其设计、象征意义以及庞大的规模，从任何角度审视都令人叹为观止。
+> Archaeologists believe Sacsayhuamán served both ceremonial and strategic purposes, hosting gatherings and rituals dedicated to Inti, the Inca sun god, while also overlooking the city below. Its name comes from Quechua, often translated as 'Satisfied Falcon,' reflecting the importance of birds of prey in Andean belief. Today, the site remains a powerful reminder of Inca engineering—where design, symbolism, and sheer scale continue to impress from every angle.
 > 
 > 
 
 </details>
 
-| ![萨克塞华曼遗址俯瞰图在库斯科，秘鲁](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![萨克塞华曼遗址俯瞰图在库斯科，秘鲁](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Aerial view of the ruins of Sacsayhuamán, Cusco, Peru](https://cn.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of the ruins of Sacsayhuamán, Cusco, Peru](https://cn.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_1080x1920.jpg) |
 
 ### 20260617
 
-> 特雷莫拉公路在圣哥达山口，艾罗洛，瑞士 (© Sandro Bisaro/Getty Images)
+> Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 沿着那如丝带般盘旋的连续弯道，您将领略到瑞士最具传奇色彩的驾驶路线之一：特雷莫拉公路（Tremola Road）。它是位于艾罗洛（Airolo）上方、通往圣哥达山口（Saint Gotthard Pass）的历史悠久的南坡入口。该公路始建于 19 世纪初期，并在 1951 年的重建中基本定型，被公认为瑞士最长的历史道路建筑纪念碑。其最引人入胜的一段路程在短短 2.5 英里（约 4 公里）内爬升了约 980 英尺（约 300 米），在花岗岩鹅卵石铺就的 24 个著名发卡弯中盘旋而上，路缘筑有坚固的挡土墙。全路段长约 7 英里（约 11 公里），总计 37 个弯道。请减速慢行——每一处曲线都像是一场穿越时空的旅行，虽然牺牲了车速，却能换取壮丽的山地景观，并俯瞰上勒文蒂纳山谷（upper Leventina Valley）的广阔视野。无论您是驾驶、骑行还是停车拍照，都请留意那个以此标志性“之”字形道路为背景的“瑞士环游之路”（Grand Tour of Switzerland）摄影打卡点。
+> Follow the glowing ribbon of switchbacks and you'll find one of Switzerland's most legendary drives: Tremola Road, the historic southern approach to the Saint Gotthard Pass, above Airolo. Built in the early 1800s and largely shaped by a 1951 reconstruction, this route is celebrated as Switzerland's longest monument to historic road construction. Its showstopper stretch climbs about 980 feet in just 2.5 miles, curling through 24 named hairpin bends on granite cobblestones, with sturdy retaining walls edging the way. Overall, it runs about 7 miles and features 37 bends in total. Take it slow—every curve feels like a step back in time, trading speed for sweeping mountain scenery and big views toward the upper Leventina Valley. Whether you're driving, cycling, or pulling over for photos, look for the Grand Tour of Switzerland photo spot framing those iconic zigzags.
 > 
-> 探险建议：请尽量选择晴朗干燥的天气前往——因为鹅卵石路面带来的震动感本身就是这种惊险刺激体验的一部分。
+> Adventure tip: Aim for clear, dry conditions—the cobbles are part of the thrill.
 > 
 > 
 
 </details>
 
-| ![特雷莫拉公路在圣哥达山口，艾罗洛，瑞士](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![特雷莫拉公路在圣哥达山口，艾罗洛，瑞士](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland](https://cn.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland](https://cn.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_1080x1920.jpg) |
-
-### 20260616
-
-> 七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛 (© Alex Mustard/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> 世界海龟日”聚焦于海洋中最古老的“航行者”——这些爬行动物已在地球上生存了超过一亿年。每年的6月 16日定为世界海龟日，旨在提高公众对海龟生态重要性及其面临日益严峻威胁的关注。海龟在维持海草床和珊瑚礁系统健康方面发挥着核心作用，而这些生态系统支撑着多样化的海洋生物。在觅食地与筑巢地之间的长途迁徙是其生命周期的关键环节。尽管海龟具有极强的韧性，但目前所有物种都面临着栖息地丧失、塑料污染、气候变化以及渔具误捕的威胁。
-> 
-> 图为在开曼群岛（Cayman Islands）附近，一对玳瑁海龟正滑过清澈的加勒比海域。玳瑁海龟以其带有花纹的背甲和狭窄如鹰喙般的嘴部而闻名，它们通过主要捕食海绵来维持珊瑚礁的平衡，从而防止海绵过度生长并挤占珊瑚的生存空间。作为极危物种，它们是现存最稀有的海龟物种之一，这使得像这样在野外的邂逅显得愈发弥足珍贵。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_1080x1920.jpg) |瑚的生存空间。作为极危物种，它们是现存最稀有的海龟物种之一，这使得像这样在野外的邂逅显得愈发弥足珍贵。
 > 
 > 
 
