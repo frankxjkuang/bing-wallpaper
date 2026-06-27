@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260626
+
+> The River Thames, London, England (© Daniel Lange/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> What does a parliament, a clock tower, and a giant wheel have in common? They all stand beside the River Thames as if London had carefully staged its icons for dramatic effect.
+> 
+> On the right, the Palace of Westminster rises as the seat of British government, rebuilt in Gothic style after the fire of 1834. Big Ben—the bell inside the Elizabeth Tower—has kept time since 1859, its chimes carrying far beyond the city. Across the river, County Hall stretches along the bank, while the London Eye offers perspective, one slow rotation at a time.
+> 
+> From the water, today's scene feels improbably well cast. But the Thames deserves most of the credit. Shortly after AD 43, the Romans founded Londinium here because the river was useful yet difficult to dominate. Since then, it has borne trade, rumors, power, and entire worldviews. Merchants depended on it, kings navigated it, artists romanticized it. London? It grew upward, outward, and across centuries—but always beside it.
+
+</details>
+
+| ![The River Thames, London, England](https://cn.bing.com/th?id=OHR.ThamesSummer_EN-US6783349970_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The River Thames, London, England](https://cn.bing.com/th?id=OHR.ThamesSummer_EN-US6783349970_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThamesSummer_EN-US6783349970_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThamesSummer_EN-US6783349970_1080x1920.jpg) |
+
 ### 20260625
 
 > Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)
@@ -112,26 +131,7 @@
 
 | ![Arched iceberg, western Antarctic Peninsula, Southern Ocean](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Arched iceberg, western Antarctic Peninsula, Southern Ocean](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_1080x1920.jpg) |
-
-### 20260619
-
-> National Museum of African American History and Culture, Washington, DC (© Walter Bibikow/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Across the National Mall in Washington, DC, the National Museum of African American History and Culture rises with a striking bronze-colored exterior. This powerful landmark reflects the story of Juneteenth, a holiday marking June 19, 1865, when Union troops arrived in Galveston, Texas, and finally announced freedom for more than 250,000 enslaved people—more than two years after the Emancipation Proclamation took effect.
-> 
-> Often called Freedom Day, Juneteenth honors both the end of slavery in the United States and the long struggle for equality that followed. Celebrations began in Texas and gradually spread nationwide, becoming a federal holiday in 2021.
-> 
-> Like the museum's intricate facade—a tiered 'corona' form inspired by African artistry and craftsmanship—Juneteenth reflects layered meanings of resilience, memory, and hope. Together, the holiday and the museum invite reflection on a past that continues to shape the nation's present.
-
-</details>
-
-| ![Happy Juneteenth!](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Juneteenth!](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_1080x1920.jpg) |��秘鲁](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1080x1920.jpg) |6512721_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界海龟日](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
