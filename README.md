@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260629
+
+> Bora Bora and its lagoon, South Pacific, French Polynesia (Â© Frederick Millett/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Observed each June 29, the International Day of the Tropics spotlights a vast region stretching between the Tropics of Cancer and Capricorn, where warmth and rainfall shape daily life. This zone covers about 40% of Earth's surface area, yet supports around 80% of global biodiversity, making it central to planetary health and culture.
+> 
+> In French Polynesia, Bora Bora offers a clear snapshot of that complexity. The island is the eroded core of an ancient volcano, its dark basalt peaksâ€”Mount Otemanu and Mount Pahiaâ€”rising from shallow turquoise waters. Around it, a barrier reef encloses calm water, forming a lagoon as volcanic rock slowly subsides and the reef grows upward. Locally called Pora Pora in Tahitian, meaning 'firstborn,' the island reflects both geological time and living culture, where language, ocean systems, and landforms remain closely linked.
+> 
+> 
+
+</details>
+
+| ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_1080x1920.jpg) |
+
 ### 20260628
 
 > Saguaro cacti near Windgate Pass, McDowell Range, Arizona, USA (Â© Eric Mischke/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Mount Fuji on Honshu Island, Japan](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Fuji on Honshu Island, Japan](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_1080x1920.jpg) |
-
-### 20260622
-
-> Quinault rainforest, Olympic National Park, Washington state (Â© Chris Moore/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> June 22 is World Rainforest Day, a global moment and a year-round call to protect the world's remaining rainforests. These ecosystems aren't just dots on the map. They thrive across the tropics and beyond yet cover only about 6% of Earth's surface. Think of the Amazon in South America, the Congo Basin in Africa, and the forests of Southeast Asia.
-> 
-> Quinault, in Olympic National Park in Washington, is a primeval temperate rainforest. Rain and fog keep it growing, turning every branch into a living surface. Look closer and you'll see lush, damp abundance: Sitka spruce and western hemlock, bigleaf maples dressed in mosses and ferns, and 'nurse logs' where new trees germinate on fallen giants. The forest floor is a soft laboratory of fungi, insects, and amphibians. If you're visiting, start at the Quinault Rain Forest Ranger Station and take the short Maple Glade Trail to meet the forest at eye level. June 22 is a reminder to act. Let's show up for forests every day and protect what's still standing.
-> 
-> 
-
-</details>
-
-| ![World Rainforest Day](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Rainforest Day](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_1080x1920.jpg) |€‚
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_1080x1920.jpg) |36576493_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_1080x1920.jpg) |€‚
 
 </details>
 
