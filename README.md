@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260630
+
+> Giraffes at sunset in the Masai Mara National Reserve, Kenya (© danm/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As the sun sinks low in the Masai Mara National Reserve, the silhouettes of Masai giraffes rise against a blazing sky and open plains. Another day comes to an end in the reserve, which stretches across about 580 square miles in southwestern Kenya, bordering Tanzania's Serengeti National Park. It is a vast expanse, one of the world's greatest wildlife arenas. Rolling grasslands, scattered acacia trees, and the life-giving Mara River set the stage for unforgettable encounters.
+> 
+> Among the stars of this landscape are Masai giraffes. Their coats are marked with bold, jagged patches, each pattern as unique as a fingerprint. They spend most of their days browsing treetops, skillfully using their long tongues to pluck leaves from between sharp thorns. They may move with calm grace, but these towering animals can burst into a gallop at surprising speeds of up to 35 miles per hour. Their presence is a reminder that the untamed world still holds its wild rhythm.
+> 
+> 
+
+</details>
+
+| ![Giraffes at sunset in the Masai Mara National Reserve, Kenya](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Giraffes at sunset in the Masai Mara National Reserve, Kenya](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_1080x1920.jpg) |
+
 ### 20260629
 
 > Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)
@@ -112,28 +131,7 @@
 
 | ![Pollinator Week](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pollinator Week](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_1080x1920.jpg) |
-
-### 20260623
-
-> Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Mount Fuji, Japan's highest mountain, rises to 12,389 feet on Honshu Island, about 60 miles southwest of Tokyo. Its near-perfect cone is a volcano—dormant since its last eruption in December 1707 yet still classed as active. That last major event is known as the Hōei eruption. It blasted ash and other tephra across eastern Japan, reaching Edo (today's Tokyo). Beyond geology, Fuji has long been treated as a sacred landscape and a destination for pilgrimage climbs, reflecting how nature, religion, and daily life overlap in Japan. That enduring cultural appeal is one reason it was designated a UNESCO World Heritage Site in 2013 as 'a sacred place and source of artistic inspiration.' Fuji is famously visible from far away on clear days but never guaranteed—clouds can hide it in minutes. Whether you hike it or just catch a glimpse from a train window, it still feels like Japan's signature on the horizon.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Mount Fuji on Honshu Island, Japan](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Fuji on Honshu Island, Japan](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_1080x1920.jpg) |36576493_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_1080x1920.jpg) |��
-
-</details>
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_1080x1920.jpg) |ails>
 
 | ![父亲节快乐！](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![父亲节快乐！](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
