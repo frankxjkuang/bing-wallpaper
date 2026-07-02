@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260701
+
+> Dungeon Provincial Park, Newfoundland and Labrador, Canada (© Kaitlyn McLachlan/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On July 1, Canada celebrates its national day, marking the events of 1867, when the British North America Act (now called the Constitution Act, 1867) united three British colonies into one Dominion.
+> 
+> In 1879, July 1 became a federal holiday, originally called Dominion Day before being renamed Canada Day in 1982. Today, people gather across the country for concerts, community events, and fireworks—celebrations that reflect a shared sense of identity and history.
+> 
+> Today's image takes us to Dungeon Provincial Park on the rugged coast of Newfoundland and Labrador, where nature tells a much older story. Atlantic waves carved a sea cave with two openings, gradually widening it until the roof gave way. What remains is a striking collapsed formation known as a 'gloup,' surrounded by steep cliffs and crashing surf. Boardwalks and viewing platforms allow visitors to take in the scene, while nearby trails offer sweeping ocean views. This dramatic coastline highlights the natural forces that are still shaping Canada's landscape today.
+
+</details>
+
+| ![Canada Day](https://cn.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Canada Day](https://cn.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_1080x1920.jpg) |
+
 ### 20260630
 
 > Giraffes at sunset in the Masai Mara National Reserve, Kenya (© danm/Getty Images)
@@ -112,28 +131,7 @@
 
 | ![Buildings on Grand-Place Square in Brussels, Belgium](https://cn.bing.com/th?id=OHR.GrandPlace_EN-US6561229456_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Buildings on Grand-Place Square in Brussels, Belgium](https://cn.bing.com/th?id=OHR.GrandPlace_EN-US6561229456_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandPlace_EN-US6561229456_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandPlace_EN-US6561229456_1080x1920.jpg) |
-
-### 20260624
-
-> Butterfly pollinating on yellow flower (© lzh/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Zoom in on the small transaction that keeps landscapes alive: a butterfly on a yellow flower, sipping nectar. While it feeds, pollen dusts its body and hitches a ride to the next bloom—one of the quiet ways flowering plants reproduce. Pollinators are not only bees. Butterflies, birds, bats, beetles, and many others help move pollen, supporting wild plants and many of the fruits and vegetables we eat.
-> 
-> That's the idea behind Pollinator Week, a yearly reminder to notice these species and protect the habitats they need. In the United States, scientists are tracking butterfly trends because insects are declining in many places, and butterflies are among the best-studied groups. The fixes are practical: plant nectar-rich, preferably native flowers; include host plants for caterpillars; and cut back on pesticides. Start with one sunny patch. Then look again. If a butterfly chooses your flowers, you've built a tiny runway for life.
-> 
-> 
-
-</details>
-
-| ![Pollinator Week](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Pollinator Week](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_1080x1920.jpg) |ails>
-
-| ![父亲节快乐！](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![父亲节快乐！](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrandPlace_EN-US6561229456_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrandPlace_EN-US6561229456_1080x1920.jpg) |快乐！](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1080x1920.jpg) || [Download portrait 4K](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_1080x1920.jpg) |�遥。没错，这里是一处遗址——但它拒绝悄然消逝。
 
