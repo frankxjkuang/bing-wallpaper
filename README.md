@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260703
+
+> 小溪上方的萤火虫，冈山县，日本 (© tdub303/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 在冈山县（Okayama Prefecture），当湿润的空气笼罩在溪流之上，被称为“hotaru”的日本萤火虫便开始发出信号。在温暖无风的夜晚，如果条件理想，它们通常会在日落约两小时后开始发光，发散出一种水边独有的静谧感。
+> 
+> 萤火虫并非蝇类，而是甲虫（Beetles），大多数种类栖息在水边，如池塘、溪流、沼泽和河流。白天，它们隐藏在低矮的草丛中；入夜后，它们爬上植被并起飞，通过闪烁光芒来寻找配偶。它们的光源自腹部的化学反应，而特定物种的闪烁频率有助于伴侣识别正确的信号。它们的幼虫生活在更安静且充满饥饿感的阶段：作为肉食性动物，幼虫以蜗牛和蛞蝓等软体动物为食；而成年萤火虫则可能采食昆虫、花蜜或花粉。
+> 
+> 在日本，“萤狩”（Hotaru-gari，即观赏萤火虫）有着深厚的文化根基。平安时代（794–1185）的作家如清少纳言（Sei Shōnagon）曾在著作中描写过萤火虫，后世的文学作品和浮世绘（Ukiyo-e，一种传统的木版画和绘画形式）也常借其转瞬即逝的光芒来隐喻生命之无常
+
+</details>
+
+| ![萤火虫发光在小溪上方，冈山县，日本](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![萤火虫发光在小溪上方，冈山县，日本](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_1080x1920.jpg) |
+
 ### 20260702
 
 > 埃斯纳神庙穹顶天花板, 埃及 (© Nick Brundle Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) |
-
-### 20260626
-
-> 泰晤士河, 伦敦, 英格兰 (© Daniel Lange/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 议会大厦、钟楼和巨型摩天轮有什么共同之处？它们都矗立在泰晤士河畔，仿佛伦敦为了营造戏剧性效果而精心布局了这些标志性建筑。
-> 
-> 右侧矗立着作为英国政府所在地的威斯敏斯特宫，它在1834年的一场大火后以哥特式风格重建。大本钟——即伊丽莎白塔内那口大钟——自1859年起便开始报时，其钟声悠扬，传遍城外。河对岸，郡政厅沿岸延伸；而伦敦眼则在缓慢的旋转中，为人们提供了独特的观景视角。
-> 
-> 从水面上望去，眼前的景象仿佛经过了精妙绝伦的布局与选角，宛如天成。然而，这份功劳主要应归于泰晤士河。公元43年之后不久，罗马人在此建立了伦底纽姆（Londinium）；之所以选址于此，是因为这条河既极具利用价值，又难以被彻底掌控。自那时起，它便承载着贸易往来、流言蜚语、权势更迭以及种种世界观。商人依它为生，君王沿它航行，艺术家为它赋予浪漫色彩。至于伦敦这座城市——它历经数世纪，向高空、向四方不断延展，但始终紧依着这条河流而生
-
-</details>
-
-| ![泰晤士河, 伦敦, 英格兰](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![泰晤士河, 伦敦, 英格兰](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_1080x1920.jpg) |g.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_1080x1920.jpg) |39738451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1080x1920.jpg) |dscape 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1080x1920.jpg) || call Terry.
 > 
