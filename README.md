@@ -1,129 +1,137 @@
 ## bing wallpaper
 
-### 20260703
+### 20260704
 
-> 小溪上方的萤火虫，冈山县，日本 (© tdub303/Getty Images)
+> Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 在冈山县（Okayama Prefecture），当湿润的空气笼罩在溪流之上，被称为“hotaru”的日本萤火虫便开始发出信号。在温暖无风的夜晚，如果条件理想，它们通常会在日落约两小时后开始发光，发散出一种水边独有的静谧感。
+> Today, the United States marks 250 years since the adoption of the Declaration of Independence—a milestone known as the 'semiquincentennial.' This anniversary commemorates 1776, when the Declaration articulated the idea that a nation could be defined by shared principles rather than inherited rule. Two and a half centuries later, this date is marked not only as an anniversary but also as an opportunity to reflect on the nation's long and evolving story.
 > 
-> 萤火虫并非蝇类，而是甲虫（Beetles），大多数种类栖息在水边，如池塘、溪流、沼泽和河流。白天，它们隐藏在低矮的草丛中；入夜后，它们爬上植被并起飞，通过闪烁光芒来寻找配偶。它们的光源自腹部的化学反应，而特定物种的闪烁频率有助于伴侣识别正确的信号。它们的幼虫生活在更安静且充满饥饿感的阶段：作为肉食性动物，幼虫以蜗牛和蛞蝓等软体动物为食；而成年萤火虫则可能采食昆虫、花蜜或花粉。
+> Official programs and commemorations across the country invite people to revisit history, recognize the many communities that have shaped the United States, and consider what the next chapter might hold. National and local events are bringing this anniversary into the public sphere through civic gatherings, cultural projects, and shared traditions. A quarter of a millennium offers a rare chance to remember, reflect, and imagine what comes next.
 > 
-> 在日本，“萤狩”（Hotaru-gari，即观赏萤火虫）有着深厚的文化根基。平安时代（794–1185）的作家如清少纳言（Sei Shōnagon）曾在著作中描写过萤火虫，后世的文学作品和浮世绘（Ukiyo-e，一种传统的木版画和绘画形式）也常借其转瞬即逝的光芒来隐喻生命之无常
+> 
 
 </details>
 
-| ![萤火虫发光在小溪上方，冈山县，日本](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![萤火虫发光在小溪上方，冈山县，日本](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![The United States' 250th anniversary](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The United States' 250th anniversary](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_1080x1920.jpg) |
+
+### 20260703
+
+> Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In Okayama Prefecture, when humid air settles over a stream, hotaru—Japan's fireflies—begin signaling. On warm, windless evenings, they often start glowing about two hours after sunset under favorable conditions, inviting silence beside water.
+> 
+> Fireflies aren't flies but beetles, and most species stay near water—ponds, streams, marshes, and rivers. By day they hide low in the grass; after dark they climb vegetation and take flight, flashing to find a mate. Their light comes from a chemical reaction in the abdomen, and species-specific timing helps partners recognize the right signal. Their young live a quieter, hungrier life: larvae are carnivores that feed on soft-bodied prey such as snails and slugs. Adults may eat insects, nectar, or pollen.
+> 
+> In Japan, watching them—hotaru-gari—has deep roots. Heian-era (794–1185) writers like Sei Shōnagon wrote about fireflies, and later literature and ukiyo-e art—a traditional form of woodblock prints and paintings—used their brief light to evoke impermanence.
+
+</details>
+
+| ![Fireflies glowing above a stream, Okayama Prefecture, Japan](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fireflies glowing above a stream, Okayama Prefecture, Japan](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1080x1920.jpg) |
 
 ### 20260702
 
-> 埃斯纳神庙穹顶天花板, 埃及 (© Nick Brundle Photography/Getty Images)
+> Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在埃及卢克索以南的埃斯纳神庙（Temple of Esna），游客将步入一个充满生机的世界，这里供奉着公羊头神——赫努姆（Khnum）；传说他曾用尼罗河的黏土塑造了人类。这座神庙主要建于托勒密王朝和罗马统治时期，其现存的大厅由24根高耸的石柱支撑，每根柱子上都雕刻着精美的浮雕与颂扬诸神的仪式铭文。
+> At the Temple of Esna, south of Luxor, Egypt, visitors enter a vivid world devoted to Khnum, the ram-headed god believed to have molded humanity from Nile clay. Built mainly during the Ptolemaic and Roman eras, the temple's surviving hall is supported by 24 towering columns, each carved with intricate reliefs and ritual texts honoring various deities.
 > 
-> 在古代，进入该处受到严格管控。祭司在入内之前，必须剃净全身毛发、修剪指甲、反复进行仪式性净身，并仅穿亚麻衣物。此外，在为库努姆（Khnum）主持祭祀与仪式前，他们还需禁食某些食物，以确保身体洁净。
+> In ancient times, entry was tightly controlled. Priests had to shave their entire bodies, trim their fingernails, undergo repeated ritual purification, and wear only linen garments before passing inside. They also avoided certain foods to ensure cleanliness before conducting offerings and ceremonies for Khnum.
 > 
-> 在他们头顶上方，天花板（如图所示）宛如一幅装饰华丽的苍穹画卷，绘满了色彩鲜艳的天文景象、黄道十二宫符号及神圣人物形象。这些雕饰绝非仅仅为了装饰：立柱与天花板交相辉映，引领着信众穿行于一个充满象征意义的宇宙之中——在这里，神圣秩序、仪式实践与宇宙循环彼此交织，密不可分。
+> Above them, the ceiling—like the one shown—unfolds into a richly decorated sky, filled with astronomical scenes, zodiacal symbols, and sacred figures painted in vivid colors. These carvings weren't merely decorative: together, the pillars and ceiling guided worshippers through a symbolic universe where divine order, ritual practice, and cosmic cycles were inseparably linked.
 
 </details>
 
-| ![埃斯纳神庙穹顶天花板, 埃及](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![埃斯纳神庙穹顶天花板, 埃及](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Ceiling of the Temple of Esna, Egypt](https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ceiling of the Temple of Esna, Egypt](https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |
 
 ### 20260701
 
-> 地牢省立公园, 纽芬兰和拉布拉多省, 加拿大 (© Kaitlyn McLachlan/Getty Images)
+> Dungeon Provincial Park, Newfoundland and Labrador, Canada (© Kaitlyn McLachlan/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 位于纽芬兰岛博纳维斯塔半岛的地牢省立公园，长期受到大西洋海浪的塑造与侵蚀。公园最著名的景观“地牢（Dungeon）”实际上是一处巨大的塌陷海蚀洞，其顶部因持续侵蚀而坍塌，形成直通天空的壮观开口。这一地貌生动展示了海洋作用如何在数千年间不断改造坚硬岩石。
+> On July 1, Canada celebrates its national day, marking the events of 1867, when the British North America Act (now called the Constitution Act, 1867) united three British colonies into one Dominion.
 > 
-> 公园周围的悬崖主要由数亿年前形成的沉积岩构成。砂岩与页岩层记录着远古环境演变的痕迹，其形成时间甚至早于现代大西洋的出现。如今，海鸟、滨海植物以及沿岸洋流共同维系着这片充满活力的海岸生态系统，并持续影响着当地自然环境的发展。
+> In 1879, July 1 became a federal holiday, originally called Dominion Day before being renamed Canada Day in 1982. Today, people gather across the country for concerts, community events, and fireworks—celebrations that reflect a shared sense of identity and history.
 > 
-> 地牢省立公园所在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+> Today's image takes us to Dungeon Provincial Park on the rugged coast of Newfoundland and Labrador, where nature tells a much older story. Atlantic waves carved a sea cave with two openings, gradually widening it until the roof gave way. What remains is a striking collapsed formation known as a 'gloup,' surrounded by steep cliffs and crashing surf. Boardwalks and viewing platforms allow visitors to take in the scene, while nearby trails offer sweeping ocean views. This dramatic coastline highlights the natural forces that are still shaping Canada's landscape today.
 
 </details>
 
-| ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Canada Day](https://cn.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Canada Day](https://cn.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_1080x1920.jpg) |
 
 ### 20260630
 
-> 马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚 (© danm/Getty Images)
+> Giraffes at sunset in the Masai Mara National Reserve, Kenya (© danm/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 当夕阳在马赛马拉国家保护区缓缓西沉，马赛长颈鹿的剪影映衬着绚烂如火的天空与辽阔原野，显得格外醒目。这座保护区位于肯尼亚西南部，与坦桑尼亚的塞伦盖蒂国家公园接壤，占地约580平方英里；随着夜幕降临，这里又度过了精彩的一天。这是一片广袤无垠的土地，也是世界上最壮观的野生动物乐园之一。起伏的草原、零星点缀的金合欢树，以及孕育万物的马拉河，共同构成了上演难忘邂逅的绝佳舞台。
+> As the sun sinks low in the Masai Mara National Reserve, the silhouettes of Masai giraffes rise against a blazing sky and open plains. Another day comes to an end in the reserve, which stretches across about 580 square miles in southwestern Kenya, bordering Tanzania's Serengeti National Park. It is a vast expanse, one of the world's greatest wildlife arenas. Rolling grasslands, scattered acacia trees, and the life-giving Mara River set the stage for unforgettable encounters.
 > 
-> 在这片景观中，马赛长颈鹿无疑是引人注目的明星。它们身上覆盖着醒目且边缘参差不齐的斑块，每一处花纹都独一无二，宛如指纹般各不相同。它们终日大部分时间都在啃食树梢的枝叶，熟练地运用长舌，在尖锐的棘刺间精准地采摘叶片。尽管它们平日举止优雅从容，但这些身形高大的动物一旦奔跑起来，速度惊人，最高可达每小时35英里。它们的存在时刻提醒着人们：这片未被驯服的自然天地，依然保持着其原始而狂野的律动
+> Among the stars of this landscape are Masai giraffes. Their coats are marked with bold, jagged patches, each pattern as unique as a fingerprint. They spend most of their days browsing treetops, skillfully using their long tongues to pluck leaves from between sharp thorns. They may move with calm grace, but these towering animals can burst into a gallop at surprising speeds of up to 35 miles per hour. Their presence is a reminder that the untamed world still holds its wild rhythm.
 > 
 > 
 
 </details>
 
-| ![马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Giraffes at sunset in the Masai Mara National Reserve, Kenya](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Giraffes at sunset in the Masai Mara National Reserve, Kenya](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_1080x1920.jpg) |
 
 ### 20260629
 
-> 波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚 (© Frederick Millett/Shutterstock)
+> Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> “国际热带日”于每年6月29日纪念，旨在聚焦北回归线与南回归线之间那片广阔的区域——在这里，温暖的气候与充沛的降水塑造着人们的日常生活。该区域虽仅占地球表面积的约40%，却承载了全球约80%的生物多样性，对于地球生态健康与人类文化而言至关重要。
+> Observed each June 29, the International Day of the Tropics spotlights a vast region stretching between the Tropics of Cancer and Capricorn, where warmth and rainfall shape daily life. This zone covers about 40% of Earth's surface area, yet supports around 80% of global biodiversity, making it central to planetary health and culture.
 > 
-> 在法属波利尼西亚，波拉波拉岛生动地展现了这种复杂性。这座岛屿是一座古老火山经侵蚀后留下的核心部分，其深色的玄武岩山峰——奥特马努山（Mount Otemanu）和帕希亚山（Mount Pahia）——从浅浅的绿松石色海水中拔地而起。随着火山岩体缓慢下沉而珊瑚礁向上生长，环绕岛屿的堡礁围合出一片平静的水域，形成了一处泻湖。该岛在塔希提语中被称为“Pora Pora”（意为“长子”），既见证了漫长的地质演变，也承载着鲜活的文化，体现了语言、海洋生态系统与地貌特征之间紧密的联系
+> In French Polynesia, Bora Bora offers a clear snapshot of that complexity. The island is the eroded core of an ancient volcano, its dark basalt peaks—Mount Otemanu and Mount Pahia—rising from shallow turquoise waters. Around it, a barrier reef encloses calm water, forming a lagoon as volcanic rock slowly subsides and the reef grows upward. Locally called Pora Pora in Tahitian, meaning 'firstborn,' the island reflects both geological time and living culture, where language, ocean systems, and landforms remain closely linked.
 > 
 > 
 
 </details>
 
-| ![国际热带日](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际热带日](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_1080x1920.jpg) |
 
 ### 20260628
 
-> 温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国 (© Eric Mischke/Getty Images)
+> Saguaro cacti near Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在索诺拉沙漠，作为生存大师的巨人柱仙人掌赋予了“坚守”（stick around）一词新的含义。这种巨型植物伸展着躯干与枝臂，向四面八方昂然挺立，已然成为美国西南部的标志性象征。
+> 'Stick around' takes on a new meaning in the Sonoran Desert, where the saguaro cactus has mastered survival. With trunks and arms raised in all directions, this giant has become the American Southwest's mascot.
 > 
-> 巨人柱是美国最高的仙人掌，仅分布于横跨亚利桑那州、加利福尼亚州和墨西哥的索诺兰沙漠。它们的高度可超过40英尺（约12米），重量可达6吨，寿命近200年。然而，它们的生长初期十分缓慢，最初几年仅长高1至1.5英寸（约2.5至3.8厘米）。大多数巨人柱需等待50到75年才会长出分枝（即“手臂”），而有些则终生保持着像“长矛”一样笔直无枝的形态。
+> Saguaros—the tallest cacti in the United States—occur only in the Sonoran Desert across Arizona, California, and Mexico. They can reach over 40 feet, weigh up to 6 tons, and live for nearly 200 years. Yet they begin life slowly, growing 1-1.5 inches in their first years. Most wait 50 to 75 years to grow arms, while some remain armless 'spears.'
 > 
-> 巨人柱专为适应严酷环境而生，其褶皱状的树干能储存水分——雨后膨胀，干旱时收缩。它们的根系可向四周延伸长达100英尺，以便汲取短暂降雨带来的水分。幼株常在“护士树”的庇护下生长。植株长到35岁时便会开花；啄木鸟凿出的巢洞，随后会被猫头鹰和鹪鹩利用。巨人柱坚韧、耐性十足且浑身长满尖刺，它有力地证明了：在沙漠中生存绝非易事
+> Built for harsh conditions, saguaros store water in pleated trunks that swell after rain and shrink in drought. Their roots spread up to 100 feet to absorb brief showers. Young plants often grow beneath nurse trees for protection. By age 35, they bloom with flowers, while woodpeckers carve nesting holes later used by owls and wrens. Tough, patient, and always sharp, the saguaro proves desert life is no small matter.
 
 </details>
 
-| ![巨人柱仙人掌, 温德盖特山口, 麦克道尔山脉, 亚利桑那州](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![巨人柱仙人掌, 温德盖特山口, 麦克道尔山脉, 亚利桑那州](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Saguaro cacti, Windgate Pass, McDowell Range, Arizona](https://cn.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Saguaro cacti, Windgate Pass, McDowell Range, Arizona](https://cn.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_1080x1920.jpg) |
-
-### 20260627
-
-> 博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国 (© Frances/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> 在美国南卡罗来纳州亨廷岛州立公园内的博尼亚德海滩，最先映入眼帘的是那些树木。紧接着，一个疑问便会浮现：为何一根根被海水漂白的树干和裸露的树根散落在沙滩上，仿佛一幕正在坍塌的景象被按下了暂停键？自20世纪80年代以来，亨廷岛一直面临严重的海滩侵蚀问题，其侵蚀速率位居美国东海岸前列。在部分区域，海岸线每年后退幅度最高可达约30英尺（约9米）。
-> 
-> 在岛屿南端的博尼亚德海滩上，这一自然演变过程清晰可见：饱经风霜的浮木，以及活橡树和棕榈树的残骸，沿岸错落分布。这些树木曾是滨海森林的一部分，但随着海岸侵蚀和风暴导致海岸线变迁，它们的生存空间逐渐丧失。如今留下的景象，既像是一堂生动的地质课，又宛如一座露天画廊。这里记录了超过200种鸟类；近海常有宽吻海豚出没，附近的沙滩上也有红海龟筑巢产卵。每逢退潮，最宽阔的滩涂便显露出来，供人探索；每一次造访，这里的景致都各不相同，独具风貌
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_1080x1920.jpg) |分，但随着海岸侵蚀和风暴导致海岸线变迁，它们的生存空间逐渐丧失。如今留下的景象，既像是一堂生动的地质课，又宛如一座露天画廊。这里记录了超过200种鸟类；近海常有宽吻海豚出没，附近的沙滩上也有红海龟筑巢产卵。每逢退潮，最宽阔的滩涂便显露出来，供人探索；每一次造访，这里的景致都各不相同，独具风貌
 > 
 > 
 
