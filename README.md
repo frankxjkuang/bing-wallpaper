@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260705
+
+> Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> In southeastern France, on the Valensole Plateau, summer arrives in waves of purple and blue. Valensole—one of the largest plateaus in the region—lies in the Verdon Regional Natural Park between the Durance and Asse valleys, near the Gorges du Verdon and its lakes. From mid-June to early July, depending on altitude and weather, lavender and lavandin bloom and transform the landscape into one of Provence's most recognizable sights. The air carries a sharp, dry, and unmistakably Mediterranean scent.
+> 
+> Beyond the postcard-worthy view, lavender is an evergreen shrub in the mint family, native to lands bordering the Mediterranean. Its fragrance comes from oil glands on the flowers, leaves, and stems, which is why it has long been valued for perfumes, soaps, sachets, and essential oils distilled from the plant. The ancient Romans even used lavender in their baths. It also attracts bees and other pollinators, adding a steady hum to the fields. In Valensole, beauty is agricultural, aromatic, and alive—rooted in climate, cultivation, and tradition.
+> 
+> 
+
+</details>
+
+| ![Lavender rows, Plateau de Valensole, Provence, France](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lavender rows, Plateau de Valensole, Provence, France](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |
+
 ### 20260704
 
 > Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_1080x1920.jpg) |
-
-### 20260628
-
-> Saguaro cacti near Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 'Stick around' takes on a new meaning in the Sonoran Desert, where the saguaro cactus has mastered survival. With trunks and arms raised in all directions, this giant has become the American Southwest's mascot.
-> 
-> Saguaros—the tallest cacti in the United States—occur only in the Sonoran Desert across Arizona, California, and Mexico. They can reach over 40 feet, weigh up to 6 tons, and live for nearly 200 years. Yet they begin life slowly, growing 1-1.5 inches in their first years. Most wait 50 to 75 years to grow arms, while some remain armless 'spears.'
-> 
-> Built for harsh conditions, saguaros store water in pleated trunks that swell after rain and shrink in drought. Their roots spread up to 100 feet to absorb brief showers. Young plants often grow beneath nurse trees for protection. By age 35, they bloom with flowers, while woodpeckers carve nesting holes later used by owls and wrens. Tough, patient, and always sharp, the saguaro proves desert life is no small matter.
-
-</details>
-
-| ![Saguaro cacti, Windgate Pass, McDowell Range, Arizona](https://cn.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Saguaro cacti, Windgate Pass, McDowell Range, Arizona](https://cn.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_1080x1920.jpg) |分，但随着海岸侵蚀和风暴导致海岸线变迁，它们的生存空间逐渐丧失。如今留下的景象，既像是一堂生动的地质课，又宛如一座露天画廊。这里记录了超过200种鸟类；近海常有宽吻海豚出没，附近的沙滩上也有红海龟筑巢产卵。每逢退潮，最宽阔的滩涂便显露出来，供人探索；每一次造访，这里的景致都各不相同，独具风貌
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_1080x1920.jpg) |�逐渐丧失。如今留下的景象，既像是一堂生动的地质课，又宛如一座露天画廊。这里记录了超过200种鸟类；近海常有宽吻海豚出没，附近的沙滩上也有红海龟筑巢产卵。每逢退潮，最宽阔的滩涂便显露出来，供人探索；每一次造访，这里的景致都各不相同，独具风貌
 > 
 > 
 
