@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260706
+
+> Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Founded by Greek settlers from Corinth around 734 BCE, the Italian city of Syracuse, on the island of Sicily, grew into one of the ancient Mediterranean's great powers and is now part of a UNESCO World Heritage Site, 'Syracuse and the Rocky Necropolis of Pantalica.' It is forever linked to Archimedes, whose genius still shapes its identity, and to Plato, who came to Syracuse hoping philosophy might shape political life. That layered past still feels tangible at Castello Maniace, a seafront fortress built for Holy Roman Emperor Frederick II in the 13th century, which can still be admired today.
+> 
+> In 2009, the castle provided the setting for the 'Carta di Siracusa,' a document centered on biodiversity and the relationship between nature, culture, and development. The city has also offered filmmakers a ready-made stage, from 'Casanova '70,' starring Marcello Mastroianni, to 'Indiana Jones and the Dial of Destiny.' Here, Italy is more than sunshine, wine, and good food: it is history still conjugated in the present.
+> 
+> 
+
+</details>
+
+| ![Syracuse, Sicily, Italy](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Syracuse, Sicily, Italy](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_1080x1920.jpg) |
+
 ### 20260705
 
 > Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Giraffes at sunset in the Masai Mara National Reserve, Kenya](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Giraffes at sunset in the Masai Mara National Reserve, Kenya](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_1080x1920.jpg) |
-
-### 20260629
-
-> Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Observed each June 29, the International Day of the Tropics spotlights a vast region stretching between the Tropics of Cancer and Capricorn, where warmth and rainfall shape daily life. This zone covers about 40% of Earth's surface area, yet supports around 80% of global biodiversity, making it central to planetary health and culture.
-> 
-> In French Polynesia, Bora Bora offers a clear snapshot of that complexity. The island is the eroded core of an ancient volcano, its dark basalt peaks—Mount Otemanu and Mount Pahia—rising from shallow turquoise waters. Around it, a barrier reef encloses calm water, forming a lagoon as volcanic rock slowly subsides and the reef grows upward. Locally called Pora Pora in Tahitian, meaning 'firstborn,' the island reflects both geological time and living culture, where language, ocean systems, and landforms remain closely linked.
-> 
-> 
-
-</details>
-
-| ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the Tropics](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_1080x1920.jpg) |�逐渐丧失。如今留下的景象，既像是一堂生动的地质课，又宛如一座露天画廊。这里记录了超过200种鸟类；近海常有宽吻海豚出没，附近的沙滩上也有红海龟筑巢产卵。每逢退潮，最宽阔的滩涂便显露出来，供人探索；每一次造访，这里的景致都各不相同，独具风貌
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_1080x1920.jpg) |�这里记录了超过200种鸟类；近海常有宽吻海豚出没，附近的沙滩上也有红海龟筑巢产卵。每逢退潮，最宽阔的滩涂便显露出来，供人探索；每一次造访，这里的景致都各不相同，独具风貌
 > 
 > 
 
