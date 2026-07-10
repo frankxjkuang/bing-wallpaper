@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260709
+
+> Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Sunlight cuts through drifting clouds and settles on the terraced slopes of Sapa, where rice fields cascade down the mountainsides like a living staircase. Located in Vietnam's Lào Cai province, this highland region is shaped as much by human hands as by nature. Generations of farmers from local ethnic communities such as the Hmong have carved and maintained these terraces for centuries, guiding water across steep hillsides to sustain each growing season.
+> 
+> Each level holds a thin layer of water that reflects the sky, nourishing young rice plants before the fields shift from vivid green to warm gold at harvest. Mist moves through the valleys, revealing new layers of hills and winding paths, creating a sense of constant change beneath Fansipan, Indochina's highest peak. Though remote, Sapa has become an increasingly popular destination, drawing visitors who come for the striking scenery and leave with a deeper appreciation for a place still shaped by tradition.
+> 
+> 
+
+</details>
+
+| ![Rice fields at Sapa, Lào Cai, Vietnam](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rice fields at Sapa, Lào Cai, Vietnam](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_1080x1920.jpg) |
+
 ### 20260708
 
 > Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Fireflies glowing above a stream, Okayama Prefecture, Japan](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fireflies glowing above a stream, Okayama Prefecture, Japan](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1080x1920.jpg) |
-
-### 20260702
-
-> Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> At the Temple of Esna, south of Luxor, Egypt, visitors enter a vivid world devoted to Khnum, the ram-headed god believed to have molded humanity from Nile clay. Built mainly during the Ptolemaic and Roman eras, the temple's surviving hall is supported by 24 towering columns, each carved with intricate reliefs and ritual texts honoring various deities.
-> 
-> In ancient times, entry was tightly controlled. Priests had to shave their entire bodies, trim their fingernails, undergo repeated ritual purification, and wear only linen garments before passing inside. They also avoided certain foods to ensure cleanliness before conducting offerings and ceremonies for Khnum.
-> 
-> Above them, the ceiling—like the one shown—unfolds into a richly decorated sky, filled with astronomical scenes, zodiacal symbols, and sacred figures painted in vivid colors. These carvings weren't merely decorative: together, the pillars and ceiling guided worshippers through a symbolic universe where divine order, ritual practice, and cosmic cycles were inseparably linked.
-
-</details>
-
-| ![Ceiling of the Temple of Esna, Egypt](https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ceiling of the Temple of Esna, Egypt](https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
