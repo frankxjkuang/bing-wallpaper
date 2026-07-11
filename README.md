@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260710
+
+> Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Victoria, a southeastern state of Australia, extends along more than 1,000 miles of coastline shaped by the Southern Ocean. From above, its beaches appear as sweeping bands of pale sand edged by turquoise waters and rugged cliffs. This dynamic interaction of land and sea defines much of the region's appeal. The famous Great Ocean Road traces roughly 150 miles of this shoreline, winding past popular surf spots, forested headlands, and seaside towns.
+> 
+> One of its most striking sights is the Twelve Apostles, towering limestone stacks formed over millions of years by wind and waves. Nearby stretches feature powerful surf breaks like Bells Beach and quieter coves where coastal vegetation meets open sand. Beyond the shore, farmland and national parks provide contrast, supporting wildlife and scenic trails. Victoria's capital, Melbourne, sits on Port Phillip Bay, anchoring a state known for both cultural energy and natural variety, from alpine peaks to untamed coastlines.
+> 
+> 
+
+</details>
+
+| ![Aerial view of land and ocean, Victoria, Australia](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of land and ocean, Victoria, Australia](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_1080x1920.jpg) |
+
 ### 20260709
 
 > Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![The United States' 250th anniversary](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The United States' 250th anniversary](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_1080x1920.jpg) |
-
-### 20260703
-
-> Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In Okayama Prefecture, when humid air settles over a stream, hotaru—Japan's fireflies—begin signaling. On warm, windless evenings, they often start glowing about two hours after sunset under favorable conditions, inviting silence beside water.
-> 
-> Fireflies aren't flies but beetles, and most species stay near water—ponds, streams, marshes, and rivers. By day they hide low in the grass; after dark they climb vegetation and take flight, flashing to find a mate. Their light comes from a chemical reaction in the abdomen, and species-specific timing helps partners recognize the right signal. Their young live a quieter, hungrier life: larvae are carnivores that feed on soft-bodied prey such as snails and slugs. Adults may eat insects, nectar, or pollen.
-> 
-> In Japan, watching them—hotaru-gari—has deep roots. Heian-era (794–1185) writers like Sei Shōnagon wrote about fireflies, and later literature and ukiyo-e art—a traditional form of woodblock prints and paintings—used their brief light to evoke impermanence.
-
-</details>
-
-| ![Fireflies glowing above a stream, Okayama Prefecture, Japan](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fireflies glowing above a stream, Okayama Prefecture, Japan](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
