@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260711
+
+> Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> In France, Port de Saint-Goustan sits just below Auray's upper town, where a small inlet meets the Gulf of Morbihan estuary. The harbor lies at the confluence of the Auray and Loc'h rivers, creating its sheltered, storybook setting. In the 13th century, the Dukes of Brittany built a bridge, a port, and a castle here; the fortress has vanished, but cobbled quays, narrow lanes, and timber-framed houses still line the water. From Place de la République, Rue du Château passes art studios and galleries down to the waterfront; ramps along the Loc'h, built on old fortifications, open views across the port. Cross the four-arched stone bridge to Place Saint-Sauveur, then climb toward Saint-Gildas Church, where the town rises above the harbor. The quay also marks a transatlantic moment: Benjamin Franklin arrived here in 1776, and a dock now bears his name. Today, cafés and small boats fill the scene, while nearby Auray hosts a well-known weekly market and lively summer events.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Port de Saint-Goustan, Auray, Brittany, France](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Port de Saint-Goustan, Auray, Brittany, France](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_1080x1920.jpg) |
+
 ### 20260710
 
 > Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Lavender rows, Plateau de Valensole, Provence, France](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lavender rows, Plateau de Valensole, Provence, France](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |
-
-### 20260704
-
-> Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Today, the United States marks 250 years since the adoption of the Declaration of Independence—a milestone known as the 'semiquincentennial.' This anniversary commemorates 1776, when the Declaration articulated the idea that a nation could be defined by shared principles rather than inherited rule. Two and a half centuries later, this date is marked not only as an anniversary but also as an opportunity to reflect on the nation's long and evolving story.
-> 
-> Official programs and commemorations across the country invite people to revisit history, recognize the many communities that have shaped the United States, and consider what the next chapter might hold. National and local events are bringing this anniversary into the public sphere through civic gatherings, cultural projects, and shared traditions. A quarter of a millennium offers a rare chance to remember, reflect, and imagine what comes next.
-> 
-> 
-
-</details>
-
-| ![The United States' 250th anniversary](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The United States' 250th anniversary](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_1080x1920.jpg) |4K](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
