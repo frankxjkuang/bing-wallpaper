@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260712
+
+> Katahdin Woods and Waters National Monument, Maine (© Cavan Images/Offset/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> If you're looking for Maine at its most untamed, this is it. Katahdin Woods and Waters National Monument stretches across about 87,500 acres of the raw North Woods—where quiet ponds mirror the sky and dense forests seem to swallow sound.
+> 
+> Don't expect crowds or convenience. This is a place where dirt roads rattle your car and cell service disappears quickly. But that's the point. Step out beside a still pond or drift along the East Branch of the Penobscot River, and the wilderness feels immediate, almost personal.
+> 
+> Established in 2016, the monument protects a landscape shaped by logging and is now being slowly reclaimed by nature. Spruce and birch forests shelter moose, black bears, and elusive Canada lynx, while remote waters hold wild brook trout. Look west and you may glimpse Mount Katahdin rising beyond the trees. Stay after sunset and the sky takes over—this is an International Dark Sky Sanctuary, where stars burn bright above the forest.
+
+</details>
+
+| ![Katahdin Woods and Waters National Monument, Maine](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Katahdin Woods and Waters National Monument, Maine](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_1080x1920.jpg) |
+
 ### 20260711
 
 > Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Syracuse, Sicily, Italy](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Syracuse, Sicily, Italy](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_1080x1920.jpg) |
-
-### 20260705
-
-> Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> In southeastern France, on the Valensole Plateau, summer arrives in waves of purple and blue. Valensole—one of the largest plateaus in the region—lies in the Verdon Regional Natural Park between the Durance and Asse valleys, near the Gorges du Verdon and its lakes. From mid-June to early July, depending on altitude and weather, lavender and lavandin bloom and transform the landscape into one of Provence's most recognizable sights. The air carries a sharp, dry, and unmistakably Mediterranean scent.
-> 
-> Beyond the postcard-worthy view, lavender is an evergreen shrub in the mint family, native to lands bordering the Mediterranean. Its fragrance comes from oil glands on the flowers, leaves, and stems, which is why it has long been valued for perfumes, soaps, sachets, and essential oils distilled from the plant. The ancient Romans even used lavender in their baths. It also attracts bees and other pollinators, adding a steady hum to the fields. In Valensole, beauty is agricultural, aromatic, and alive—rooted in climate, cultivation, and tradition.
-> 
-> 
-
-</details>
-
-| ![Lavender rows, Plateau de Valensole, Provence, France](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lavender rows, Plateau de Valensole, Provence, France](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
