@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260713
+
+> Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> International Rock Day, observed on July 13, celebrates the geologic building blocks beneath our feet and encourages curiosity about how rocks shape Earth's landscapes and history. From ancient tools to modern mineral uses, these solid structures hold clues to volcanic eruptions, shifting continents, and life over millions of years. Few places display that story as vividly as Antelope Canyon, a narrow slot canyon on Navajo Nation land east of Page, Arizona. Carved from Navajo Sandstone by flash floods and erosion, its smooth, flowing walls reveal how water and sediment sculpt rock over time. Sunlight filters through the canyon's narrow openings, creating beams of light that dance across red and orange stone, shaped by centuries of natural forces. On International Rock Day, landscapes like this turn geology into a living gallery—inviting visitors to see rocks not as static objects, but as evolving records of our planet's dynamic past.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![International Rock Day](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Rock Day](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_1080x1920.jpg) |
+
 ### 20260712
 
 > Katahdin Woods and Waters National Monument, Maine (© Cavan Images/Offset/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Plate-billed mountain toucan with orchids, Ecuador](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Plate-billed mountain toucan with orchids, Ecuador](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_1080x1920.jpg) |
-
-### 20260706
-
-> Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Founded by Greek settlers from Corinth around 734 BCE, the Italian city of Syracuse, on the island of Sicily, grew into one of the ancient Mediterranean's great powers and is now part of a UNESCO World Heritage Site, 'Syracuse and the Rocky Necropolis of Pantalica.' It is forever linked to Archimedes, whose genius still shapes its identity, and to Plato, who came to Syracuse hoping philosophy might shape political life. That layered past still feels tangible at Castello Maniace, a seafront fortress built for Holy Roman Emperor Frederick II in the 13th century, which can still be admired today.
-> 
-> In 2009, the castle provided the setting for the 'Carta di Siracusa,' a document centered on biodiversity and the relationship between nature, culture, and development. The city has also offered filmmakers a ready-made stage, from 'Casanova '70,' starring Marcello Mastroianni, to 'Indiana Jones and the Dial of Destiny.' Here, Italy is more than sunshine, wine, and good food: it is history still conjugated in the present.
-> 
-> 
-
-</details>
-
-| ![Syracuse, Sicily, Italy](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Syracuse, Sicily, Italy](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_1080x1920.jpg) |racuseItaly_EN-US3071727282_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
