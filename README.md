@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260714
+
+> Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> On July 14, Shark Awareness Day asks us to trade movie panic for ocean truth. Sharks have patrolled the seas for more than 420 million years, and as apex predators, they help keep marine ecosystems in balance.
+> 
+> The tiny explorer in this image—a lemon shark pup weaving through a mangrove forest in Eleuthera, the Bahamas—offers a perfect reminder that their stories don't begin with drama but with nurseries and survival. Lemon sharks give birth to live young, and their pups spend years in shallow mangroves, where cover and calm water help them grow. Yet they are considered near threatened, and sharks worldwide face intense pressure from overfishing, fear-driven killing, and habitat loss. Protecting them safeguards far more than a single species: healthy shark populations support reefs, seagrass beds, and the broader ocean food web. This day is a call not for alarm, but for awe—and a deeper respect.
+> 
+> 
+
+</details>
+
+| ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_1080x1920.jpg) |
+
 ### 20260713
 
 > Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Sunrise at Lake Atitlán, Guatemala](https://cn.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sunrise at Lake Atitlán, Guatemala](https://cn.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_1080x1920.jpg) |
-
-### 20260707
-
-> Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> A bill like a multitool and plumage full of color—the plate-billed mountain toucan is one of the Andes' most distinctive birds. It lives in the humid mountain forests of Ecuador and southwestern Colombia, perfectly adapted to life high in the canopy.
-> 
-> This toucan relies heavily on fruit, feeding on berries, figs, and other forest produce. Using its strong, versatile bill, it reaches and processes food with ease. It often moves deliberately through the canopy in pairs or small groups, navigating dense foliage with surprising agility. As it feeds, it also disperses seeds, making it an important contributor to forest regeneration. Perched here among orchids, the bird offers a glimpse into its lush habitat and the delicate balance it helps sustain. But beyond its striking colors lies a challenge: the species is considered near threatened as habitat loss continues to reshape the Andean cloud forests.
-> 
-> 
-
-</details>
-
-| ![Plate-billed mountain toucan with orchids, Ecuador](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Plate-billed mountain toucan with orchids, Ecuador](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_1080x1920.jpg) |racuseItaly_EN-US3071727282_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_1080x1920.jpg) |racuseItaly_EN-US3071727282_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
