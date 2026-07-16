@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260715
+
+> Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> If mountains could keep a record of the past, the John Muir Wilderness near Bishop, California, would have plenty to share. Its valleys, lakes, and granite formations reveal a history shaped over millions of years. Established in 1964, this vast protected area spans more than 650,000 acres of the Sierra Nevada and is named after naturalist John Muir. Today, parts of the Pacific Crest Trail and John Muir Trail pass through the area, drawing hikers into one of the largest high-elevation wilderness regions in the contiguous United States.
+> 
+> Not far from Bishop, Marie Lake sits at an elevation of about 10,550 feet and is often reached by backpackers crossing Selden Pass. Its clear water reflects the surrounding granite, creating one of the most photographed spots along the trail. Life at these elevations is adapted to a brief growing season. Whitebark and lodgepole pines grow across the landscape, while marmots, golden trout, Clark's nutcrackers, black bears, pikas, and California bighorn sheep remain part of the ecosystem.
+> 
+> 
+
+</details>
+
+| ![Marie Lake, John Muir Wilderness near Bishop, California](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Marie Lake, John Muir Wilderness near Bishop, California](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_1080x1920.jpg) |
+
 ### 20260714
 
 > Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Rice fields at Sapa, Lào Cai, Vietnam](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rice fields at Sapa, Lào Cai, Vietnam](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_1080x1920.jpg) |
-
-### 20260708
-
-> Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Set in Guatemala's western highlands, Lake Atitlán fills a vast volcanic caldera. Its deep blue waters are framed by steep crater walls and the cone-shaped volcanoes Atitlán, Tolimán, and San Pedro. Wooden piers stretch into the still lake, emphasizing the contrast between its calm surface and the rugged terrain shaped by volcanic activity.
-> 
-> Formed about 84,000 years ago after a massive eruption, the lake is often considered the deepest in Central America, reaching depths of roughly 1,100 feet. Steep escarpments encircle the basin, enclosing the water in a dramatic natural amphitheater that echoes its explosive origins.
-> 
-> Beneath the surface lie traces of submerged Maya sites more than 1,500 years old, including remnants of ceremonial structures that hint at a once-thriving lakeside culture. Along the shore, Kaqchikel and Tz'utujil Maya communities continue to preserve their languages and weaving traditions, their daily lives still closely tied to the rhythms of this highland landscape.
-
-</details>
-
-| ![Sunrise at Lake Atitlán, Guatemala](https://cn.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sunrise at Lake Atitlán, Guatemala](https://cn.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_1080x1920.jpg) |rait 4K](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_1080x1920.jpg) |racuseItaly_EN-US3071727282_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_1080x1920.jpg) |acuseItaly_EN-US3071727282_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
