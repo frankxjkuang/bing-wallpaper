@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260716
+
+> Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Some places are built for a single purpose; others keep reinventing themselves. Navy Pier in Chicago, Illinois, falls into the second category. The structure stretches more than 3,000 feet into the lake and was designed as part of Edward H. Bennett's and Daniel Burnham's 1909 Plan of Chicago. Opened in 1916, the pier was built for shipping, recreation, and passenger travel on Lake Michigan. It was renamed Navy Pier in honor of World War I naval veterans.
+> 
+> Step outside today and the surroundings feel very different. The skyline fills the view, while Lake Michigan stretches far beyond the pier. On clear days, the contrast between glass towers and open water is hard to miss.
+> 
+> The pier is now home to parks, performance spaces, restaurants, family attractions, a museum, and waterfront activities. Many visitors know the Centennial Wheel, but fewer know that the pier once housed university students attending classes after World War II. One structure, many lives. That's an unusual resume for a Chicago landmark.
+
+</details>
+
+| ![Navy Pier, Chicago, Illinois](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Navy Pier, Chicago, Illinois](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_1080x1920.jpg) |
+
 ### 20260715
 
 > Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Aerial view of land and ocean, Victoria, Australia](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of land and ocean, Victoria, Australia](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_1080x1920.jpg) |
-
-### 20260709
-
-> Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Sunlight cuts through drifting clouds and settles on the terraced slopes of Sapa, where rice fields cascade down the mountainsides like a living staircase. Located in Vietnam's Lào Cai province, this highland region is shaped as much by human hands as by nature. Generations of farmers from local ethnic communities such as the Hmong have carved and maintained these terraces for centuries, guiding water across steep hillsides to sustain each growing season.
-> 
-> Each level holds a thin layer of water that reflects the sky, nourishing young rice plants before the fields shift from vivid green to warm gold at harvest. Mist moves through the valleys, revealing new layers of hills and winding paths, creating a sense of constant change beneath Fansipan, Indochina's highest peak. Though remote, Sapa has become an increasingly popular destination, drawing visitors who come for the striking scenery and leave with a deeper appreciation for a place still shaped by tradition.
-> 
-> 
-
-</details>
-
-| ![Rice fields at Sapa, Lào Cai, Vietnam](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Rice fields at Sapa, Lào Cai, Vietnam](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_1080x1920.jpg) |acuseItaly_EN-US3071727282_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_1080x1920.jpg) |EN-US3071727282_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
