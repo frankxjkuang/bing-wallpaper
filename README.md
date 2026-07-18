@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260717
+
+> Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On the remote northeastern tip of the island of Crete in Greece lies Vai—a quiet corner far from the usual tourist trail. At the heart of this region is its beach, a broad curve of golden sand kissed by the calm, shallow waters of the Aegean. With sunbeds, umbrellas, and showers, it's an ideal spot for swimming, relaxing, or simply soaking in the peaceful atmosphere. But what truly sets Vai apart lies just behind the sand: Europe's largest natural palm grove. It is made up of over 5,000 Cretan date palm trees, a species unique to Crete and parts of Türkiye.
+> 
+> In the early 1970s, Vai was 'rediscovered' by hippies, who made it their haven after being moved out of the village of Matala. By the 1980s, however, increasing numbers of visitors and a lack of infrastructure had left the area littered and degraded. Recognizing its ecological and cultural value, authorities declared Vai a protected zone. Cleanup efforts restored the area, and today, Vai is one of Crete's most beautiful and unspoiled natural treasures. It's a reminder of how careful stewardship can bring a place back to life.
+> 
+> 
+
+</details>
+
+| ![Vai, Crete, Greece](https://cn.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Vai, Crete, Greece](https://cn.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_1080x1920.jpg) |
+
 ### 20260716
 
 > Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Port de Saint-Goustan, Auray, Brittany, France](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Port de Saint-Goustan, Auray, Brittany, France](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_1080x1920.jpg) |
-
-### 20260710
-
-> Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Victoria, a southeastern state of Australia, extends along more than 1,000 miles of coastline shaped by the Southern Ocean. From above, its beaches appear as sweeping bands of pale sand edged by turquoise waters and rugged cliffs. This dynamic interaction of land and sea defines much of the region's appeal. The famous Great Ocean Road traces roughly 150 miles of this shoreline, winding past popular surf spots, forested headlands, and seaside towns.
-> 
-> One of its most striking sights is the Twelve Apostles, towering limestone stacks formed over millions of years by wind and waves. Nearby stretches feature powerful surf breaks like Bells Beach and quieter coves where coastal vegetation meets open sand. Beyond the shore, farmland and national parks provide contrast, supporting wildlife and scenic trails. Victoria's capital, Melbourne, sits on Port Phillip Bay, anchoring a state known for both cultural energy and natural variety, from alpine peaks to untamed coastlines.
-> 
-> 
-
-</details>
-
-| ![Aerial view of land and ocean, Victoria, Australia](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of land and ocean, Victoria, Australia](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_1080x1920.jpg) |EN-US3071727282_1080x1920.jpg) |jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_1080x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
