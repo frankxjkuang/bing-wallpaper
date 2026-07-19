@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260718
+
+> Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Reflected in still water, the Rakotzbrücke—commonly known as the Devil's Bridge—forms a near-perfect stone circle in Saxony, Germany. Commissioned in 1860, the narrow basalt structure was carefully engineered so that its arch and reflection align to form a seamless ring when the lake is still. Made from locally sourced volcanic stone, it reflects precise design rather than practical function, its striking geometry intended purely for visual effect. A popular photo subject, it has also appeared in films, including 'The Matrix Resurrections' (2021). Today, the fragile bridge can only be admired from the shore, as crossing is prohibited to preserve it.
+> 
+> The bridge stands in Rhododendron Park Kromlau, an English-style landscape garden near the Polish border. Woodland paths wind past lakes and seasonal flower displays, with rhododendrons and azaleas creating vivid bursts of color in spring. At its calmest, water and stone align to form an enchanting illusion that appears to hover between reality and reflection.
+> 
+> 
+
+</details>
+
+| ![Devil's Bridge, Kromlau, Saxony, Germany](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Devil's Bridge, Kromlau, Saxony, Germany](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_1080x1920.jpg) |
+
 ### 20260717
 
 > Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Katahdin Woods and Waters National Monument, Maine](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Katahdin Woods and Waters National Monument, Maine](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_1080x1920.jpg) |
-
-### 20260711
-
-> Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> In France, Port de Saint-Goustan sits just below Auray's upper town, where a small inlet meets the Gulf of Morbihan estuary. The harbor lies at the confluence of the Auray and Loc'h rivers, creating its sheltered, storybook setting. In the 13th century, the Dukes of Brittany built a bridge, a port, and a castle here; the fortress has vanished, but cobbled quays, narrow lanes, and timber-framed houses still line the water. From Place de la République, Rue du Château passes art studios and galleries down to the waterfront; ramps along the Loc'h, built on old fortifications, open views across the port. Cross the four-arched stone bridge to Place Saint-Sauveur, then climb toward Saint-Gildas Church, where the town rises above the harbor. The quay also marks a transatlantic moment: Benjamin Franklin arrived here in 1776, and a dock now bears his name. Today, cafés and small boats fill the scene, while nearby Auray hosts a well-known weekly market and lively summer events.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Port de Saint-Goustan, Auray, Brittany, France](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Port de Saint-Goustan, Auray, Brittany, France](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_1080x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_1080x1920.jpg) |m/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
