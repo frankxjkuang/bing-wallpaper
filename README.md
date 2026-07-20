@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260719
+
+> Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Perched on slender reeds, a group of barn swallows gathers in a moment of stillness that contrasts with their usual speed. Known for swift, acrobatic flight and deeply forked tails, these birds are built for life on the wing. They catch insects midair and travel vast distances between continents. Subtle variations in color and markings suggest that more than one subspecies may be present, reflecting the barn swallow's extensive global range.
+> 
+> Across Europe, Asia, and the Americas, barn swallows breed in open landscapes, often shaped by human activity, before migrating south to warmer regions for the winter. During these journeys, they form loose flocks, pausing where water, insects, and resting sites are abundant. They can even drink in flight, skimming the water's surface with their beaks. In this brief gathering, the swallows seem almost at rest. Yet their presence signals movement on a much larger scale—a shared migration extending far beyond this quiet patch of reeds.
+> 
+> 
+
+</details>
+
+| ![Barn swallows of different subspecies resting together](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Barn swallows of different subspecies resting together](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_1080x1920.jpg) |
+
 ### 20260718
 
 > Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Rock Day](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Rock Day](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_1080x1920.jpg) |
-
-### 20260712
-
-> Katahdin Woods and Waters National Monument, Maine (© Cavan Images/Offset/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> If you're looking for Maine at its most untamed, this is it. Katahdin Woods and Waters National Monument stretches across about 87,500 acres of the raw North Woods—where quiet ponds mirror the sky and dense forests seem to swallow sound.
-> 
-> Don't expect crowds or convenience. This is a place where dirt roads rattle your car and cell service disappears quickly. But that's the point. Step out beside a still pond or drift along the East Branch of the Penobscot River, and the wilderness feels immediate, almost personal.
-> 
-> Established in 2016, the monument protects a landscape shaped by logging and is now being slowly reclaimed by nature. Spruce and birch forests shelter moose, black bears, and elusive Canada lynx, while remote waters hold wild brook trout. Look west and you may glimpse Mount Katahdin rising beyond the trees. Stay after sunset and the sky takes over—this is an International Dark Sky Sanctuary, where stars burn bright above the forest.
-
-</details>
-
-| ![Katahdin Woods and Waters National Monument, Maine](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Katahdin Woods and Waters National Monument, Maine](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_1080x1920.jpg) |m/th?id=OHR.LavenderRows_EN-US2831933520_1080x1920.jpg) |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_1080x1920.jpg) | |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
