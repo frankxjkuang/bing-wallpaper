@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260720
+
+> Moon and Earth captured by the Artemis II crew (© NASA)
+
+<details>
+<summary>Description</summary>
+
+> From the moon's cratered surface, Earth appears as a thin, glowing crescent against the darkness—a rare view that reverses our usual perspective. This stark landscape, shaped by billions of years of impacts, preserves a record of the early solar system. July 20 marks International Moon Day, commemorating the 1969 Apollo 11 landing, when humans first set foot on the lunar surface. Established by the United Nations in 2021, the day highlights past achievements and ongoing efforts to explore the moon.
+> 
+> Orbiting about 239,000 miles from Earth, the moon is Earth's only natural satellite. With almost no atmosphere, it experiences extreme temperature contrasts between sunlit heat and shadowed cold. Yet its influence reaches far beyond its surface—its gravity helps drive ocean tides on Earth, linking this quiet, airless world to everyday life. More than a destination for exploration, the moon remains a constant presence in our skies, connecting early observations of the night sky to ongoing exploration today.
+> 
+> 
+
+</details>
+
+| ![International Moon Day](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Moon Day](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_1080x1920.jpg) |
+
 ### 20260719
 
 > Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_1080x1920.jpg) |
-
-### 20260713
-
-> Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> International Rock Day, observed on July 13, celebrates the geologic building blocks beneath our feet and encourages curiosity about how rocks shape Earth's landscapes and history. From ancient tools to modern mineral uses, these solid structures hold clues to volcanic eruptions, shifting continents, and life over millions of years. Few places display that story as vividly as Antelope Canyon, a narrow slot canyon on Navajo Nation land east of Page, Arizona. Carved from Navajo Sandstone by flash floods and erosion, its smooth, flowing walls reveal how water and sediment sculpt rock over time. Sunlight filters through the canyon's narrow openings, creating beams of light that dance across red and orange stone, shaped by centuries of natural forces. On International Rock Day, landscapes like this turn geology into a living gallery—inviting visitors to see rocks not as static objects, but as evolving records of our planet's dynamic past.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![International Rock Day](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Rock Day](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_1080x1920.jpg) | |15956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_1080x1920.jpg) |956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
