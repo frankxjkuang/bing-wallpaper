@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260721
+
+> Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Some structures weren't meant to stand out—but time had other ideas. At sunrise, the Santa Catalina Arch glows over the streets of Antigua, Guatemala, its yellow facade catching the light just right as cobblestones stretch ahead and Agua Volcano rises in the distance. The arch was built in the 17th century to solve a practical problem: cloistered nuns needed to cross between convent buildings without being seen from the street. Privacy, not postcards, created one of Central America's most photographed landmarks. Irony holds up well over time.
+> 
+> Antigua itself leans into that contradiction. Declared a UNESCO World Heritage Site in 1979, the city preserves its colonial grid while carrying the marks of earthquakes that repeatedly reshaped it. Seen here from the street, this structure built to conceal now frames the city. The volcano holds steady behind it, and the arch keeps doing what it has always done—connecting things quietly, intentionally or not.
+> 
+> 
+
+</details>
+
+| ![Santa Catalina Arch, Antigua, Guatemala](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Santa Catalina Arch, Antigua, Guatemala](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_1080x1920.jpg) |
+
 ### 20260720
 
 > Moon and Earth captured by the Artemis II crew (© NASA)
@@ -112,26 +131,7 @@
 
 | ![Marie Lake, John Muir Wilderness near Bishop, California](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Marie Lake, John Muir Wilderness near Bishop, California](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_1080x1920.jpg) |
-
-### 20260714
-
-> Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> On July 14, Shark Awareness Day asks us to trade movie panic for ocean truth. Sharks have patrolled the seas for more than 420 million years, and as apex predators, they help keep marine ecosystems in balance.
-> 
-> The tiny explorer in this image—a lemon shark pup weaving through a mangrove forest in Eleuthera, the Bahamas—offers a perfect reminder that their stories don't begin with drama but with nurseries and survival. Lemon sharks give birth to live young, and their pups spend years in shallow mangroves, where cover and calm water help them grow. Yet they are considered near threatened, and sharks worldwide face intense pressure from overfishing, fear-driven killing, and habitat loss. Protecting them safeguards far more than a single species: healthy shark populations support reefs, seagrass beds, and the broader ocean food web. This day is a call not for alarm, but for awe—and a deeper respect.
-> 
-> 
-
-</details>
-
-| ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Shark Awareness Day](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_1080x1920.jpg) |956275_1080x1920.jpg) |https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1080x1920.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_1080x1920.jpg) |.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
