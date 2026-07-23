@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260722
+
+> Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Imagine a city built by animals, glowing in the sunlight, and bustling with life beneath the waves. That is a coral reef. During Coral Reef Awareness Week, we celebrate these remarkable ecosystems and the countless species that depend on them.
+> 
+> Coral reefs cover less than 1% of the ocean floor, yet they support roughly 25% of all marine life. What look like colorful rocks are actually colonies of tiny animals called coral polyps. Together, they build vast limestone structures that can last for thousands of years. The Great Barrier Reef is the largest living structure on Earth, stretching more than 1,400 miles along Australia's coast.
+> 
+> Reefs are full of surprises. Some corals glow thanks to fluorescent proteins that act like natural sunscreen, while parrotfish help create sandy beaches by turning coral into fine sand. For a glimpse of reef life at its richest, look to Raja Ampat in Indonesia, pictured here, where more than 75% of known coral species thrive. They may live underwater, but their impact reaches far beyond the shore.
+
+</details>
+
+| ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_1080x1920.jpg) |
+
 ### 20260721
 
 > Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Navy Pier, Chicago, Illinois](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Navy Pier, Chicago, Illinois](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_1080x1920.jpg) |
-
-### 20260715
-
-> Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> If mountains could keep a record of the past, the John Muir Wilderness near Bishop, California, would have plenty to share. Its valleys, lakes, and granite formations reveal a history shaped over millions of years. Established in 1964, this vast protected area spans more than 650,000 acres of the Sierra Nevada and is named after naturalist John Muir. Today, parts of the Pacific Crest Trail and John Muir Trail pass through the area, drawing hikers into one of the largest high-elevation wilderness regions in the contiguous United States.
-> 
-> Not far from Bishop, Marie Lake sits at an elevation of about 10,550 feet and is often reached by backpackers crossing Selden Pass. Its clear water reflects the surrounding granite, creating one of the most photographed spots along the trail. Life at these elevations is adapted to a brief growing season. Whitebark and lodgepole pines grow across the landscape, while marmots, golden trout, Clark's nutcrackers, black bears, pikas, and California bighorn sheep remain part of the ecosystem.
-> 
-> 
-
-</details>
-
-| ![Marie Lake, John Muir Wilderness near Bishop, California](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Marie Lake, John Muir Wilderness near Bishop, California](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_1080x1920.jpg) |.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_1080x1920.jpg) |d=OHR.MarieLake_EN-US0365186943_1080x1920.jpg) |.jpg) |在海岸位于西北大西洋重要的海鸟迁徙通道上。每年较温暖的季节，游客有机会看到三趾鸥、海鸠以及北方塘鹅等海鸟在悬崖与海面之间翱翔。丰富的海洋营养物质与崎岖的海岸环境共同构成了理想栖息地，使这里成为众多海洋生物的重要庇护所
 
 </details>
 
