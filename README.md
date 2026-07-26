@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260725
+
+> Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> In Spain's far northwest, Galicia meets the Atlantic with force—its long coastline carved by waves into cliffs, inlets, and wave-cut platforms. Rain-fed hills and dense forests spill toward the sea, creating a landscape that feels closer to Ireland than southern Spain, with shifting skies and a distinctly Atlantic mood.
+> 
+> On the region's northern edge, the town of Ribadeo sits near the border with Asturias on the Bay of Biscay, where estuaries meet the open ocean. The coastline here shifts from rugged to surreal, with cliffs suddenly giving way to complex rock formations and hidden coves. Praia das Catedrais—'Beach of the Cathedrals'—takes its name from massive arches sculpted by the ocean over time, their shapes resembling the soaring architecture of stone cathedrals.
+> 
+> Visit when the tide drops. For a limited stretch of time, the exposed seabed becomes a walkable maze of stone—an ever-changing terrain that disappears again as the ocean surges back in, quickly reclaiming the sand and reshaping the shoreline.
+
+</details>
+
+| ![Praia das Catedrais, Galicia, Spain](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Praia das Catedrais, Galicia, Spain](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_1080x1920.jpg) |
+
 ### 20260724
 
 > Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Barn swallows of different subspecies resting together](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Barn swallows of different subspecies resting together](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_1080x1920.jpg) |
-
-### 20260718
-
-> Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Reflected in still water, the Rakotzbrücke—commonly known as the Devil's Bridge—forms a near-perfect stone circle in Saxony, Germany. Commissioned in 1860, the narrow basalt structure was carefully engineered so that its arch and reflection align to form a seamless ring when the lake is still. Made from locally sourced volcanic stone, it reflects precise design rather than practical function, its striking geometry intended purely for visual effect. A popular photo subject, it has also appeared in films, including 'The Matrix Resurrections' (2021). Today, the fragile bridge can only be admired from the shore, as crossing is prohibited to preserve it.
-> 
-> The bridge stands in Rhododendron Park Kromlau, an English-style landscape garden near the Polish border. Woodland paths wind past lakes and seasonal flower displays, with rhododendrons and azaleas creating vivid bursts of color in spring. At its calmest, water and stone align to form an enchanting illusion that appears to hover between reality and reflection.
-> 
-> 
-
-</details>
-
-| ![Devil's Bridge, Kromlau, Saxony, Germany](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Devil's Bridge, Kromlau, Saxony, Germany](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_1080x1920.jpg) |��保护区。经过多年管理与恢复，如今的瓦伊不仅是克里特岛最原始、最美丽的自然瑰宝之一，也成为负责任旅游与生态保护的典范。这片海滩的复苏，清晰展现了可持续管理对自然环境所能产生的积极影响。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_1080x1920.jpg) |0x1920.jpg) |��保护区。经过多年管理与恢复，如今的瓦伊不仅是克里特岛最原始、最美丽的自然瑰宝之一，也成为负责任旅游与生态保护的典范。这片海滩的复苏，清晰展现了可持续管理对自然环境所能产生的积极影响。
 > 
 > 
 
