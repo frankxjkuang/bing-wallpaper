@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260726
+
+> Sunrise on a red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> At sunrise in Honduras' Pig Keys—small, low-lying coastal islets tucked within mangrove-rich wetlands—a red mangrove lifts its tangled roots above glassy water. This striking scene captures what July 26 celebrates: the International Day for the Conservation of the Mangrove Ecosystem, created to spotlight these vital coastal forests.
+> 
+> Mangroves thrive where saltwater and land collide, using specialized roots to anchor in soft, oxygen-poor mud. Their dense networks calm waves, reduce erosion, and shield communities from storms. Beneath the surface, those same roots shelter young fish, crabs, and shrimp, making these wetlands one of the ocean's most productive nurseries.
+> 
+> In places like Honduras, mangrove-rich coastal wetlands also store large amounts of carbon and support local livelihoods. Yet these ecosystems are disappearing rapidly, making conservation urgent. Watch the sunrise glow through those arching branches, —and you're witnessing one of Earth's most powerful natural defenses at work.
+
+</details>
+
+| ![International Day for the Conservation of the Mangrove Ecosystem](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for the Conservation of the Mangrove Ecosystem](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |
+
 ### 20260725
 
 > Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)
@@ -112,26 +131,7 @@
 
 | ![International Moon Day](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Moon Day](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_1080x1920.jpg) |
-
-### 20260719
-
-> Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Perched on slender reeds, a group of barn swallows gathers in a moment of stillness that contrasts with their usual speed. Known for swift, acrobatic flight and deeply forked tails, these birds are built for life on the wing. They catch insects midair and travel vast distances between continents. Subtle variations in color and markings suggest that more than one subspecies may be present, reflecting the barn swallow's extensive global range.
-> 
-> Across Europe, Asia, and the Americas, barn swallows breed in open landscapes, often shaped by human activity, before migrating south to warmer regions for the winter. During these journeys, they form loose flocks, pausing where water, insects, and resting sites are abundant. They can even drink in flight, skimming the water's surface with their beaks. In this brief gathering, the swallows seem almost at rest. Yet their presence signals movement on a much larger scale—a shared migration extending far beyond this quiet patch of reeds.
-> 
-> 
-
-</details>
-
-| ![Barn swallows of different subspecies resting together](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Barn swallows of different subspecies resting together](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_1080x1920.jpg) |0x1920.jpg) |��保护区。经过多年管理与恢复，如今的瓦伊不仅是克里特岛最原始、最美丽的自然瑰宝之一，也成为负责任旅游与生态保护的典范。这片海滩的复苏，清晰展现了可持续管理对自然环境所能产生的积极影响。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_1080x1920.jpg) |�复，如今的瓦伊不仅是克里特岛最原始、最美丽的自然瑰宝之一，也成为负责任旅游与生态保护的典范。这片海滩的复苏，清晰展现了可持续管理对自然环境所能产生的积极影响。
 > 
 > 
 
