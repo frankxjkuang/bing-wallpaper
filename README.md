@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260727
+
+> Tiffany Dome, Chicago Cultural Center, Illinois (© Felix Lipov/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Step inside the Chicago Cultural Center, and your eyes are instantly drawn upward to a glowing canopy of color—the Tiffany Dome. Suspended above Preston Bradley Hall, this masterpiece spans approximately 38 feet in diameter and is composed of roughly 30,000 pieces of Favrile glass, each shaped like a fish scale. Sunlight filters through its translucent surface, shifting blues and golds across its intricate pattern.
+> 
+> The building beneath it opened in 1897 as Chicago's first central public library, designed to showcase craftsmanship and civic pride. Today, it serves as a free cultural hub, hosting exhibitions, performances, and public programs.
+> 
+> Once hidden beneath a protective outer layer, the dome was fully restored in 2008, reintroducing natural light to this historic space. Beneath its glow, architecture and artistry merge, transforming a former reading room into one of the city's most striking interiors.
+
+</details>
+
+| ![Tiffany Dome, Chicago Cultural Center, Illinois](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tiffany Dome, Chicago Cultural Center, Illinois](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |
+
 ### 20260726
 
 > Sunrise on a red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Santa Catalina Arch, Antigua, Guatemala](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Santa Catalina Arch, Antigua, Guatemala](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_1080x1920.jpg) |
-
-### 20260720
-
-> Moon and Earth captured by the Artemis II crew (© NASA)
-
-<details>
-<summary>Description</summary>
-
-> From the moon's cratered surface, Earth appears as a thin, glowing crescent against the darkness—a rare view that reverses our usual perspective. This stark landscape, shaped by billions of years of impacts, preserves a record of the early solar system. July 20 marks International Moon Day, commemorating the 1969 Apollo 11 landing, when humans first set foot on the lunar surface. Established by the United Nations in 2021, the day highlights past achievements and ongoing efforts to explore the moon.
-> 
-> Orbiting about 239,000 miles from Earth, the moon is Earth's only natural satellite. With almost no atmosphere, it experiences extreme temperature contrasts between sunlit heat and shadowed cold. Yet its influence reaches far beyond its surface—its gravity helps drive ocean tides on Earth, linking this quiet, airless world to everyday life. More than a destination for exploration, the moon remains a constant presence in our skies, connecting early observations of the night sky to ongoing exploration today.
-> 
-> 
-
-</details>
-
-| ![International Moon Day](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Moon Day](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_1080x1920.jpg) |�复，如今的瓦伊不仅是克里特岛最原始、最美丽的自然瑰宝之一，也成为负责任旅游与生态保护的典范。这片海滩的复苏，清晰展现了可持续管理对自然环境所能产生的积极影响。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_1080x1920.jpg) ||�复，如今的瓦伊不仅是克里特岛最原始、最美丽的自然瑰宝之一，也成为负责任旅游与生态保护的典范。这片海滩的复苏，清晰展现了可持续管理对自然环境所能产生的积极影响。
 > 
 > 
 
