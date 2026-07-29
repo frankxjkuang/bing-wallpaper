@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260728
+
+> A kelp forest off Anacapa Island, Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> Off Anacapa Island, California, the ocean grows its own forests. Within Channel Islands National Park—also known as the 'Galápagos of North America'—giant kelp stretches beyond 100 feet in length, forming buoyant ribbons lifted by air-filled bladders and anchored below by rootlike holdfasts.
+> 
+> Nothing sits still in this kelp-built vertical world: sunlight filters through the canopy, fronds sway with the surge, and fish thread between stalks like visible currents. Sea lions twist through the openings, sea urchins graze the floor, and every layer hums with activity. But even this fast-growing seaweed—able to add up to 2 feet a day—can vanish quickly. Heatwaves, ocean acidification, and changing currents can erase decades of growth in a few years, leaving open water where a bustling community once stood.
+> 
+> Observed each July 28, World Nature Conservation Day feels tangible here. Kelp doesn't just host life; it constructs ecosystems from the ground up and keeps them together—filtering water, storing carbon, and quietly stabilizing entire coastlines.
+
+</details>
+
+| ![World Nature Conservation Day](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Nature Conservation Day](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_1080x1920.jpg) |
+
 ### 20260727
 
 > Tiffany Dome, Chicago Cultural Center, Illinois (© Felix Lipov/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Coral Reef Awareness Week](https://cn.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_1080x1920.jpg) |
-
-### 20260721
-
-> Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Some structures weren't meant to stand out—but time had other ideas. At sunrise, the Santa Catalina Arch glows over the streets of Antigua, Guatemala, its yellow facade catching the light just right as cobblestones stretch ahead and Agua Volcano rises in the distance. The arch was built in the 17th century to solve a practical problem: cloistered nuns needed to cross between convent buildings without being seen from the street. Privacy, not postcards, created one of Central America's most photographed landmarks. Irony holds up well over time.
-> 
-> Antigua itself leans into that contradiction. Declared a UNESCO World Heritage Site in 1979, the city preserves its colonial grid while carrying the marks of earthquakes that repeatedly reshaped it. Seen here from the street, this structure built to conceal now frames the city. The volcano holds steady behind it, and the arch keeps doing what it has always done—connecting things quietly, intentionally or not.
-> 
-> 
-
-</details>
-
-| ![Santa Catalina Arch, Antigua, Guatemala](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Santa Catalina Arch, Antigua, Guatemala](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_1080x1920.jpg) ||�复，如今的瓦伊不仅是克里特岛最原始、最美丽的自然瑰宝之一，也成为负责任旅游与生态保护的典范。这片海滩的复苏，清晰展现了可持续管理对自然环境所能产生的积极影响。
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_1080x1920.jpg) |��游与生态保护的典范。这片海滩的复苏，清晰展现了可持续管理对自然环境所能产生的积极影响。
 > 
 > 
 
