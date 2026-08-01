@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260731
+
+> Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Some railways retire. The Virginia Creeper Trail simply changed gears. Stretching 34.3 miles through southwest Virginia, this trail follows a former rail line once used to haul lumber and iron ore through the Appalachian Mountains. Its unusual name traces back to the steam locomotives that labored up steep grades in the early 1900s.
+> 
+> Centered around Damascus, known as 'Trail Town USA,' the trail is famous for its 47 wooden trestles, sweeping mountain views, and outdoor adventures. Damascus is also one of the few places where the Appalachian Trail passes directly through a town's Main Street.
+> 
+> One of the trail's highlights is a 17-mile downhill ride from Whitetop Station, the route's highest point at 3,500 feet, to Damascus. Riders can coast nearly 1,600 feet downhill with little pedaling. Another standout feature is the High Trestle, a 550-foot bridge that rises 100 feet above the valley below. Following damage from Hurricane Helene in 2024, the upper section remains closed for restoration, while the Damascus-to-Abingdon section continues to stay open.
+
+</details>
+
+| ![Virginia Creeper Trail, Damascus, Virginia](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Virginia Creeper Trail, Damascus, Virginia](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_1080x1920.jpg) |
+
 ### 20260730
 
 > Monument Valley, Navajo Nation, Arizona (© Westend61/Adobe Stock)
@@ -112,28 +131,7 @@
 
 | ![Praia das Catedrais, Galicia, Spain](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Praia das Catedrais, Galicia, Spain](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_1080x1920.jpg) |
-
-### 20260724
-
-> Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Today is National Cousins Day—a perfect excuse to reconnect with the people who know your family stories best and probably helped create a few of them. Think of cousins as your built-in crew: part family history, part lifelong adventure.
-> 
-> Take a cue from a flock of flamingos in the Galápagos Islands, Ecuador. These birds don't wander solo—they gather in lively groups, feeding, calling, and moving in sync. Their bold pink color comes from a diet rich in algae and tiny crustaceans—proof that even diet can shape identity.
-> 
-> Cousins work much the same way. Shared holidays, inside jokes, and summer chaos create bonds that feel natural, even when distance grows. Like flamingos standing side by side in shallow water, cousins form a vivid, ever-shifting flock—connected, resilient, and full of personality.
-
-</details>
-
-| ![National Cousins Day](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_EN-US0364264116_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Cousins Day](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_EN-US0364264116_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_EN-US0364264116_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_EN-US0364264116_1080x1920.jpg) |&rs=1&c=4) | ![粉红色大丽花](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_1080x1920.jpg) |[Download portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
