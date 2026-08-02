@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260801
+
+> A series of lava flows spill into the ocean, Big Island, Hawaii (© Ken McCurdy/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Most landscapes change over thousands of years. Volcanoes can reshape them in a matter of hours, and on Hawaii's Big Island, they continue to do just that. Recognizing the scientific and natural importance of this ever-changing environment, Hawaii Volcanoes National Park was established on August 1, 1916. For more than a century, it has protected over 350,000 acres of volcanic terrain, native forests, and rare wildlife.
+> 
+> The national park is named after its two volcanoes—Kīlauea and Mauna Loa. Kīlauea is one of the world's most active volcanoes, and during some eruptions, its lava flows downhill to the Pacific Ocean, where it cools into new rock. Mauna Loa, the world's largest active volcano by volume, has erupted 34 times since its first well-documented eruption in 1843. The park is also home to species such as the nēnē, Hawaii's state bird, and the endangered Hawaiian petrel. As it marks another anniversary today, the park continues to protect a landscape that never stands still.
+> 
+> 
+
+</details>
+
+| ![Lava flows spill into the ocean on Big Island, Hawaii](https://cn.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lava flows spill into the ocean on Big Island, Hawaii](https://cn.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_1080x1920.jpg) |
+
 ### 20260731
 
 > Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Day for the Conservation of the Mangrove Ecosystem](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for the Conservation of the Mangrove Ecosystem](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |
-
-### 20260725
-
-> Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> In Spain's far northwest, Galicia meets the Atlantic with force—its long coastline carved by waves into cliffs, inlets, and wave-cut platforms. Rain-fed hills and dense forests spill toward the sea, creating a landscape that feels closer to Ireland than southern Spain, with shifting skies and a distinctly Atlantic mood.
-> 
-> On the region's northern edge, the town of Ribadeo sits near the border with Asturias on the Bay of Biscay, where estuaries meet the open ocean. The coastline here shifts from rugged to surreal, with cliffs suddenly giving way to complex rock formations and hidden coves. Praia das Catedrais—'Beach of the Cathedrals'—takes its name from massive arches sculpted by the ocean over time, their shapes resembling the soaring architecture of stone cathedrals.
-> 
-> Visit when the tide drops. For a limited stretch of time, the exposed seabed becomes a walkable maze of stone—an ever-changing terrain that disappears again as the ocean surges back in, quickly reclaiming the sand and reshaping the shoreline.
-
-</details>
-
-| ![Praia das Catedrais, Galicia, Spain](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Praia das Catedrais, Galicia, Spain](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_1080x1920.jpg) |[Download portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
