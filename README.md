@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260802
+
+> Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Finland is famous for the northern lights, its high happiness rankings, saunas, and thousands of lakes. Helsinki adds history, design, and the Baltic Sea to that list. The story begins in 1550, when King Gustav I of Sweden founded a trading town that would become Finland's capital in 1812. Today, a walk through the city can take you from Senate Square and the white-domed Helsinki Cathedral to the sea fortress of Suomenlinna, a UNESCO World Heritage Site accessible by ferry.
+> 
+> Over 70% of Helsinki's 265-square-mile area is water. The city stretches across more than 300 islands, giving residents easy access to parks, forests, and the shoreline. Visiting in autumn? You're in luck. The surrounding forests offer bilberries, lingonberries, and mushrooms that people can forage under Finland's Everyman's Right. If you work up an appetite, try karjalanpiirakka (Karelian pies), creamy salmon soup, or a warm cinnamon bun with coffee. Watch out for the trams and cyclists. And if someone lends a hand, 'kiitos'—thank you—goes a long way.
+> 
+> 
+
+</details>
+
+| ![Helsinki, Uusimaa, Finland](https://cn.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Helsinki, Uusimaa, Finland](https://cn.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_1080x1920.jpg) |
+
 ### 20260801
 
 > A series of lava flows spill into the ocean, Big Island, Hawaii (© Ken McCurdy/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Tiffany Dome, Chicago Cultural Center, Illinois](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tiffany Dome, Chicago Cultural Center, Illinois](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |
-
-### 20260726
-
-> Sunrise on a red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> At sunrise in Honduras' Pig Keys—small, low-lying coastal islets tucked within mangrove-rich wetlands—a red mangrove lifts its tangled roots above glassy water. This striking scene captures what July 26 celebrates: the International Day for the Conservation of the Mangrove Ecosystem, created to spotlight these vital coastal forests.
-> 
-> Mangroves thrive where saltwater and land collide, using specialized roots to anchor in soft, oxygen-poor mud. Their dense networks calm waves, reduce erosion, and shield communities from storms. Beneath the surface, those same roots shelter young fish, crabs, and shrimp, making these wetlands one of the ocean's most productive nurseries.
-> 
-> In places like Honduras, mangrove-rich coastal wetlands also store large amounts of carbon and support local livelihoods. Yet these ecosystems are disappearing rapidly, making conservation urgent. Watch the sunrise glow through those arching branches, —and you're witnessing one of Earth's most powerful natural defenses at work.
-
-</details>
-
-| ![International Day for the Conservation of the Mangrove Ecosystem](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day for the Conservation of the Mangrove Ecosystem](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
