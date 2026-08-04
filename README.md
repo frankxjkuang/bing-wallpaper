@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260803
+
+> Colorful boats in Marsaxlokk Harbor, Malta (© Klubovy/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Colorful luzzus—traditional Maltese fishing boats—fill the sheltered harbor of Marsaxlokk, a village on Malta's southeastern coast. Just a short drive from Valletta, the island's capital, it remains one of the country's main fishing hubs, where daily life follows the steady pace of the sea. Home to roughly 4,000 residents, the village is also widely known for its lively waterfront, especially its popular Sunday fish market, and for the steady return of boats carrying fresh catches each morning.
+> 
+> The luzzus are adapted to local waters and remain in active use today. Painted in bright shades of blue, yellow, red, and green, they line the harbor in tight clusters. Each bears a pair of painted eyes on the bow—a symbol rooted in ancient Mediterranean traditions, believed to protect sailors at sea. Together, they create a scene that is as practical as visually striking.
+> 
+> 
+
+</details>
+
+| ![Colorful boats in Marsaxlokk Harbor, Malta](https://cn.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Colorful boats in Marsaxlokk Harbor, Malta](https://cn.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_1080x1920.jpg) |
+
 ### 20260802
 
 > Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![World Nature Conservation Day](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Nature Conservation Day](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_1080x1920.jpg) |
-
-### 20260727
-
-> Tiffany Dome, Chicago Cultural Center, Illinois (© Felix Lipov/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Step inside the Chicago Cultural Center, and your eyes are instantly drawn upward to a glowing canopy of color—the Tiffany Dome. Suspended above Preston Bradley Hall, this masterpiece spans approximately 38 feet in diameter and is composed of roughly 30,000 pieces of Favrile glass, each shaped like a fish scale. Sunlight filters through its translucent surface, shifting blues and golds across its intricate pattern.
-> 
-> The building beneath it opened in 1897 as Chicago's first central public library, designed to showcase craftsmanship and civic pride. Today, it serves as a free cultural hub, hosting exhibitions, performances, and public programs.
-> 
-> Once hidden beneath a protective outer layer, the dome was fully restored in 2008, reintroducing natural light to this historic space. Beneath its glow, architecture and artistry merge, transforming a former reading room into one of the city's most striking interiors.
-
-</details>
-
-| ![Tiffany Dome, Chicago Cultural Center, Illinois](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tiffany Dome, Chicago Cultural Center, Illinois](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
