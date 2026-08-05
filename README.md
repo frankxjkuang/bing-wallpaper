@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260804
+
+> Florida burrowing owlet, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Owls take center stage on International Owl Awareness Day, an annual observance highlighting their remarkable adaptations and worldwide distribution. Found on every continent except Antarctica, these birds are known for forward-facing eyes, flat facial discs that channel sound, and specialized hearing. Many species hunt in near silence thanks to soft-edged feathers. Their eyes remain fixed in their sockets, so they rely on flexible necks to scan their surroundings. From forests to deserts, owls inhabit a wide range of environments and play an important role in maintaining ecosystem balance.
+> 
+> In this image, a Florida burrowing owlet stands alert among wildflowers in Cape Coral. A subspecies of the burrowing owl, it lives in open landscapes and nests underground rather than in trees—an unusual trait among owls. Often active during the day, this small owl has long legs and a compact build suited to life on the ground. Despite its delicate appearance, it is a skilled hunter, scanning its surroundings from low perches near its burrow.
+> 
+> 
+
+</details>
+
+| ![International Owl Awareness Day](https://cn.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Owl Awareness Day](https://cn.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_1080x1920.jpg) |
+
 ### 20260803
 
 > Colorful boats in Marsaxlokk Harbor, Malta (© Klubovy/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Tiger Day](https://cn.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Tiger Day](https://cn.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_1080x1920.jpg) |
-
-### 20260728
-
-> A kelp forest off Anacapa Island, Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> Off Anacapa Island, California, the ocean grows its own forests. Within Channel Islands National Park—also known as the 'Galápagos of North America'—giant kelp stretches beyond 100 feet in length, forming buoyant ribbons lifted by air-filled bladders and anchored below by rootlike holdfasts.
-> 
-> Nothing sits still in this kelp-built vertical world: sunlight filters through the canopy, fronds sway with the surge, and fish thread between stalks like visible currents. Sea lions twist through the openings, sea urchins graze the floor, and every layer hums with activity. But even this fast-growing seaweed—able to add up to 2 feet a day—can vanish quickly. Heatwaves, ocean acidification, and changing currents can erase decades of growth in a few years, leaving open water where a bustling community once stood.
-> 
-> Observed each July 28, World Nature Conservation Day feels tangible here. Kelp doesn't just host life; it constructs ecosystems from the ground up and keeps them together—filtering water, storing carbon, and quietly stabilizing entire coastlines.
-
-</details>
-
-| ![World Nature Conservation Day](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Nature Conservation Day](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_1080x1920.jpg) |elp_EN-US3809417919_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
