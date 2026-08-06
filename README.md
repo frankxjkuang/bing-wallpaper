@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260805
+
+> Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> In Fez, Morocco, the Royal Palace—known as Dar al-Makhzen—has stood as a seat of power since the 13th century, when Morocco's rulers established a fortified royal city around it. Behind its high walls lie gardens, courtyards, mosques, and royal residences spread across a vast complex still used by the king today, making it both historic and fully active.
+> 
+> Today's image captures what most visitors come to see: the palace's iconic gates at Place des Alaouites. Seven towering brass doors gleam with a golden sheen, framed by colorful geometric tiles and carved cedar wood that reflect remarkable craftsmanship. Each arch showcases Moroccan artistry, where precise patterns, symmetry, and rich materials blend into a striking visual display admired by travelers.
+> 
+> You can't step inside, but standing before these monumental doors feels like standing at the threshold of history. Royal life, ceremony, and legend remain just beyond view, hidden behind walls that have stood for centuries.
+
+</details>
+
+| ![Decorated gate of the Royal Palace of Fez, Morocco](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Decorated gate of the Royal Palace of Fez, Morocco](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_1080x1920.jpg) |
+
 ### 20260804
 
 > Florida burrowing owlet, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Monument Valley, Navajo Nation, Arizona](https://cn.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Monument Valley, Navajo Nation, Arizona](https://cn.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_1080x1920.jpg) |
-
-### 20260729
-
-> A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> On International Tiger Day, this family moves through Ranthambore National Park in Rajasthan, India, with the confidence of those who know exactly where they stand in the food chain. These are Bengal tigers, built for both stealth and power: an adult can stretch over 10 feet from nose to tail and weigh around 500 pounds, yet walk without making a sound. Their stripes also play a part in a landscape where visibility is a double-edged sword, camouflaging their bodies in patterns that prey struggle to read.
-> 
-> Wild tiger populations fell from an estimated 100,000 a century ago to a fraction of that number by the early 21st century. In some regions, however, they have begun to rebound. Far from accidental, this recovery is tied to protected corridors, anti-poaching efforts, and human tolerance at the edges. Ranthambore leads by example: once a hunting ground for royalty, it now plays the opposite role. Slowly, stripes are threading their way back into the wild.
-> 
-> 
-
-</details>
-
-| ![International Tiger Day](https://cn.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Tiger Day](https://cn.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_1080x1920.jpg) |elp_EN-US3809417919_1080x1920.jpg) |s://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_1080x1920.jpg) |bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
