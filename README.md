@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260806
+
+> Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In the Masai Mara, Kenya, the ground seems to move. A vast surge of wildebeest—hoofed grazers built for endurance—travel in tightly packed herds, drawn by fresh grass and water replenished by seasonal rains.
+> 
+> The image captures one of the migration's most dramatic moments: thousands crowd the banks of the Mara River before plunging in. For minutes, hesitation hangs in the air—then, suddenly, they leap. Horns tilt forward, bodies collide, and splashes erupt as the herd charges through swirling currents.
+> 
+> This crossing is both vital and perilous. Crocodiles lurk below, predators patrol the shoreline, and strong currents sweep away the weak. Yet the instinct to move drives them onward, part of the largest land migration on Earth, with more than a million animals following this ancient route. More than a spectacle, this journey shapes the ecosystem—trimming grasses, nourishing soil, and sustaining life across the savanna.
+
+</details>
+
+| ![Migrating wildebeest crossing Mara River in Masai Mara, Kenya](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Migrating wildebeest crossing Mara River in Masai Mara, Kenya](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_1080x1920.jpg) |
+
 ### 20260805
 
 > Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Virginia Creeper Trail, Damascus, Virginia](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Virginia Creeper Trail, Damascus, Virginia](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_1080x1920.jpg) |
-
-### 20260730
-
-> Monument Valley, Navajo Nation, Arizona (© Westend61/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> Some landscapes are famous. Monument Valley is legendary. Straddling the Arizona–Utah border within the Navajo Nation, this desert wonder is shaped by towering sandstone buttes that rise as much as 1,000 feet above the valley floor. Known in Navajo as Tsé Bii' Ndzisgaii—'valley of the rocks'—the region blends dramatic geology with living culture.
-> 
-> The valley's iconic red hue comes from iron oxide and manganese in the sandstone, while Navajo legend tells a different story: the famous Mitten Buttes—iconic sandstone formations—are the hands of a giant scattered across the Earth after a great battle. Monument Valley became Hollywood's go-to Wild West backdrop after director John Ford featured it in classics such as 'Stagecoach' and 'The Searchers.' Today, visitors can stop at John Ford's Point, one of the area's most photographed viewpoints.
-> 
-> A self-guided, 17-mile scenic drive reveals the valley's landmarks, while Navajo-led tours provide access to hidden sites and deeper cultural insights. Here, every rock formation carries its own story.
-
-</details>
-
-| ![Monument Valley, Navajo Nation, Arizona](https://cn.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Monument Valley, Navajo Nation, Arizona](https://cn.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_1080x1920.jpg) |bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_1080x1920.jpg) |/th?id=OHR.NavajoNation_EN-US6947714656_1080x1920.jpg) |bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
