@@ -1,5 +1,43 @@
 ## bing wallpaper
 
+### 20260811
+
+> Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In Copenhagen, Nyhavn Canal is a burst of color and history. In Denmark's capital, bright, gabled houses lean toward the water, their reflections rippling beside old wooden ships.
+> 
+> Carved out in the 1670s under King Christian V, this 17th-century canal once served as a busy gateway where cargo vessels unloaded goods straight into the city's heart. Sailors crowded its taverns, and the harbor gained a rough reputation long before it became the postcard-perfect place seen today. Now, those same traditional buildings house lively cafés and restaurants, filling the quay with chatter, music, and the scent of Danish classics. Canal boats glide past, offering a front-row view of the city, while historic ships remain moored as reminders of its seafaring past.
+> 
+> Hans Christian Andersen once called Nyhavn home, writing stories inspired by this ever-changing waterfront. Though it's only about 1,500 feet long, the canal feels expansive—an energetic stretch where history, color, and harbor life come together in a scene that invites you to linger.
+
+</details>
+
+| ![Nyhavn Canal, Copenhagen, Denmark](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nyhavn Canal, Copenhagen, Denmark](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_1080x1920.jpg) |
+
+### 20260810
+
+> Joshua Tree National Park, California (© JJ Landscapes/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Where two great deserts meet, Joshua Tree National Park reveals a stark, mesmerizing landscape shaped by wind, time, and extremes. In Southern California, the higher Mojave Desert merges with the hotter, lower Colorado Desert, creating a unique blend of ecosystems and remarkable biodiversity.
+> 
+> Across nearly 800,000 acres, spiky Joshua trees—actually a species of yucca—rise from sandy plains, their twisting silhouettes punctuating fields of weathered granite boulders. Massive rock formations, cracked and sculpted over millions of years, attract climbers and hikers seeking routes through this rugged terrain. Life persists here in remarkable ways. Desert bighorn sheep, reptiles, and hundreds of bird species thrive in an environment defined by scarce water and intense sun. Spring may bring bursts of wildflowers, while crystal-clear nights reveal some of the darkest skies in the country—ideal for stargazing.
+> 
+> Designated as a national monument on this day in 1936, the vast landscape became a national park in 1994. It invites exploration, offering an unforgettable encounter with the raw beauty and resilience of the American desert.
+
+</details>
+
+| ![Joshua Tree National Park, California](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Joshua Tree National Park, California](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_1080x1920.jpg) |
+
 ### 20260809
 
 > Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)
@@ -93,46 +131,7 @@
 
 | ![Decorated gate of the Royal Palace of Fez, Morocco](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Decorated gate of the Royal Palace of Fez, Morocco](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_1080x1920.jpg) |
-
-### 20260804
-
-> Florida burrowing owlet, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Owls take center stage on International Owl Awareness Day, an annual observance highlighting their remarkable adaptations and worldwide distribution. Found on every continent except Antarctica, these birds are known for forward-facing eyes, flat facial discs that channel sound, and specialized hearing. Many species hunt in near silence thanks to soft-edged feathers. Their eyes remain fixed in their sockets, so they rely on flexible necks to scan their surroundings. From forests to deserts, owls inhabit a wide range of environments and play an important role in maintaining ecosystem balance.
-> 
-> In this image, a Florida burrowing owlet stands alert among wildflowers in Cape Coral. A subspecies of the burrowing owl, it lives in open landscapes and nests underground rather than in trees—an unusual trait among owls. Often active during the day, this small owl has long legs and a compact build suited to life on the ground. Despite its delicate appearance, it is a skilled hunter, scanning its surroundings from low perches near its burrow.
-> 
-> 
-
-</details>
-
-| ![International Owl Awareness Day](https://cn.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Owl Awareness Day](https://cn.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_1080x1920.jpg) |
-
-### 20260803
-
-> Colorful boats in Marsaxlokk Harbor, Malta (© Klubovy/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Colorful luzzus—traditional Maltese fishing boats—fill the sheltered harbor of Marsaxlokk, a village on Malta's southeastern coast. Just a short drive from Valletta, the island's capital, it remains one of the country's main fishing hubs, where daily life follows the steady pace of the sea. Home to roughly 4,000 residents, the village is also widely known for its lively waterfront, especially its popular Sunday fish market, and for the steady return of boats carrying fresh catches each morning.
-> 
-> The luzzus are adapted to local waters and remain in active use today. Painted in bright shades of blue, yellow, red, and green, they line the harbor in tight clusters. Each bears a pair of painted eyes on the bow—a symbol rooted in ancient Mediterranean traditions, believed to protect sailors at sea. Together, they create a scene that is as practical as visually striking.
-> 
-> 
-
-</details>
-
-| ![Colorful boats in Marsaxlokk Harbor, Malta](https://cn.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Colorful boats in Marsaxlokk Harbor, Malta](https://cn.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_1080x1920.jpg) |
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_1080x1920.jpg) |/th?id=OHR.NavajoNation_EN-US6947714656_1080x1920.jpg) |bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_1080x1920.jpg) |0x1920.jpg) |bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
