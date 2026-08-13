@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260812
+
+> A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On August 12, World Elephant Day invites us to pause and consider not just the size of these animals, but the depth of their lives. In places like Amboseli National Park in Kenya—captured in this image—a herd doesn't simply pass through the landscape; it remembers it. Matriarchs guide their families between water sources, tracing routes shaped as much by memory as by terrain.
+> 
+> Elephants are often described as intelligent, but that word barely does them justice. Their trunks alone contain tens of thousands of muscles, capable of gentle touch or immense strength, while their social bonds rival those of many primates.
+> 
+> Yet this ancient rhythm is under pressure. Since its launch in 2012, World Elephant Day has highlighted how poaching, habitat loss, and conflict with humans are reshaping elephant lives across Africa and Asia. Scenes like this—families moving together under vast skies—are not guaranteed. They endure only if we protect the landscapes and connections that elephants depend on.
+
+</details>
+
+| ![World Elephant Day](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Elephant Day](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1080x1920.jpg) |
+
 ### 20260811
 
 > Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Migrating wildebeest crossing Mara River in Masai Mara, Kenya](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Migrating wildebeest crossing Mara River in Masai Mara, Kenya](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_1080x1920.jpg) |
-
-### 20260805
-
-> Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> In Fez, Morocco, the Royal Palace—known as Dar al-Makhzen—has stood as a seat of power since the 13th century, when Morocco's rulers established a fortified royal city around it. Behind its high walls lie gardens, courtyards, mosques, and royal residences spread across a vast complex still used by the king today, making it both historic and fully active.
-> 
-> Today's image captures what most visitors come to see: the palace's iconic gates at Place des Alaouites. Seven towering brass doors gleam with a golden sheen, framed by colorful geometric tiles and carved cedar wood that reflect remarkable craftsmanship. Each arch showcases Moroccan artistry, where precise patterns, symmetry, and rich materials blend into a striking visual display admired by travelers.
-> 
-> You can't step inside, but standing before these monumental doors feels like standing at the threshold of history. Royal life, ceremony, and legend remain just beyond view, hidden behind walls that have stood for centuries.
-
-</details>
-
-| ![Decorated gate of the Royal Palace of Fez, Morocco](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Decorated gate of the Royal Palace of Fez, Morocco](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_1080x1920.jpg) |0x1920.jpg) |bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_1080x1920.jpg) |US8380353742_1080x1920.jpg) |0x1920.jpg) |bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
