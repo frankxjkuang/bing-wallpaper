@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260813
+
+> Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Not every summer tradition happens on the ground. Some take place hundreds of miles overhead, one meteor at a time. The Perseids return every year from mid-July through late August, reaching their peak around August 12-13. Visible across much of the world, they often produce dozens of meteors per hour under dark skies. Picture yourself looking up. One streak appears after another. How many can you spot before you lose count? Each streak comes from debris shed by Comet Swift-Tuttle as Earth moves through its dust trail. The meteors appear to radiate from the constellation Perseus.
+> 
+> Today's image shows the shower above Teide Observatory in Tenerife, Spain. This high-altitude site sits about 7,840 feet above sea level. Its high elevation, thin air, and low levels of light pollution make it an excellent place to observe the night sky. Some Perseid meteors leave glowing trails that linger for several seconds, giving skywatchers just enough time to appreciate the spectacle. So, where will you watch the Perseids this year?
+> 
+> 
+
+</details>
+
+| ![Perseid meteor shower over Tenerife, Spain](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Perseid meteor shower over Tenerife, Spain](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_1080x1920.jpg) |
+
 ### 20260812
 
 > A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.LimeKiln_EN-US2748515593_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Lighthouse Day](https://cn.bing.com/th?id=OHR.LimeKiln_EN-US2748515593_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LimeKiln_EN-US2748515593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LimeKiln_EN-US2748515593_1080x1920.jpg) |
-
-### 20260806
-
-> Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In the Masai Mara, Kenya, the ground seems to move. A vast surge of wildebeest—hoofed grazers built for endurance—travel in tightly packed herds, drawn by fresh grass and water replenished by seasonal rains.
-> 
-> The image captures one of the migration's most dramatic moments: thousands crowd the banks of the Mara River before plunging in. For minutes, hesitation hangs in the air—then, suddenly, they leap. Horns tilt forward, bodies collide, and splashes erupt as the herd charges through swirling currents.
-> 
-> This crossing is both vital and perilous. Crocodiles lurk below, predators patrol the shoreline, and strong currents sweep away the weak. Yet the instinct to move drives them onward, part of the largest land migration on Earth, with more than a million animals following this ancient route. More than a spectacle, this journey shapes the ecosystem—trimming grasses, nourishing soil, and sustaining life across the savanna.
-
-</details>
-
-| ![Migrating wildebeest crossing Mara River in Masai Mara, Kenya](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Migrating wildebeest crossing Mara River in Masai Mara, Kenya](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_1080x1920.jpg) |US8380353742_1080x1920.jpg) |0x1920.jpg) |bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LimeKiln_EN-US2748515593_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LimeKiln_EN-US2748515593_1080x1920.jpg) |iffany_EN-US3297949501_1080x1920.jpg) |ing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1080x1920.jpg) |portrait 4K](https://cn.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
