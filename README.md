@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260815
+
+> Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico (© Westend61/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Nature has a knack for balancing the impossible. In New Mexico's Ah-Shi-Sle-Pah Wilderness, towering hoodoos perch hefty rock caps on slender stems. Wind, water, and ice have spent roughly 75 million years sculpting these remote badlands into an open-air gallery that feels more alien than terrestrial.
+> 
+> Among its most photographed formations is the aptly nicknamed 'Alien Throne,' a striking hoodoo that has become the area's unofficial celebrity. The Navajo name Ah-Shi-Sle-Pah, derived from 'áshįįh łibá,' means gray salt. Once a swampy coastal plain, the wilderness is packed with Late Cretaceous fossils, including dinosaurs, prehistoric crocodiles, turtles, and fish. In 1921, fossil hunter Charles Hazelius Sternberg discovered the first known remains of Pentaceratops fenestratus—one of North America's largest horned dinosaurs—here. Petrified wood also dots the landscape. There are no official trails or facilities, so visitors need solid navigation skills. Getting lost in the scenery is easy; losing your way is optional.
+> 
+> 
+
+</details>
+
+| ![Ah Shi Sle Pah Wilderness, New Mexico](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ah Shi Sle Pah Wilderness, New Mexico](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_1080x1920.jpg) |
+
 ### 20260814
 
 > Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_1080x1920.jpg) |
-
-### 20260808
-
-> Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> On August 8, curiosity takes center stage on International Infinity Day—a celebration inspired by the sideways figure 8, a symbol of something without end. Founded in 1987 by New York–based philosopher Jean-Pierre Ady Fenyo, the day invites everyone to explore big ideas through science, art, and imagination. It's not just about math—it's also about possibilities, from the vastness of space to the limits of human creativity.
-> 
-> That sense of boundless wonder comes to life at England's Infinity Bridge in Stockton-on-Tees. This sleek pedestrian bridge spans the River Tees using two striking steel arches, and when their curves reflect in the water, they form a glowing infinity loop. By night, LED lights ripple along the walkway, shifting colors as people cross and adding a dynamic, almost futuristic feel.
-> 
-> The bridge and International Infinity Day echo the same idea: some things have no end—just a continuous path forward, inviting you to keep exploring.
-
-</details>
-
-| ![International Infinity Day](https://cn.bing.com/th?id=OHR.StocktonInfinity_EN-US3006724421_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Infinity Day](https://cn.bing.com/th?id=OHR.StocktonInfinity_EN-US3006724421_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StocktonInfinity_EN-US3006724421_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StocktonInfinity_EN-US3006724421_1080x1920.jpg) |07800_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
