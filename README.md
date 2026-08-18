@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260816
+
+> Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> What do swans, secret hideaways, and a medieval fish tank have in common? They're all part of the story of Ross Errilly Friary. Founded around 1351, this well-preserved Franciscan friary in Ireland is often called Ross Abbey, though it never had an abbot because it was never an abbey.
+> 
+> Local legend says a bishop chose the site after following three swans carrying flax seed in their beaks. The friary flourished, eventually adding a rare second cloister to accommodate its growing community. Its medieval kitchen even featured a clever running-water stone tank that kept freshly caught fish alive until mealtime.
+> 
+> Ross Errilly also weathered centuries of religious persecution. Friars returned despite repeated closures, and the site later sheltered Catholic clergy during the Cromwellian period. Burials continued long after the monastery was abandoned, with some tombstones now forming parts of its walkways. This site proves history can leave lasting footprints—sometimes quite literally.
+
+</details>
+
+| ![Ross Errilly Friary, County Galway, Ireland](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ross Errilly Friary, County Galway, Ireland](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |
+
 ### 20260815
 
 > Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico (© Westend61/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Joshua Tree National Park, California](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Joshua Tree National Park, California](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_1080x1920.jpg) |
-
-### 20260809
-
-> Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Today, the International Day of the World's Indigenous Peoples invites a closer look at communities whose stories stretch far beyond recorded history. Proclaimed by the United Nations in 1994 and first observed in 1995, the date marks a landmark 1982 meeting focused on protecting Indigenous rights worldwide. More than 476 million Indigenous people now live across about 90 countries, sustaining thousands of cultures and the majority of the world's roughly 7,000 languages.
-> 
-> On New Caledonia's Tina Peninsula, the Jean-Marie Tjibaou Cultural Centre offers a vivid expression of that living heritage. Designed by Renzo Piano and opened in 1998, its tall, curved structures echo traditional Kanak huts while using modern materials and techniques. Winding paths link spaces for art, research, and performance, reflecting the connection between culture, land, and community.
-> 
-> The day isn't only about recognition—it's a reminder that Indigenous knowledge continues to shape how people protect ecosystems, pass down languages, and define identity in a rapidly changing world.
-
-</details>
-
-| ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Day of the World's Indigenous Peoples](https://cn.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_1080x1920.jpg) |g.com/th?id=OHR.JMTjibaou_EN-US3454380257_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
