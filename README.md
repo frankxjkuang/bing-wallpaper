@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260817
+
+> Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Location matters. Just ask the false clownfish seen in the image at Lighthouse Reef, near Cabilao Island, Philippines. In these tropical waters packed with hungry mouths and fierce competition, they've secured prime real estate: a sea anemone armed with thousands of microscopic stinging cells.
+> 
+> Despite the name, there's nothing fake about the false clownfish. The label simply distinguishes it from its cousin, the 'true' clownfish, whose markings are thicker and darker. Like all clownfish, every individual begins life as a male. If the dominant female disappears, the highest-ranking male transforms into a female and takes her place, reshuffling the social order without changing neighborhoods.
+> 
+> To most fish, an anemone is a living minefield. To clownfish, it's a fortress, nursery, and lifelong address. A specialized mucus coating lets them slip safely among the tentacles, gaining protection while repaying their host with nutrients, cleaning, and defense against intruders. Scientists call it mutualism. Around here, it looks more like the ocean's most successful roommate agreement.
+
+</details>
+
+| ![False clownfish off Cabilao Island, Bohol, Philippines](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![False clownfish off Cabilao Island, Bohol, Philippines](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |
+
 ### 20260816
 
 > Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Nyhavn Canal, Copenhagen, Denmark](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nyhavn Canal, Copenhagen, Denmark](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_1080x1920.jpg) |
-
-### 20260810
-
-> Joshua Tree National Park, California (© JJ Landscapes/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Where two great deserts meet, Joshua Tree National Park reveals a stark, mesmerizing landscape shaped by wind, time, and extremes. In Southern California, the higher Mojave Desert merges with the hotter, lower Colorado Desert, creating a unique blend of ecosystems and remarkable biodiversity.
-> 
-> Across nearly 800,000 acres, spiky Joshua trees—actually a species of yucca—rise from sandy plains, their twisting silhouettes punctuating fields of weathered granite boulders. Massive rock formations, cracked and sculpted over millions of years, attract climbers and hikers seeking routes through this rugged terrain. Life persists here in remarkable ways. Desert bighorn sheep, reptiles, and hundreds of bird species thrive in an environment defined by scarce water and intense sun. Spring may bring bursts of wildflowers, while crystal-clear nights reveal some of the darkest skies in the country—ideal for stargazing.
-> 
-> Designated as a national monument on this day in 1936, the vast landscape became a national park in 1994. It invites exploration, offering an unforgettable encounter with the raw beauty and resilience of the American desert.
-
-</details>
-
-| ![Joshua Tree National Park, California](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Joshua Tree National Park, California](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_1080x1920.jpg) |g.com/th?id=OHR.JMTjibaou_EN-US3454380257_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_1080x1920.jpg) |x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
