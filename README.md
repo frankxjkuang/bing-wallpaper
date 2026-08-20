@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260818
+
+> Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> From above, Palmanova looks less like a town and more like a carefully drawn star set into the plains of Friuli-Venezia Giulia, Italy. Founded by the Republic of Venice in 1593, this fortress city was designed for defense, order, and spectacle. Its streets radiate from a central square, while its walls are shaped into a precise nine-pointed pattern. That geometry was no accident. Palmanova became one of the most influential models of early modern military architecture. It was protected by concentric fortifications built first under Venice and later strengthened and expanded during the Napoleonic period.
+> 
+> Today, the city is part of the UNESCO World Heritage Site 'Venetian Works of Defence between the 16th and 17th Centuries.' Its aerial view reveals the concept at a glance: beauty and strategy combined in a single design. Walk through its gates and bastions, and the star becomes more than a shape—it becomes a city meant to be read from the sky.
+> 
+> 
+
+</details>
+
+| ![Aerial view of Palmanova, a fortress city in Friuli, Italy](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Palmanova, a fortress city in Friuli, Italy](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_1080x1920.jpg) |
+
 ### 20260817
 
 > Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![World Elephant Day](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Elephant Day](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1080x1920.jpg) |
-
-### 20260811
-
-> Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In Copenhagen, Nyhavn Canal is a burst of color and history. In Denmark's capital, bright, gabled houses lean toward the water, their reflections rippling beside old wooden ships.
-> 
-> Carved out in the 1670s under King Christian V, this 17th-century canal once served as a busy gateway where cargo vessels unloaded goods straight into the city's heart. Sailors crowded its taverns, and the harbor gained a rough reputation long before it became the postcard-perfect place seen today. Now, those same traditional buildings house lively cafés and restaurants, filling the quay with chatter, music, and the scent of Danish classics. Canal boats glide past, offering a front-row view of the city, while historic ships remain moored as reminders of its seafaring past.
-> 
-> Hans Christian Andersen once called Nyhavn home, writing stories inspired by this ever-changing waterfront. Though it's only about 1,500 feet long, the canal feels expansive—an energetic stretch where history, color, and harbor life come together in a scene that invites you to linger.
-
-</details>
-
-| ![Nyhavn Canal, Copenhagen, Denmark](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nyhavn Canal, Copenhagen, Denmark](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_1080x1920.jpg) |x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1080x1920.jpg) |lCop_EN-US3993977654_1080x1920.jpg) |x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
