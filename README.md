@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260819
+
+> NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)
+
+<details>
+<summary>Description</summary>
+
+> National Aviation Day, observed on August 19, celebrates the history of flight and the people who helped shape it. The day honors Orville Wright, whose pioneering work with his brother Wilbur helped launch the age of powered aviation.
+> 
+> Established by President Franklin D. Roosevelt in 1939, the observance recognizes aviation's impact on transportation, science, defense, and exploration. From the first powered flights to modern aircraft and spacecraft, aviation continues to connect people, expand knowledge, and inspire innovation.
+> 
+> Today's image captures aviation research in action. In 1938, engineers at what is now NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo fighter prototype in the Full-Scale Tunnel in Hampton, Virginia. There, researchers studied airflow around the aircraft and tested ways to reduce drag, the force that slows objects moving through the air. Experiments like these helped improve aircraft performance and advance the science of aerodynamics long before the space age began.
+
+</details>
+
+| ![National Aviation Day](https://cn.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Aviation Day](https://cn.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_1080x1920.jpg) |
+
 ### 20260818
 
 > Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Perseid meteor shower over Tenerife, Spain](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Perseid meteor shower over Tenerife, Spain](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_1080x1920.jpg) |
-
-### 20260812
-
-> A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On August 12, World Elephant Day invites us to pause and consider not just the size of these animals, but the depth of their lives. In places like Amboseli National Park in Kenya—captured in this image—a herd doesn't simply pass through the landscape; it remembers it. Matriarchs guide their families between water sources, tracing routes shaped as much by memory as by terrain.
-> 
-> Elephants are often described as intelligent, but that word barely does them justice. Their trunks alone contain tens of thousands of muscles, capable of gentle touch or immense strength, while their social bonds rival those of many primates.
-> 
-> Yet this ancient rhythm is under pressure. Since its launch in 2012, World Elephant Day has highlighted how poaching, habitat loss, and conflict with humans are reshaping elephant lives across Africa and Asia. Scenes like this—families moving together under vast skies—are not guaranteed. They endure only if we protect the landscapes and connections that elephants depend on.
-
-</details>
-
-| ![World Elephant Day](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Elephant Day](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1080x1920.jpg) |lCop_EN-US3993977654_1080x1920.jpg) |x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_1080x1920.jpg) |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
