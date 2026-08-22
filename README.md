@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260820
+
+> An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> An orca breaks the surface of Lynn Canal against the backdrop of the snow-capped Chilkat Mountains in Southeast Alaska. Also known as the killer whale, the orca is the largest member of the dolphin family and one of the ocean's most recognizable predators. The cold, nutrient-rich waters of Alaska's Inside Passage provide abundant feeding grounds, sustaining salmon runs and a rich variety of marine life that supports these remarkable animals.
+> 
+> Scientists recognize several distinct orca populations, each with its own diet, hunting strategies, and social traditions. Some specialize in catching fish, while others prey on seals, sea lions, and other marine mammals. Living in tightly bonded family groups led by experienced older females, orcas communicate through distinctive calls unique to each pod—vocal traditions passed down through generations. Lynn Canal and its surrounding waterways offer a vital habitat for these highly intelligent marine mammals and a dramatic setting for observing them in the wild.
+> 
+> 
+
+</details>
+
+| ![An orca near the Chilkat Mountains, Lynn Canal, Alaska](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![An orca near the Chilkat Mountains, Lynn Canal, Alaska](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1080x1920.jpg) |
+
 ### 20260819
 
 > NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)
@@ -112,26 +131,7 @@
 
 | ![Wildlife crossing near Zakrzów, Poland](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wildlife crossing near Zakrzów, Poland](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) |
-
-### 20260813
-
-> Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Not every summer tradition happens on the ground. Some take place hundreds of miles overhead, one meteor at a time. The Perseids return every year from mid-July through late August, reaching their peak around August 12-13. Visible across much of the world, they often produce dozens of meteors per hour under dark skies. Picture yourself looking up. One streak appears after another. How many can you spot before you lose count? Each streak comes from debris shed by Comet Swift-Tuttle as Earth moves through its dust trail. The meteors appear to radiate from the constellation Perseus.
-> 
-> Today's image shows the shower above Teide Observatory in Tenerife, Spain. This high-altitude site sits about 7,840 feet above sea level. Its high elevation, thin air, and low levels of light pollution make it an excellent place to observe the night sky. Some Perseid meteors leave glowing trails that linger for several seconds, giving skywatchers just enough time to appreciate the spectacle. So, where will you watch the Perseids this year?
-> 
-> 
-
-</details>
-
-| ![Perseid meteor shower over Tenerife, Spain](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Perseid meteor shower over Tenerife, Spain](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_1080x1920.jpg) |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
