@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260821
+
+> Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Some mountain roads become destinations in their own right, and Julier Pass is one of them. This Swiss mountain pass rises to 7,493 feet and has linked Alpine valleys along a route used for nearly 2,000 years. Its story began long before modern traffic. No guardrails, no pavement—just a route used by Roman travelers, merchants, and messengers. Archaeological finds near the summit, including countless coins and two Roman soapstone columns, suggest there was once a sanctuary or stopping place for those tackling the climb.
+> 
+> The road seen in today's image was built between 1820 and 1828. From 1935 to 1940, the pass became the first Swiss alpine road to be paved with asphalt. Today, roughly 3,000 vehicles cross Julier Pass every day. In winter, drivers may need snow chains when conditions are severe. Every switchback comes with another spectacular view, making the drive as memorable as the destination. If you had the keys, would you take the scenic route?
+> 
+> 
+
+</details>
+
+| ![Winding road of Julier Pass, Switzerland](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winding road of Julier Pass, Switzerland](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_1080x1920.jpg) |
+
 ### 20260820
 
 > An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Ah Shi Sle Pah Wilderness, New Mexico](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ah Shi Sle Pah Wilderness, New Mexico](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_1080x1920.jpg) |
-
-### 20260814
-
-> Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Roads solved one problem but quietly created another. People could travel faster than ever, while wildlife now faced highways cutting across routes they had followed for generations. The result was more collisions, fragmented habitats, and isolated wildlife populations. That challenge led to building wildlife crossings called ecoducts: bridges or tunnels designed to reconnect habitats and give animals a safe way across busy roads. Some of the earliest modern examples appeared in France during the 1950s, and the idea soon spread across Europe. Countries such as the Netherlands helped refine ecoduct design by building wide green bridges covered in soil and native vegetation, from grasses and shrubs to trees.
-> 
-> Today, countries around the world use these crossings. In the United States, overpasses and underpasses help species such as elk, pronghorn, black bears, and Florida panthers cross busy highways safely. Sometimes the smartest bridge is the one you barely notice—because wildlife sees it as part of the forest, not the highway.
-> 
-> 
-
-</details>
-
-| ![Wildlife crossing near Zakrzów, Poland](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wildlife crossing near Zakrzów, Poland](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
