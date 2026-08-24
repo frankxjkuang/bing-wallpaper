@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260822
+
+> Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> That quick glimpse of blue fluttering through a field has a story that begins much earlier, with a tiny caterpillar and a surprising survival trick. The common blue is found across Europe, North Africa, and parts of Asia, feeding on flower nectar as an adult. It starts life as a small egg, often placed by a female on a host plant such as bird's-foot trefoil. The real surprise comes during its caterpillar stage, when ants play an unexpected role in its survival. After hatching, the caterpillar feeds on leaves before entering the next stage of its transformation. Along the way, it produces a sugary substance called honeydew that ants feed on. As a way of saying thanks, the ants may protect the cocooned caterpillar from predators.
+> 
+> When the adult butterfly emerges, males reveal the blue wings that gave the species its name. Microscopic wing structures create the color by reflecting light. Females usually have brown wings with orange spots along their edges. The common blue butterfly's journey shows that nature's smallest creatures have surprisingly complex lives.
+> 
+> 
+
+</details>
+
+| ![Common blue butterfly](https://cn.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Common blue butterfly](https://cn.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_1080x1920.jpg) |
+
 ### 20260821
 
 > Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Ross Errilly Friary, County Galway, Ireland](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ross Errilly Friary, County Galway, Ireland](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |
-
-### 20260815
-
-> Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico (© Westend61/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Nature has a knack for balancing the impossible. In New Mexico's Ah-Shi-Sle-Pah Wilderness, towering hoodoos perch hefty rock caps on slender stems. Wind, water, and ice have spent roughly 75 million years sculpting these remote badlands into an open-air gallery that feels more alien than terrestrial.
-> 
-> Among its most photographed formations is the aptly nicknamed 'Alien Throne,' a striking hoodoo that has become the area's unofficial celebrity. The Navajo name Ah-Shi-Sle-Pah, derived from 'áshįįh łibá,' means gray salt. Once a swampy coastal plain, the wilderness is packed with Late Cretaceous fossils, including dinosaurs, prehistoric crocodiles, turtles, and fish. In 1921, fossil hunter Charles Hazelius Sternberg discovered the first known remains of Pentaceratops fenestratus—one of North America's largest horned dinosaurs—here. Petrified wood also dots the landscape. There are no official trails or facilities, so visitors need solid navigation skills. Getting lost in the scenery is easy; losing your way is optional.
-> 
-> 
-
-</details>
-
-| ![Ah Shi Sle Pah Wilderness, New Mexico](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ah Shi Sle Pah Wilderness, New Mexico](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
