@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260823
+
+> Brown bear fishing in river, Katmai National Park, Alaska (© Pal Hermansen/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> At Katmai National Park, crowd-pleasers don't need a stage. Brown bears wait by the river, and when the salmon jump, the show begins. National Park Week—held in August this year—is the perfect time to celebrate these iconic bears and the wild home that helps them thrive.
+> 
+> Katmai National Park in Alaska is home to around 2,200 brown bears, one of the highest concentrations in the world. During the sockeye salmon run, as many as 40 bears can gather along the Brooks River to fish. Some catch salmon midair at Brooks Falls, while others dive beneath the surface in search of a meal. With so much food available, these usually solitary animals often fish side by side.
+> 
+> Many adult bears weigh 700 to 900 pounds by late summer, and the largest males may exceed 1,200 pounds before hibernation. Yet even these giants begin life as a 1-pound cub. It's no wonder the park's annual Fat Bear Week has become a favorite—these animals are simply un-bear-lievable.
+
+</details>
+
+| ![National Park Week](https://cn.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Park Week](https://cn.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_1080x1920.jpg) |
+
 ### 20260822
 
 > Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![False clownfish off Cabilao Island, Bohol, Philippines](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![False clownfish off Cabilao Island, Bohol, Philippines](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |
-
-### 20260816
-
-> Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> What do swans, secret hideaways, and a medieval fish tank have in common? They're all part of the story of Ross Errilly Friary. Founded around 1351, this well-preserved Franciscan friary in Ireland is often called Ross Abbey, though it never had an abbot because it was never an abbey.
-> 
-> Local legend says a bishop chose the site after following three swans carrying flax seed in their beaks. The friary flourished, eventually adding a rare second cloister to accommodate its growing community. Its medieval kitchen even featured a clever running-water stone tank that kept freshly caught fish alive until mealtime.
-> 
-> Ross Errilly also weathered centuries of religious persecution. Friars returned despite repeated closures, and the site later sheltered Catholic clergy during the Cromwellian period. Burials continued long after the monastery was abandoned, with some tombstones now forming parts of its walkways. This site proves history can leave lasting footprints—sometimes quite literally.
-
-</details>
-
-| ![Ross Errilly Friary, County Galway, Ireland](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ross Errilly Friary, County Galway, Ireland](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
