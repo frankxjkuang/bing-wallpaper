@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260824
+
+> Brooklyn Bridge, New York City (© shayes17/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The Brooklyn Bridge doesn't just connect Manhattan and Brooklyn—it bridges history, engineering, and a few surprising stories too. Opened in 1883 after 14 years of construction, it became the world's first steel-wire suspension bridge, forever changing the way New Yorkers crossed the East River.
+> 
+> The project was a true family affair. After designer John A. Roebling died and his son Washington became too ill to oversee construction, Washington's wife, Emily, learned engineering and higher mathematics to supervise the project's completion.
+> 
+> Not everyone trusted the new structure. In 1884, showman P.T. Barnum marched 21 elephants and 17 camels across the bridge to prove it was strong enough. Hidden vaults inside the bridge later stored wine and champagne before serving as Cold War fallout shelters, where forgotten emergency supplies were rediscovered in 2006. Today, peregrine falcons nest atop its stone towers, proving this iconic landmark still has plenty of high-flying residents. Some bridges simply never go out of style.
+
+</details>
+
+| ![Brooklyn Bridge, New York City](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Brooklyn Bridge, New York City](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_1080x1920.jpg) |
+
 ### 20260823
 
 > Brown bear fishing in river, Katmai National Park, Alaska (© Pal Hermansen/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Aerial view of Palmanova, a fortress city in Friuli, Italy](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Palmanova, a fortress city in Friuli, Italy](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_1080x1920.jpg) |
-
-### 20260817
-
-> Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Location matters. Just ask the false clownfish seen in the image at Lighthouse Reef, near Cabilao Island, Philippines. In these tropical waters packed with hungry mouths and fierce competition, they've secured prime real estate: a sea anemone armed with thousands of microscopic stinging cells.
-> 
-> Despite the name, there's nothing fake about the false clownfish. The label simply distinguishes it from its cousin, the 'true' clownfish, whose markings are thicker and darker. Like all clownfish, every individual begins life as a male. If the dominant female disappears, the highest-ranking male transforms into a female and takes her place, reshuffling the social order without changing neighborhoods.
-> 
-> To most fish, an anemone is a living minefield. To clownfish, it's a fortress, nursery, and lifelong address. A specialized mucus coating lets them slip safely among the tentacles, gaining protection while repaying their host with nutrients, cleaning, and defense against intruders. Scientists call it mutualism. Around here, it looks more like the ocean's most successful roommate agreement.
-
-</details>
-
-| ![False clownfish off Cabilao Island, Bohol, Philippines](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![False clownfish off Cabilao Island, Bohol, Philippines](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
