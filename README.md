@@ -1,5 +1,43 @@
 ## bing wallpaper
 
+### 20260826
+
+> Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> As darker nights return to Iceland, visitors will soon look to the skies for a chance to see the aurora borealis. Better known as the northern lights, this luminous phenomenon occurs when particles from the sun interact with gases high in Earth's atmosphere, creating shimmering ribbons of green, pink, purple, and sometimes red light. Iceland's northern location and increasingly dark autumn and winter nights make it one of the world's premier destinations for aurora viewing.
+> 
+> Beneath this ever-changing display stands Kirkjufell, one of the country's most photographed mountains. Its name means 'Church Mountain' in Icelandic, inspired by its church-like shape. Rising above the Snæfellsnes Peninsula, its striking silhouette and the nearby Kirkjufellsfoss waterfall have made the area a favorite of photographers and aurora seekers alike. On clear nights, the mountain, waterfall, and sky align in a scene that seems almost unreal—a remarkable combination that has become one of Iceland's most iconic views.
+> 
+> 
+
+</details>
+
+| ![Auroras over Kirkjufell, Iceland](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Auroras over Kirkjufell, Iceland](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_1080x1920.jpg) |
+
+### 20260825
+
+> Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> For 110 years, America's greatest outdoor classroom has been open for exploration. On August 25, the National Park Service marks over a century of protecting the nation's natural and cultural treasures. Established in 1916 when President Woodrow Wilson signed the Organic Act into law, the agency now cares for hundreds of parks, monuments, seashores, and historic sites across the country. Ranger-led programs, family activities, and educational events invite visitors to connect with the landscapes and stories that define the national park system.
+> 
+> Today's image shows Redwood National and State Parks in northern California, where sunlight illuminates a trail winding among some of the tallest trees on Earth. Towering coast redwoods rise above a lush understory of ferns and mosses, creating a forest that feels both ancient and alive. Part of an ecosystem supporting diverse wildlife and centuries-old trees, these groves showcase the natural wonders the National Park Service has helped protect for generations, offering visitors the chance to walk beneath living giants and experience a landscape unlike any other.
+> 
+> 
+
+</details>
+
+| ![Anniversary of National Park Service](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of National Park Service](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1080x1920.jpg) |
+
 ### 20260824
 
 > Brooklyn Bridge, New York City (© shayes17/Getty Images)
@@ -93,45 +131,7 @@
 
 | ![An orca near the Chilkat Mountains, Lynn Canal, Alaska](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![An orca near the Chilkat Mountains, Lynn Canal, Alaska](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1080x1920.jpg) |
-
-### 20260819
-
-> NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)
-
-<details>
-<summary>Description</summary>
-
-> National Aviation Day, observed on August 19, celebrates the history of flight and the people who helped shape it. The day honors Orville Wright, whose pioneering work with his brother Wilbur helped launch the age of powered aviation.
-> 
-> Established by President Franklin D. Roosevelt in 1939, the observance recognizes aviation's impact on transportation, science, defense, and exploration. From the first powered flights to modern aircraft and spacecraft, aviation continues to connect people, expand knowledge, and inspire innovation.
-> 
-> Today's image captures aviation research in action. In 1938, engineers at what is now NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo fighter prototype in the Full-Scale Tunnel in Hampton, Virginia. There, researchers studied airflow around the aircraft and tested ways to reduce drag, the force that slows objects moving through the air. Experiments like these helped improve aircraft performance and advance the science of aerodynamics long before the space age began.
-
-</details>
-
-| ![National Aviation Day](https://cn.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Aviation Day](https://cn.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_1080x1920.jpg) |
-
-### 20260818
-
-> Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> From above, Palmanova looks less like a town and more like a carefully drawn star set into the plains of Friuli-Venezia Giulia, Italy. Founded by the Republic of Venice in 1593, this fortress city was designed for defense, order, and spectacle. Its streets radiate from a central square, while its walls are shaped into a precise nine-pointed pattern. That geometry was no accident. Palmanova became one of the most influential models of early modern military architecture. It was protected by concentric fortifications built first under Venice and later strengthened and expanded during the Napoleonic period.
-> 
-> Today, the city is part of the UNESCO World Heritage Site 'Venetian Works of Defence between the 16th and 17th Centuries.' Its aerial view reveals the concept at a glance: beauty and strategy combined in a single design. Walk through its gates and bastions, and the star becomes more than a shape—it becomes a city meant to be read from the sky.
-> 
-> 
-
-</details>
-
-| ![Aerial view of Palmanova, a fortress city in Friuli, Italy](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Palmanova, a fortress city in Friuli, Italy](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_1080x1920.jpg) |ndscape 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1080x1920.jpg) |302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
