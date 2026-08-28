@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260827
+
+> Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Imagine a world without the natural wonders that hold about 90% of Earth's surface freshwater. Lakes are among our planet's most valuable resources. They provide clean water, support wildlife, help regulate climate, and sustain communities around the globe. In recognition of their vital role, the United Nations designated August 27 as World Lake Day, first observed in 2025. The need for action is greater than ever. More than 117 million lakes cover nearly 4% of Earth's land surface, yet many face growing pressure from pollution, overuse, and climate change.
+> 
+> Pictured here is Lake Magadi, a shallow alkaline lake in Kenya's Great Rift Valley. Its mineral-rich waters support abundant algae, attracting vast flocks of lesser flamingos that gather there to feed. The birds' pink hues often transform the shoreline into a dazzling spectacle. On World Lake Day, scenes like this remind us that healthy lakes nurture extraordinary wildlife and help sustain life far beyond their shores.
+> 
+> 
+
+</details>
+
+| ![World Lake Day](https://cn.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lake Day](https://cn.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_1080x1920.jpg) |
+
 ### 20260826
 
 > Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Winding road of Julier Pass, Switzerland](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winding road of Julier Pass, Switzerland](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_1080x1920.jpg) |
-
-### 20260820
-
-> An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> An orca breaks the surface of Lynn Canal against the backdrop of the snow-capped Chilkat Mountains in Southeast Alaska. Also known as the killer whale, the orca is the largest member of the dolphin family and one of the ocean's most recognizable predators. The cold, nutrient-rich waters of Alaska's Inside Passage provide abundant feeding grounds, sustaining salmon runs and a rich variety of marine life that supports these remarkable animals.
-> 
-> Scientists recognize several distinct orca populations, each with its own diet, hunting strategies, and social traditions. Some specialize in catching fish, while others prey on seals, sea lions, and other marine mammals. Living in tightly bonded family groups led by experienced older females, orcas communicate through distinctive calls unique to each pod—vocal traditions passed down through generations. Lynn Canal and its surrounding waterways offer a vital habitat for these highly intelligent marine mammals and a dramatic setting for observing them in the wild.
-> 
-> 
-
-</details>
-
-| ![An orca near the Chilkat Mountains, Lynn Canal, Alaska](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![An orca near the Chilkat Mountains, Lynn Canal, Alaska](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1080x1920.jpg) |302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_1080x1920.jpg) |7229184_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1080x1920.jpg) |302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
