@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260828
+
+> Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> At sunset, Mont-Saint Michel rises from the waters of Normandy, France, like a fortress shaped by the sea. Perched on a rocky tidal island, the abbey and village stand at the center of one of Europe's most dramatic coastal settings. Twice a day, the sea retreats to reveal vast stretches of sand before surging back to reclaim the landscape. At high tide, the mount becomes an island once again. For centuries, travelers timed their journeys to this rhythm, crossing the flats when conditions allowed and watching the sea return hours later.
+> 
+> A legend traces the site's origins to the year 708, when the Archangel Michael appeared to a bishop and instructed him to build a sanctuary here. Over time, the site grew into one of Europe's most important pilgrimage destinations. Today, Mont-Saint Michel and its surrounding bay are recognized as a UNESCO World Heritage Site, where centuries of history and the movement of the tides continue to shape every visit.
+> 
+> 
+
+</details>
+
+| ![Mont-Saint Michel during high tide, Normandy, France](https://cn.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mont-Saint Michel during high tide, Normandy, France](https://cn.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_1080x1920.jpg) |
+
 ### 20260827
 
 > Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Common blue butterfly](https://cn.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Common blue butterfly](https://cn.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_1080x1920.jpg) |
-
-### 20260821
-
-> Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Some mountain roads become destinations in their own right, and Julier Pass is one of them. This Swiss mountain pass rises to 7,493 feet and has linked Alpine valleys along a route used for nearly 2,000 years. Its story began long before modern traffic. No guardrails, no pavement—just a route used by Roman travelers, merchants, and messengers. Archaeological finds near the summit, including countless coins and two Roman soapstone columns, suggest there was once a sanctuary or stopping place for those tackling the climb.
-> 
-> The road seen in today's image was built between 1820 and 1828. From 1935 to 1940, the pass became the first Swiss alpine road to be paved with asphalt. Today, roughly 3,000 vehicles cross Julier Pass every day. In winter, drivers may need snow chains when conditions are severe. Every switchback comes with another spectacular view, making the drive as memorable as the destination. If you had the keys, would you take the scenic route?
-> 
-> 
-
-</details>
-
-| ![Winding road of Julier Pass, Switzerland](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winding road of Julier Pass, Switzerland](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_1080x1920.jpg) |7229184_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1080x1920.jpg) |302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_1080x1920.jpg) |n.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1080x1920.jpg) |302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
