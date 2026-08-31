@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260830
+
+> Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Today, International Whale Shark Day makes room for the world's largest fish. Despite their name, whale sharks are not whales but fish, reaching lengths of up to 60 feet and weighing around 20 tons. Found in warm tropical seas, they glide through the water with their mouths open, filtering plankton, fish eggs, and other tiny prey. This species' distinctive white-spot patterns are unique to each individual, much like human fingerprints.
+> 
+> The image captures one of these giants in Cenderawasih Bay, West Papua, Indonesia, accompanied by a school of golden trevally. These bright fish often swim alongside whale sharks, taking advantage of food scraps and the protection offered by their enormous companion.
+> 
+> International Whale Shark Day highlights the challenges this endangered species faces, including bycatch, vessel strikes, habitat degradation, and climate change. By raising awareness, the day encourages efforts to safeguard these peaceful ambassadors of the sea for generations to come.
+
+</details>
+
+| ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.YellowShark_EN-US3678567058_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.YellowShark_EN-US3678567058_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowShark_EN-US3678567058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowShark_EN-US3678567058_1080x1920.jpg) |
+
 ### 20260829
 
 > Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Brooklyn Bridge, New York City](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Brooklyn Bridge, New York City](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_1080x1920.jpg) |
-
-### 20260823
-
-> Brown bear fishing in river, Katmai National Park, Alaska (© Pal Hermansen/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> At Katmai National Park, crowd-pleasers don't need a stage. Brown bears wait by the river, and when the salmon jump, the show begins. National Park Week—held in August this year—is the perfect time to celebrate these iconic bears and the wild home that helps them thrive.
-> 
-> Katmai National Park in Alaska is home to around 2,200 brown bears, one of the highest concentrations in the world. During the sockeye salmon run, as many as 40 bears can gather along the Brooks River to fish. Some catch salmon midair at Brooks Falls, while others dive beneath the surface in search of a meal. With so much food available, these usually solitary animals often fish side by side.
-> 
-> Many adult bears weigh 700 to 900 pounds by late summer, and the largest males may exceed 1,200 pounds before hibernation. Yet even these giants begin life as a 1-pound cub. It's no wonder the park's annual Fat Bear Week has become a favorite—these animals are simply un-bear-lievable.
-
-</details>
-
-| ![National Park Week](https://cn.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Park Week](https://cn.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_1080x1920.jpg) |m/th?id=OHR.CommonBlue_EN-US2760688799_1080x1920.jpg) |n.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1080x1920.jpg) |302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_1080x1920.jpg) |.LynnCanalOrca_EN-US0537229184_1080x1920.jpg) |302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
