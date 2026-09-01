@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260831
+
+> Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Stand in Registan Square and it's easy to see why it is considered the architectural heart of Samarkand—one of Central Asia's oldest cities. This plaza in Uzbekistan is framed by three magnificent madrasas—Islamic centers of learning—whose soaring portals draw the eye upward. Yet some of the square's greatest treasures reveal themselves only when you look closer.
+> 
+> The detail in today's image offers a glimpse of the artistry that covers nearly every surface. Glazed tiles, geometric motifs, floral designs, and elegant calligraphy come together with remarkable precision, turning brick and plaster into a dazzling display of color and pattern. Shades of turquoise, cobalt, gold, and white shift with the changing light, giving the architecture a sense of movement throughout the day.
+> 
+> Built as centers of learning and religious scholarship, the madrasas surrounded a lively public square that was once a focal point of life along the Silk Road. Today, Registan remains just as captivating, inviting visitors to admire both its monumental scale and its extraordinary craftsmanship.
+
+</details>
+
+| ![Building detail of Registan Square, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Building detail of Registan Square, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |
+
 ### 20260830
 
 > Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Anniversary of National Park Service](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of National Park Service](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1080x1920.jpg) |
-
-### 20260824
-
-> Brooklyn Bridge, New York City (© shayes17/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The Brooklyn Bridge doesn't just connect Manhattan and Brooklyn—it bridges history, engineering, and a few surprising stories too. Opened in 1883 after 14 years of construction, it became the world's first steel-wire suspension bridge, forever changing the way New Yorkers crossed the East River.
-> 
-> The project was a true family affair. After designer John A. Roebling died and his son Washington became too ill to oversee construction, Washington's wife, Emily, learned engineering and higher mathematics to supervise the project's completion.
-> 
-> Not everyone trusted the new structure. In 1884, showman P.T. Barnum marched 21 elephants and 17 camels across the bridge to prove it was strong enough. Hidden vaults inside the bridge later stored wine and champagne before serving as Cold War fallout shelters, where forgotten emergency supplies were rediscovered in 2006. Today, peregrine falcons nest atop its stone towers, proving this iconic landmark still has plenty of high-flying residents. Some bridges simply never go out of style.
-
-</details>
-
-| ![Brooklyn Bridge, New York City](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Brooklyn Bridge, New York City](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_1080x1920.jpg) |.LynnCanalOrca_EN-US0537229184_1080x1920.jpg) |302440247_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1080x1920.jpg) |ortrait 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
