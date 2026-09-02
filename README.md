@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260901
+
+> Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> September's National Mushroom Month celebrates a world that often goes unnoticed. Beneath forest floors, lawns, and fallen leaves, fungal networks recycle nutrients, helping ecosystems thrive. The mushrooms we notice are only the fruiting bodies of these hidden organisms, emerging briefly to release spores before fading back from view. They are not plants; fungi form a kingdom of their own and play an essential role in nature's cycles.
+> 
+> Today's image captures horsehair parachute fungi, a species that rewards a closer look. Growing on fallen pine needles and woodland debris, these tiny mushrooms balance delicate caps on dark, wiry stems so fine they resemble strands of horsehair. Easy to miss at first glance, they reveal the surprising diversity hidden on the forest floor.
+> 
+> Look closely and National Mushroom Month becomes a reminder that some of nature's most important work happens out of sight. From sustaining woodland ecosystems to enriching our plates, fungi prove that even the smallest structures can have an outsized impact.
+
+</details>
+
+| ![National Mushroom Month](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Mushroom Month](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |
+
 ### 20260831
 
 > Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Auroras over Kirkjufell, Iceland](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Auroras over Kirkjufell, Iceland](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_1080x1920.jpg) |
-
-### 20260825
-
-> Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> For 110 years, America's greatest outdoor classroom has been open for exploration. On August 25, the National Park Service marks over a century of protecting the nation's natural and cultural treasures. Established in 1916 when President Woodrow Wilson signed the Organic Act into law, the agency now cares for hundreds of parks, monuments, seashores, and historic sites across the country. Ranger-led programs, family activities, and educational events invite visitors to connect with the landscapes and stories that define the national park system.
-> 
-> Today's image shows Redwood National and State Parks in northern California, where sunlight illuminates a trail winding among some of the tallest trees on Earth. Towering coast redwoods rise above a lush understory of ferns and mosses, creating a forest that feels both ancient and alive. Part of an ecosystem supporting diverse wildlife and centuries-old trees, these groves showcase the natural wonders the National Park Service has helped protect for generations, offering visitors the chance to walk beneath living giants and experience a landscape unlike any other.
-> 
-> 
-
-</details>
-
-| ![Anniversary of National Park Service](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Anniversary of National Park Service](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_1080x1920.jpg) |13_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
