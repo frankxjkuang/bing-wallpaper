@@ -1,135 +1,137 @@
 ## bing wallpaper
 
-### 20260901
+### 20260902
 
-> Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)
+> 传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰 (© stevendocwra/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> September's National Mushroom Month celebrates a world that often goes unnoticed. Beneath forest floors, lawns, and fallen leaves, fungal networks recycle nutrients, helping ecosystems thrive. The mushrooms we notice are only the fruiting bodies of these hidden organisms, emerging briefly to release spores before fading back from view. They are not plants; fungi form a kingdom of their own and play an essential role in nature's cycles.
+> 在英格兰东海岸，萨福克遗产海岸融合了风吹不息的石南荒原、湿地、砾石海滩和开阔的北海景观。索思沃尔德是这里最著名的城镇之一，水域与历史在此密不可分。小镇几乎被大海、布莱斯河和周围的湿地环绕，坐落在一片狭长的半岛上；数百年来的渔业、贸易和临水生活共同塑造了这里。
 > 
-> Today's image captures horsehair parachute fungi, a species that rewards a closer look. Growing on fallen pine needles and woodland debris, these tiny mushrooms balance delicate caps on dark, wiry stems so fine they resemble strands of horsehair. Easy to miss at first glance, they reveal the surprising diversity hidden on the forest floor.
+> 色彩缤纷的木制海滩小屋是索思沃尔德最具辨识度的地标之一。它们最初是作为简易的沐浴和捕鱼棚屋而建，如今已有数百座沿海岸排列，在沙滩与天空之间增添了一道道鲜亮的色彩。有些小屋仍是备受珍爱的家庭财产，代代相传。
 > 
-> Look closely and National Mushroom Month becomes a reminder that some of nature's most important work happens out of sight. From sustaining woodland ecosystems to enriching our plates, fungi prove that even the smallest structures can have an outsized impact.
+> 除了这些小屋，游客还会看到一座仍在运行的灯塔、一座伸入北海的栈桥，并可轻松前往沿海步道，欣赏英格兰一些最负盛名的风景。这是一片值得漫步探索的海岸——每一个转弯处似乎都会展开另一段关于大海的故事。
 
 </details>
 
-| ![National Mushroom Month](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Mushroom Month](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![海滩小屋，萨福克遗产海岸，英格兰](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![海滩小屋，萨福克遗产海岸，英格兰](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1080x1920.jpg) |
+
+### 20260901
+
+> 马鬃小皮伞，白俄罗斯 (© Máté/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> 九月的全国蘑菇月旨在赞颂一个常常不为人注意的世界。在森林地表、草坪和落叶下方，真菌网络循环利用养分，帮助生态系统蓬勃发展。我们看到的蘑菇只是这些隐秘生物的子实体，它们短暂现身释放孢子，随后又从视野中消失。它们并非植物；真菌自成一界，并在大自然的循环中发挥着至关重要的作用。
+> 
+> 今日图片展现的是马鬃小皮伞，这种真菌值得走近细看。这些微小的蘑菇生长在掉落的松针和林地碎屑上，纤巧的菌盖由深色、坚韧如丝的菌柄托起；菌柄纤细得如同一缕缕马毛。乍看之下，它们很容易被忽略，却揭示了隐藏在森林地表的惊人多样性。
+> 
+> 仔细观察，你便会发现，全国蘑菇月提醒着我们：大自然中一些最重要的工作发生在视线之外。从维系林地生态系统到丰富我们的餐盘，真菌证明，即使是最微小的结构也能产生巨大的影响。
+
+</details>
+
+| ![马鬃小皮伞](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![马鬃小皮伞](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_1080x1920.jpg) |
 
 ### 20260831
 
-> Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)
+> 雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦 (© Piero M. Bianchi/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Stand in Registan Square and it's easy to see why it is considered the architectural heart of Samarkand—one of Central Asia's oldest cities. This plaza in Uzbekistan is framed by three magnificent madrasas—Islamic centers of learning—whose soaring portals draw the eye upward. Yet some of the square's greatest treasures reveal themselves only when you look closer.
+> 站在雷吉斯坦广场上，你很容易明白为什么这里被视为撒马尔罕的建筑核心——撒马尔罕是中亚最古老的城市之一。这座位于乌兹别克斯坦的广场三面矗立着三座宏伟的经学院——伊斯兰学术中心——它们高耸的门廊吸引着人们仰头观望。然而，广场上一些最珍贵的瑰宝，只有在你走近细看时才会显露出来。
 > 
-> The detail in today's image offers a glimpse of the artistry that covers nearly every surface. Glazed tiles, geometric motifs, floral designs, and elegant calligraphy come together with remarkable precision, turning brick and plaster into a dazzling display of color and pattern. Shades of turquoise, cobalt, gold, and white shift with the changing light, giving the architecture a sense of movement throughout the day.
+> 今日图片中的细节让我们得以一窥几乎遍布每一处表面的精美艺术。琉璃砖、几何图案、花卉纹饰和优雅的书法以非凡的精确度融为一体，将砖石与灰泥化作绚丽夺目的色彩和图案展示。绿松石色、钴蓝色、金色和白色的色调随着光线变化而流转，使建筑在一天之中呈现出一种动态之感。
 > 
-> Built as centers of learning and religious scholarship, the madrasas surrounded a lively public square that was once a focal point of life along the Silk Road. Today, Registan remains just as captivating, inviting visitors to admire both its monumental scale and its extraordinary craftsmanship.
+> 这些经学院最初作为学习和宗教学术研究中心而建，环绕着一座热闹的公共广场；这里曾是丝绸之路沿线的生活中心。如今，雷吉斯坦依然同样引人入胜，吸引游客欣赏其宏伟的规模和非凡的工艺。
 
 </details>
 
-| ![Building detail of Registan Square, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Building detail of Registan Square, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![雷吉斯坦广场的建筑细节](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![雷吉斯坦广场的建筑细节](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_1080x1920.jpg) |
 
 ### 20260830
 
-> Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)
+> 鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚 (© Pete Oxford/Nature Picture Library)
 
 <details>
 <summary>Description</summary>
 
-> Today, International Whale Shark Day makes room for the world's largest fish. Despite their name, whale sharks are not whales but fish, reaching lengths of up to 60 feet and weighing around 20 tons. Found in warm tropical seas, they glide through the water with their mouths open, filtering plankton, fish eggs, and other tiny prey. This species' distinctive white-spot patterns are unique to each individual, much like human fingerprints.
+> 今天，国际鲸鲨日将目光投向世界上最大的鱼类。鲸鲨虽然名字中带有“鲸”，却不是鲸类，而是鱼类；体长可达60英尺，体重约20吨。它们分布在温暖的热带海域，张着嘴在水中缓缓游动，滤食浮游生物、鱼卵和其他微小猎物。每条鲸鲨身上独特的白色斑点图案都各不相同，就像人类的指纹。
 > 
-> The image captures one of these giants in Cenderawasih Bay, West Papua, Indonesia, accompanied by a school of golden trevally. These bright fish often swim alongside whale sharks, taking advantage of food scraps and the protection offered by their enormous companion.
+> 图片捕捉到印度尼西亚西巴布亚极乐鸟湾中的一条鲸鲨，身旁伴随着一群黄金鲹。这些色彩明亮的鱼常与鲸鲨同游，借机获取食物残渣，并利用这位庞大伙伴提供的保护。
 > 
-> International Whale Shark Day highlights the challenges this endangered species faces, including bycatch, vessel strikes, habitat degradation, and climate change. By raising awareness, the day encourages efforts to safeguard these peaceful ambassadors of the sea for generations to come.
+> 国际鲸鲨日旨在关注这一濒危物种面临的挑战，包括兼捕、船只撞击、栖息地退化和气候变化。通过提高公众意识，这一纪念日鼓励人们采取行动，世代守护这些温和的海洋使者。
 
 </details>
 
-| ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.YellowShark_EN-US3678567058_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Whale Shark Day](https://cn.bing.com/th?id=OHR.YellowShark_EN-US3678567058_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![国际鲸鲨日](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际鲸鲨日](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowShark_EN-US3678567058_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowShark_EN-US3678567058_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1080x1920.jpg) |
 
 ### 20260829
 
-> Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)
+> 冲浪者航拍图，圣卡塔琳娜州，巴西 (© Wonderful Nature/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> Off the coast of Santa Catarina, a state in southern Brazil, the image captures a familiar ritual: surfers waiting beyond the breaking waves, their boards rising and falling with the Atlantic. From above, almost nothing seems to happen. But that's when the real work begins.
+> 在巴西南部圣卡塔琳娜州近海，图片捕捉到一种熟悉的仪式：冲浪者在碎浪之外等待，冲浪板随着大西洋的波涛起伏。从空中看，几乎什么都没有发生，但真正的功课正是在此时开始。
 > 
-> Every wave carries energy generated by wind that may have blown hundreds or even thousands of miles away. The challenge is meeting that traveling pulse at just the right moment. Wind, tides, currents, and the shape of the seafloor determine how each swell will break, and a subtle shift can turn a perfect ride into tumbling whitewater.
+> 每一道海浪都携带着风所产生的能量，而那阵风可能来自数百甚至数千英里之外。挑战在于恰好在正确的时刻迎上这股远道而来的脉动。风、潮汐、洋流和海床形态共同决定每一道涌浪如何破碎；一个细微变化，就可能让完美的滑行变成翻滚的白浪。
 > 
-> Few coastlines showcase that variety better than Santa Catarina. With more than 200 beaches, it produces everything from gentle beginner breaks to world-class barrels. What looks like a sport is really learning a language spoken entirely in moving water. The best surfers aren't simply stronger or faster. They're the ones who know how to listen.
+> 很少有海岸线能比圣卡塔琳娜州更充分地展现这种多样性。这里拥有200多座海滩，从适合初学者的柔和浪点到世界级的管浪一应俱全。看似是一项运动，实则是在学习一种完全由流动海水诉说的语言。最优秀的冲浪者并不只是更强壮或更迅速，而是最懂得倾听的人。
 
 </details>
 
-| ![Aerial view of surfers, Santa Catarina, Brazil](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of surfers, Santa Catarina, Brazil](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![冲浪者航拍图，圣卡塔琳娜州，巴西](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![冲浪者航拍图，圣卡塔琳娜州，巴西](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_1080x1920.jpg) |
 
 ### 20260828
 
-> Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)
+> 涨潮时的圣米歇尔山，芒什省，诺曼底，法国 (© Clement LEONARD/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> At sunset, Mont-Saint Michel rises from the waters of Normandy, France, like a fortress shaped by the sea. Perched on a rocky tidal island, the abbey and village stand at the center of one of Europe's most dramatic coastal settings. Twice a day, the sea retreats to reveal vast stretches of sand before surging back to reclaim the landscape. At high tide, the mount becomes an island once again. For centuries, travelers timed their journeys to this rhythm, crossing the flats when conditions allowed and watching the sea return hours later.
+> 日落时分，圣米歇尔山从法国诺曼底的水面升起，宛如一座由海洋塑造的堡垒。修道院和村庄坐落在岩石潮汐岛上，矗立于欧洲最壮观的海岸环境之一。每天两次，海水退去，露出大片沙滩；随后潮水再次涌回，重新覆盖这片景观。涨潮时，圣米歇尔山又会变成一座岛屿。数百年来，旅行者一直根据这种潮汐节奏安排行程，在条件允许时穿越潮滩，并在数小时后观看海水归来。
 > 
-> A legend traces the site's origins to the year 708, when the Archangel Michael appeared to a bishop and instructed him to build a sanctuary here. Over time, the site grew into one of Europe's most important pilgrimage destinations. Today, Mont-Saint Michel and its surrounding bay are recognized as a UNESCO World Heritage Site, where centuries of history and the movement of the tides continue to shape every visit.
+> 传说这里的起源可追溯到708年：大天使米迦勒向一位主教显现，并指示他在此建造一座圣所。随着时间推移，这里发展为欧洲最重要的朝圣地之一。如今，圣米歇尔山及其周边海湾已被列入联合国教科文组织《世界遗产名录》；数百年的历史与潮汐运动仍在塑造每一次到访体验。
 > 
 > 
 
 </details>
 
-| ![Mont-Saint Michel during high tide, Normandy, France](https://cn.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mont-Saint Michel during high tide, Normandy, France](https://cn.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![涨潮时的圣米歇尔山，诺曼底，法国](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![涨潮时的圣米歇尔山，诺曼底，法国](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_1080x1920.jpg) |
 
 ### 20260827
 
-> Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)
+> 日出时的小红鹳群，马加迪湖，肯尼亚 (© Denis-Huot/Nature Picture Library)
 
 <details>
 <summary>Description</summary>
 
-> Imagine a world without the natural wonders that hold about 90% of Earth's surface freshwater. Lakes are among our planet's most valuable resources. They provide clean water, support wildlife, help regulate climate, and sustain communities around the globe. In recognition of their vital role, the United Nations designated August 27 as World Lake Day, first observed in 2025. The need for action is greater than ever. More than 117 million lakes cover nearly 4% of Earth's land surface, yet many face growing pressure from pollution, overuse, and climate change.
+> 想象一个没有这些自然奇观的世界——它们容纳着地球约90%的地表淡水。湖泊是地球上最宝贵的资源之一。它们提供清洁水源、支持野生动物、帮助调节气候，并维系全球各地的社区。为肯定湖泊的重要作用，联合国将8月27日定为世界湖泊日，并于2025年首次纪念。采取行动的必要性比以往任何时候都更为迫切。全球超过1.17亿个湖泊覆盖了近4%的陆地表面，但许多湖泊正面临污染、过度利用和气候变化带来的日益严峻的压力。
 > 
-> Pictured here is Lake Magadi, a shallow alkaline lake in Kenya's Great Rift Valley. Its mineral-rich waters support abundant algae, attracting vast flocks of lesser flamingos that gather there to feed. The birds' pink hues often transform the shoreline into a dazzling spectacle. On World Lake Day, scenes like this remind us that healthy lakes nurture extraordinary wildlife and help sustain life far beyond their shores.
+> 图片展示的是肯尼亚大裂谷中的马加迪湖，这是一座浅水碱性湖。富含矿物质的湖水滋养着大量藻类，吸引成群的小红鹳前来觅食。鸟群的粉红色羽毛常把湖岸化作令人惊叹的奇景。在世界湖泊日，这样的画面提醒我们：健康的湖泊不仅孕育非凡的野生动物，也维系着远超湖岸范围的生命。
 > 
 > 
 
 </details>
 
-| ![World Lake Day](https://cn.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Lake Day](https://cn.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![世界湖泊日](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![世界湖泊日](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_1080x1920.jpg) |
-
-### 20260826
-
-> Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> As darker nights return to Iceland, visitors will soon look to the skies for a chance to see the aurora borealis. Better known as the northern lights, this luminous phenomenon occurs when particles from the sun interact with gases high in Earth's atmosphere, creating shimmering ribbons of green, pink, purple, and sometimes red light. Iceland's northern location and increasingly dark autumn and winter nights make it one of the world's premier destinations for aurora viewing.
-> 
-> Beneath this ever-changing display stands Kirkjufell, one of the country's most photographed mountains. Its name means 'Church Mountain' in Icelandic, inspired by its church-like shape. Rising above the Snæfellsnes Peninsula, its striking silhouette and the nearby Kirkjufellsfoss waterfall have made the area a favorite of photographers and aurora seekers alike. On clear nights, the mountain, waterfall, and sky align in a scene that seems almost unreal—a remarkable combination that has become one of Iceland's most iconic views.
-> 
-> 
-
-</details>
-
-| ![Auroras over Kirkjufell, Iceland](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Auroras over Kirkjufell, Iceland](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1080x1920.jpg) |orasIceland_EN-US3293282785_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Auroras over Kirkjufell, Iceland](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_1080x1920.jpg) |13_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1080x1920.jpg) |it 4K](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1080x1920.jpg) |1985_1080x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
