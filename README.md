@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260904
+
+> Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Rising above the salt marshes along Germany's North Sea coast, the Westerheversand Lighthouse is instantly recognizable thanks to its distinctive red-and-white stripes. Built between 1906 and 1908, the lighthouse has stood as an icon on the Eiderstedt Peninsula for more than a century, guiding ships through the waters of the North Sea. Today, it remains one of northern Germany's best-known coastal landmarks. Visitors who climb its 157 steps are rewarded with sweeping views of the surrounding scenery.
+> 
+> A narrow tidal channel meanders through the marshland, leading the eye toward the striped beacon in the distance. The surrounding landscape is part of the Schleswig-Holstein Wadden Sea National Park, within the UNESCO World Heritage-listed Wadden Sea. Shaped by the constant rhythm of tides, this remarkable coastal environment changes throughout the day as water levels rise and fall. Salt marshes and extensive tidal flats support a rich variety of wildlife, making the Wadden Sea one of the world's most important wetland ecosystems.
+> 
+> 
+
+</details>
+
+| ![Westerheversand Lighthouse, Schleswig-Holstein, Germany](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Westerheversand Lighthouse, Schleswig-Holstein, Germany](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_1080x1920.jpg) |
+
 ### 20260903
 
 > Coyote Buttes, Vermilion Cliffs National Monument, Arizona (© James Hager/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Aerial view of surfers, Santa Catarina, Brazil](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of surfers, Santa Catarina, Brazil](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_1080x1920.jpg) |
-
-### 20260828
-
-> Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> At sunset, Mont-Saint Michel rises from the waters of Normandy, France, like a fortress shaped by the sea. Perched on a rocky tidal island, the abbey and village stand at the center of one of Europe's most dramatic coastal settings. Twice a day, the sea retreats to reveal vast stretches of sand before surging back to reclaim the landscape. At high tide, the mount becomes an island once again. For centuries, travelers timed their journeys to this rhythm, crossing the flats when conditions allowed and watching the sea return hours later.
-> 
-> A legend traces the site's origins to the year 708, when the Archangel Michael appeared to a bishop and instructed him to build a sanctuary here. Over time, the site grew into one of Europe's most important pilgrimage destinations. Today, Mont-Saint Michel and its surrounding bay are recognized as a UNESCO World Heritage Site, where centuries of history and the movement of the tides continue to shape every visit.
-> 
-> 
-
-</details>
-
-| ![Mont-Saint Michel during high tide, Normandy, France](https://cn.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mont-Saint Michel during high tide, Normandy, France](https://cn.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_1080x1920.jpg) |0x1920.jpg) |Poland_EN-US5004733603_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_1080x1920.jpg) |rossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
