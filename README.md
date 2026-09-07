@@ -1,143 +1,137 @@
 ## bing wallpaper
 
-### 20260905
+### 20260906
 
-> 龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加 (© Paul Hobson/Nature Picture Library)
+> Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 全国蜂鸟日旨在赞颂自然界中最非凡的空中飞行专家。蜂鸟仅分布于美洲，这些小鸟能够原地悬停、向后飞行，翅膀每秒可拍动数十次。它们为寻找花蜜而造访花朵时，也充当重要的传粉者，帮助维系从高山草甸到热带雨林的各种生态系统。闪耀的羽毛、非凡的敏捷性和高能耗的生活方式，使它们成为世界上最迷人的鸟类之一。
+> At first glance, today's image looks more like a drowned woodland than a lake. Bare tree trunks emerge from the water, their reflections stretching across the surface as the Grampians glow in the distance. This is Lake Fyans, an artificial reservoir on the edge of the Grampians (Gariwerd) National Park in Victoria, Australia. Popular with boaters, anglers, sailors, and water-skiers, it offers a front-row seat to one of the country's most striking landscapes.
 > 
-> 今天的画面展示了哥斯达黎加正在龙虾爪花上取食的绿顶辉蜂鸟。它们是中美洲体形较大的蜂鸟之一，以虹彩般的祖母绿色羽毛和细长、略微弯曲的喙闻名，这样的喙非常适合深入管状花朵取食。它们栖息于从低地到山坡的湿润森林中，开花植物全年为其提供可靠的花蜜来源。这种取食行为凸显了雨林植物与传粉者之间的紧密关系，也让人得以一窥热带雨林相互联结的生命网络。
+> The mountains beyond the lake are part of the Grampians, a range shaped over hundreds of millions of years. Today, the region is known for its rugged sandstone peaks, dramatic lookouts, waterfalls, and rich Aboriginal cultural heritage. Trails crisscross the park, leading hikers to sweeping views and encounters with kangaroos, emus, and other native birds. Lake Fyans captures that wild spirit in a single scene: flooded trees, open skies, and an ever-changing backdrop of ancient mountains.
 > 
 > 
 
 </details>
 
-| ![全国蜂鸟日](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![全国蜂鸟日](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Lake Fyans, Grampians National Park, Victoria, Australia](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Fyans, Grampians National Park, Victoria, Australia](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_1080x1920.jpg) |
+
+### 20260905
+
+> Green-crowned brilliant hummingbirds feeding on lobster-claw flowers, Costa Rica (© Paul Hobson/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> National Hummingbird Day celebrates some of nature's most extraordinary aerial specialists. Found only in the Americas, these tiny birds can hover in place, fly backward, and beat their wings dozens of times per second. As they visit flowers in search of nectar, they also serve as important pollinators, helping sustain ecosystems from alpine meadows to tropical rainforests. Their shimmering plumage, remarkable agility, and high-energy lifestyles make them some of the world's most fascinating birds.
+> 
+> Today's image shows green-crowned brilliant hummingbirds feeding on lobster-claw flowers in Costa Rica. Among Central America's larger hummingbird species, they are known for their iridescent emerald-green plumage and long, slightly curved bills, perfectly adapted for reaching deep into tubular blossoms. They inhabit humid forests from lowland regions to mountain slopes, where flowering plants provide a reliable source of nectar year-round. This feeding behavior highlights the close relationship between rainforest plants and their pollinators, offering a glimpse into the interconnected web of life in tropical rainforests.
+> 
+> 
+
+</details>
+
+| ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |
 
 ### 20260904
 
-> 韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国 (© bluejayphoto/Getty Images)
+> Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 韦斯特黑弗桑德灯塔高耸于德国北海沿岸的盐沼之上，凭借醒目的红白条纹一眼便可辨认。灯塔建于1906年至1908年间，一个多世纪以来一直是艾德施泰特半岛的标志，为穿行北海水域的船只指引航向。如今，它仍是德国北部最著名的海岸地标之一。登上157级台阶的游客，可以饱览周围的壮阔景色。
+> Rising above the salt marshes along Germany's North Sea coast, the Westerheversand Lighthouse is instantly recognizable thanks to its distinctive red-and-white stripes. Built between 1906 and 1908, the lighthouse has stood as an icon on the Eiderstedt Peninsula for more than a century, guiding ships through the waters of the North Sea. Today, it remains one of northern Germany's best-known coastal landmarks. Visitors who climb its 157 steps are rewarded with sweeping views of the surrounding scenery.
 > 
-> 一条狭窄的潮汐水道蜿蜒穿过沼泽，将视线引向远处的条纹灯塔。周围景观属于石勒苏益格-荷尔斯泰因瓦登海国家公园，并位于已列入联合国教科文组织《世界遗产名录》的瓦登海之中。受潮汐持续律动的塑造，这片非凡的海岸环境会随着水位涨落在一天中不断变化。盐沼和广阔潮滩孕育了丰富多样的野生动物，使瓦登海成为世界上最重要的湿地生态系统之一。
+> A narrow tidal channel meanders through the marshland, leading the eye toward the striped beacon in the distance. The surrounding landscape is part of the Schleswig-Holstein Wadden Sea National Park, within the UNESCO World Heritage-listed Wadden Sea. Shaped by the constant rhythm of tides, this remarkable coastal environment changes throughout the day as water levels rise and fall. Salt marshes and extensive tidal flats support a rich variety of wildlife, making the Wadden Sea one of the world's most important wetland ecosystems.
 > 
 > 
 
 </details>
 
-| ![韦斯特黑弗桑德灯塔， 德国](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![韦斯特黑弗桑德灯塔， 德国](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Westerheversand Lighthouse, Schleswig-Holstein, Germany](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Westerheversand Lighthouse, Schleswig-Holstein, Germany](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_1080x1920.jpg) |
 
 ### 20260903
 
-> 郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国 (© James Hager/Getty Images)
+> Coyote Buttes, Vermilion Cliffs National Monument, Arizona (© James Hager/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 波浪通常属于海洋。但在亚利桑那州北部，它们却从沙漠中涌起。郊狼丘是朱红悬崖国家纪念区的一部分，其盘旋起伏的砂岩地貌由远古沙丘和数百万年的侵蚀共同塑造而成，造就了一片即使静止不动也仿佛泛着涟漪的景观。
+> Waves usually belong to the ocean. In northern Arizona, they rise from the desert instead. The swirling sandstone formations of Coyote Buttes, part of Vermilion Cliffs National Monument, were shaped by ancient dunes and millions of years of erosion, creating a landscape that seems to ripple even while standing still.
 > 
-> 正是由于存在这样的地方，1964年《荒野法》才于9月3日签署成为法律，而今天正是纪念这一里程碑的日子。由于担心不断发展的国家可能会改变国土上几乎每一个角落，国会设立了国家荒野保护体系，以保护那些保留自然风貌，并为人们提供独处、探索和发现机会的土地。
+> Places like this are one reason the Wilderness Act of 1964 was signed into law on September 3, a milestone commemorated today. Concerned that an expanding nation could transform nearly every corner of the country, Congress established the National Wilderness Preservation System to protect lands that retain their natural character and offer opportunities for solitude, exploration, and discovery.
 > 
-> 该法案最初保护了54片荒野地区，占地910万英亩。六十多年后的今天，这一体系覆盖的全国土地已超过1.1亿英亩。从偏远森林到经自然雕琢的沙漠岩层，这些受保护的景观邀请游客体验美国的另一面——它并非由蓝图塑造，而是由时间本身铸就。
+> The act initially safeguarded 54 wilderness areas covering 9.1 million acres. More than six decades later, the system now encompasses over 110 million acres nationwide. From remote forests to sculpted desert rock, these protected landscapes invite visitors to experience a side of America shaped not by blueprints, but by time itself.
 
 </details>
 
-| ![郊狼丘，朱红悬崖国家纪念区，亚利桑那州](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![郊狼丘，朱红悬崖国家纪念区，亚利桑那州](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Coyote Buttes, Vermilion Cliffs National Monument, Arizona](https://cn.bing.com/th?id=OHR.AZWilderness_EN-US4070936347_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Coyote Buttes, Vermilion Cliffs National Monument, Arizona](https://cn.bing.com/th?id=OHR.AZWilderness_EN-US4070936347_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AZWilderness_EN-US4070936347_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AZWilderness_EN-US4070936347_1080x1920.jpg) |
 
 ### 20260902
 
-> 传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰 (© stevendocwra/Getty Images)
+> Traditional beach huts, Southwold, Suffolk Heritage Coast, England (© stevendocwra/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在英格兰东海岸，萨福克遗产海岸融合了风吹不息的石南荒原、湿地、砾石海滩和开阔的北海景观。索思沃尔德是这里最著名的城镇之一，水域与历史在此密不可分。小镇几乎被大海、布莱斯河和周围的湿地环绕，坐落在一片狭长的半岛上；数百年来的渔业、贸易和临水生活共同塑造了这里。
+> Along England's east shore, the Suffolk Heritage Coast blends windswept heaths, marshes, shingle beaches, and expansive North Sea views. One of its best-known towns is Southwold, where water and history are inseparable. Almost encircled by the sea, the River Blyth, and surrounding wetlands, the town occupies a slender peninsula shaped by centuries of fishing, trade, and life at the edge of the water.
 > 
-> 色彩缤纷的木制海滩小屋是索思沃尔德最具辨识度的地标之一。它们最初是作为简易的沐浴和捕鱼棚屋而建，如今已有数百座沿海岸排列，在沙滩与天空之间增添了一道道鲜亮的色彩。有些小屋仍是备受珍爱的家庭财产，代代相传。
+> The colorful wooden beach huts are among Southwold's most recognizable landmarks. Originally built as simple bathing and fishing shelters, today hundreds line the shore, adding bright bands of color against the sand and sky. Some remain treasured family possessions, passed down through generations.
 > 
-> 除了这些小屋，游客还会看到一座仍在运行的灯塔、一座伸入北海的栈桥，并可轻松前往沿海步道，欣赏英格兰一些最负盛名的风景。这是一片值得漫步探索的海岸——每一个转弯处似乎都会展开另一段关于大海的故事。
+> Beyond the huts, visitors find a working lighthouse, a pier stretching into the North Sea, and easy access to coastal paths that reveal some of England's most celebrated scenery. It's a shoreline that rewards wandering—one where every bend seems to open onto another story of the sea.
 
 </details>
 
-| ![海滩小屋，萨福克遗产海岸，英格兰](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![海滩小屋，萨福克遗产海岸，英格兰](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Beach huts, Southwold, Suffolk Heritage Coast, England](https://cn.bing.com/th?id=OHR.SuffolkHuts_EN-US3987062531_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Beach huts, Southwold, Suffolk Heritage Coast, England](https://cn.bing.com/th?id=OHR.SuffolkHuts_EN-US3987062531_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffolkHuts_EN-US3987062531_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffolkHuts_EN-US3987062531_1080x1920.jpg) |
 
 ### 20260901
 
-> 马鬃小皮伞，白俄罗斯 (© Máté/Nature Picture Library)
+> Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)
 
 <details>
 <summary>Description</summary>
 
-> 九月的全国蘑菇月旨在赞颂一个常常不为人注意的世界。在森林地表、草坪和落叶下方，真菌网络循环利用养分，帮助生态系统蓬勃发展。我们看到的蘑菇只是这些隐秘生物的子实体，它们短暂现身释放孢子，随后又从视野中消失。它们并非植物；真菌自成一界，并在大自然的循环中发挥着至关重要的作用。
+> September's National Mushroom Month celebrates a world that often goes unnoticed. Beneath forest floors, lawns, and fallen leaves, fungal networks recycle nutrients, helping ecosystems thrive. The mushrooms we notice are only the fruiting bodies of these hidden organisms, emerging briefly to release spores before fading back from view. They are not plants; fungi form a kingdom of their own and play an essential role in nature's cycles.
 > 
-> 今日图片展现的是马鬃小皮伞，这种真菌值得走近细看。这些微小的蘑菇生长在掉落的松针和林地碎屑上，纤巧的菌盖由深色、坚韧如丝的菌柄托起；菌柄纤细得如同一缕缕马毛。乍看之下，它们很容易被忽略，却揭示了隐藏在森林地表的惊人多样性。
+> Today's image captures horsehair parachute fungi, a species that rewards a closer look. Growing on fallen pine needles and woodland debris, these tiny mushrooms balance delicate caps on dark, wiry stems so fine they resemble strands of horsehair. Easy to miss at first glance, they reveal the surprising diversity hidden on the forest floor.
 > 
-> 仔细观察，你便会发现，全国蘑菇月提醒着我们：大自然中一些最重要的工作发生在视线之外。从维系林地生态系统到丰富我们的餐盘，真菌证明，即使是最微小的结构也能产生巨大的影响。
+> Look closely and National Mushroom Month becomes a reminder that some of nature's most important work happens out of sight. From sustaining woodland ecosystems to enriching our plates, fungi prove that even the smallest structures can have an outsized impact.
 
 </details>
 
-| ![马鬃小皮伞](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![马鬃小皮伞](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![National Mushroom Month](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Mushroom Month](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |
 
 ### 20260831
 
-> 雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦 (© Piero M. Bianchi/Getty Images)
+> Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 站在雷吉斯坦广场上，你很容易明白为什么这里被视为撒马尔罕的建筑核心——撒马尔罕是中亚最古老的城市之一。这座位于乌兹别克斯坦的广场三面矗立着三座宏伟的经学院——伊斯兰学术中心——它们高耸的门廊吸引着人们仰头观望。然而，广场上一些最珍贵的瑰宝，只有在你走近细看时才会显露出来。
+> Stand in Registan Square and it's easy to see why it is considered the architectural heart of Samarkand—one of Central Asia's oldest cities. This plaza in Uzbekistan is framed by three magnificent madrasas—Islamic centers of learning—whose soaring portals draw the eye upward. Yet some of the square's greatest treasures reveal themselves only when you look closer.
 > 
-> 今日图片中的细节让我们得以一窥几乎遍布每一处表面的精美艺术。琉璃砖、几何图案、花卉纹饰和优雅的书法以非凡的精确度融为一体，将砖石与灰泥化作绚丽夺目的色彩和图案展示。绿松石色、钴蓝色、金色和白色的色调随着光线变化而流转，使建筑在一天之中呈现出一种动态之感。
+> The detail in today's image offers a glimpse of the artistry that covers nearly every surface. Glazed tiles, geometric motifs, floral designs, and elegant calligraphy come together with remarkable precision, turning brick and plaster into a dazzling display of color and pattern. Shades of turquoise, cobalt, gold, and white shift with the changing light, giving the architecture a sense of movement throughout the day.
 > 
-> 这些经学院最初作为学习和宗教学术研究中心而建，环绕着一座热闹的公共广场；这里曾是丝绸之路沿线的生活中心。如今，雷吉斯坦依然同样引人入胜，吸引游客欣赏其宏伟的规模和非凡的工艺。
+> Built as centers of learning and religious scholarship, the madrasas surrounded a lively public square that was once a focal point of life along the Silk Road. Today, Registan remains just as captivating, inviting visitors to admire both its monumental scale and its extraordinary craftsmanship.
 
 </details>
 
-| ![雷吉斯坦广场的建筑细节](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![雷吉斯坦广场的建筑细节](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Building detail of Registan Square, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Building detail of Registan Square, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_1080x1920.jpg) |
-
-### 20260830
-
-> 鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚 (© Pete Oxford/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> 今天，国际鲸鲨日将目光投向世界上最大的鱼类。鲸鲨虽然名字中带有“鲸”，却不是鲸类，而是鱼类；体长可达60英尺，体重约20吨。它们分布在温暖的热带海域，张着嘴在水中缓缓游动，滤食浮游生物、鱼卵和其他微小猎物。每条鲸鲨身上独特的白色斑点图案都各不相同，就像人类的指纹。
-> 
-> 图片捕捉到印度尼西亚西巴布亚极乐鸟湾中的一条鲸鲨，身旁伴随着一群黄金鲹。这些色彩明亮的鱼常与鲸鲨同游，借机获取食物残渣，并利用这位庞大伙伴提供的保护。
-> 
-> 国际鲸鲨日旨在关注这一濒危物种面临的挑战，包括兼捕、船只撞击、栖息地退化和气候变化。通过提高公众意识，这一纪念日鼓励人们采取行动，世代守护这些温和的海洋使者。
-
-</details>
-
-| ![国际鲸鲨日](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际鲸鲨日](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1080x1920.jpg) |ter. The best surfers aren't simply stronger or faster. They're the ones who know how to listen.
-
-</details>
-
-| ![Aerial view of surfers, Santa Catarina, Brazil](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of surfers, Santa Catarina, Brazil](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_1080x1920.jpg) |rossingPoland_EN-US5004733603_1080x1920.jpg) | |n.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1080x1920.jpg) |k_ZH-CN9544093701_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
