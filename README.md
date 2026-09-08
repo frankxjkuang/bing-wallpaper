@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260907
+
+> 'Industries of California' mural by Ralph Stackpole at Coit Tower, San Francisco, California (© David R. Frazier Photolibrary, Inc./Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Labor Day honors the contributions of American workers and the history of labor in the United States. Established as a federal holiday in 1894, it emerged during a period of rapid industrial growth and social change. Today, Labor Day recognizes the people whose efforts have helped build communities, industries, and infrastructure across the nation. From farms and factories to railroads and construction sites, generations of workers have played a vital role in shaping the country's history.
+> 
+> That story comes to life in today's image, showing a section of 'Industries of California,' a mural by artist Ralph Stackpole at San Francisco's Coit Tower. Completed in 1934 as part of a New Deal public art program, the mural depicts agriculture, manufacturing, transportation, and daily life during the Great Depression. It celebrates the labor and ingenuity that powered California's economy, making it a fitting tribute on a day dedicated to the people whose work continues to move society forward.
+> 
+> 
+
+</details>
+
+| ![Labor Day](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Labor Day](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_1080x1920.jpg) |
+
 ### 20260906
 
 > Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Mushroom Month](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Mushroom Month](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |
-
-### 20260831
-
-> Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Stand in Registan Square and it's easy to see why it is considered the architectural heart of Samarkand—one of Central Asia's oldest cities. This plaza in Uzbekistan is framed by three magnificent madrasas—Islamic centers of learning—whose soaring portals draw the eye upward. Yet some of the square's greatest treasures reveal themselves only when you look closer.
-> 
-> The detail in today's image offers a glimpse of the artistry that covers nearly every surface. Glazed tiles, geometric motifs, floral designs, and elegant calligraphy come together with remarkable precision, turning brick and plaster into a dazzling display of color and pattern. Shades of turquoise, cobalt, gold, and white shift with the changing light, giving the architecture a sense of movement throughout the day.
-> 
-> Built as centers of learning and religious scholarship, the madrasas surrounded a lively public square that was once a focal point of life along the Silk Road. Today, Registan remains just as captivating, inviting visitors to admire both its monumental scale and its extraordinary craftsmanship.
-
-</details>
-
-| ![Building detail of Registan Square, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Building detail of Registan Square, Samarkand, Uzbekistan](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
