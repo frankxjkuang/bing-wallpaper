@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260909
+
+> 安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 提到印度南部，人们常会想到香料贸易路线、古典音乐、民间舞蹈，以及数百年来连接印度与世界的海岸线。沿着这条海岸向西进入卡纳塔克邦，便会抵达安科拉附近一处更宁静的停靠点：加比特凯尼海滩。这里的生活围绕阿拉伯海展开，渔船在黎明前出海，载着当天的渔获归来。
+> 
+> 这片海滩以加比特渔民社区命名。探索北卡纳达县时，这里是个轻松顺路的停靠点，尤其适合与戈卡尔纳、卡尔瓦尔和历史悠久的米尔詹堡一同游览。观鸟者可能在溪流附近看到海岸鸟类，摄影者则常在清晨光线更柔和时驻足。何不尝尝当地美食？安科拉周边餐馆里，新鲜鱼咖喱、炸鱿鱼和鲜虾菜肴都很受欢迎。离开之前，不妨留出时间享用一顿新鲜海鲜；它或许会和这片海滩一样令人难忘。
+> 
+> 
+
+</details>
+
+| ![安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_1080x1920.jpg) |
+
 ### 20260908
 
 > 东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰 (© Guy Edwardes/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![郊狼丘，朱红悬崖国家纪念区，亚利桑那州](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![郊狼丘，朱红悬崖国家纪念区，亚利桑那州](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1080x1920.jpg) |
-
-### 20260902
-
-> 传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰 (© stevendocwra/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 在英格兰东海岸，萨福克遗产海岸融合了风吹不息的石南荒原、湿地、砾石海滩和开阔的北海景观。索思沃尔德是这里最著名的城镇之一，水域与历史在此密不可分。小镇几乎被大海、布莱斯河和周围的湿地环绕，坐落在一片狭长的半岛上；数百年来的渔业、贸易和临水生活共同塑造了这里。
-> 
-> 色彩缤纷的木制海滩小屋是索思沃尔德最具辨识度的地标之一。它们最初是作为简易的沐浴和捕鱼棚屋而建，如今已有数百座沿海岸排列，在沙滩与天空之间增添了一道道鲜亮的色彩。有些小屋仍是备受珍爱的家庭财产，代代相传。
-> 
-> 除了这些小屋，游客还会看到一座仍在运行的灯塔、一座伸入北海的栈桥，并可轻松前往沿海步道，欣赏英格兰一些最负盛名的风景。这是一片值得漫步探索的海岸——每一个转弯处似乎都会展开另一段关于大海的故事。
-
-</details>
-
-| ![海滩小屋，萨福克遗产海岸，英格兰](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![海滩小屋，萨福克遗产海岸，英格兰](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1080x1920.jpg) |horsehair. Easy to miss at first glance, they reveal the surprising diversity hidden on the forest floor.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1080x1920.jpg) |.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1080x1920.jpg) |horsehair. Easy to miss at first glance, they reveal the surprising diversity hidden on the forest floor.
 > 
 > Look closely and National Mushroom Month becomes a reminder that some of nature's most important work happens out of sight. From sustaining woodland ecosystems to enriching our plates, fungi prove that even the smallest structures can have an outsized impact.
 
