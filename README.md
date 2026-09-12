@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260911
+
+> The Flight 93 National Memorial Visitor Center near Shanksville, Pennsylvania (© Maurice Savage/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Some journeys never reach their destination yet change the course of history. The Flight 93 National Memorial Visitor Center near Shanksville, Pennsylvania, tells the story of one such flight. It honors the 40 passengers and crew members whose actions on September 11, 2001, became a defining moment of courage.
+> 
+> The memorial's design speaks as powerfully as its exhibit. Its concrete walls, visitor center, and outdoor observation platform align with the actual flight path of United Flight 93. The surrounding landscape forms the 'Crescent of Embrace,' gently curving around the sacred crash site. A narrow entrance walkway opens onto an overlook above the field and hemlock grove where the plane came down. A glass panel bears the inscription, 'A common field one day, a field of honor forever.'
+> 
+> Inside, the exhibit intentionally excludes the hijackers and shines its focus exclusively on the passengers and crew. Their story endures because their decision to fight back is believed to have prevented the plane from reaching its intended target, making their sacrifice a legacy of heroism.
+
+</details>
+
+| ![25th anniversary of September 11, 2001](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![25th anniversary of September 11, 2001](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_1080x1920.jpg) |
+
 ### 20260910
 
 > Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |
-
-### 20260904
-
-> Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Rising above the salt marshes along Germany's North Sea coast, the Westerheversand Lighthouse is instantly recognizable thanks to its distinctive red-and-white stripes. Built between 1906 and 1908, the lighthouse has stood as an icon on the Eiderstedt Peninsula for more than a century, guiding ships through the waters of the North Sea. Today, it remains one of northern Germany's best-known coastal landmarks. Visitors who climb its 157 steps are rewarded with sweeping views of the surrounding scenery.
-> 
-> A narrow tidal channel meanders through the marshland, leading the eye toward the striped beacon in the distance. The surrounding landscape is part of the Schleswig-Holstein Wadden Sea National Park, within the UNESCO World Heritage-listed Wadden Sea. Shaped by the constant rhythm of tides, this remarkable coastal environment changes throughout the day as water levels rise and fall. Salt marshes and extensive tidal flats support a rich variety of wildlife, making the Wadden Sea one of the world's most important wetland ecosystems.
-> 
-> 
-
-</details>
-
-| ![Westerheversand Lighthouse, Schleswig-Holstein, Germany](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Westerheversand Lighthouse, Schleswig-Holstein, Germany](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_1080x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
