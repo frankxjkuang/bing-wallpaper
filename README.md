@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260912
+
+> California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> A day at the beach is rarely quiet when California sea lions are around. With their booming barks, playful personalities, and a knack for stealing the spotlight, these marine mammals know how to put on a show.
+> 
+> Found along the Pacific coast from British Columbia to Mexico, California sea lions are among the few animals that seem just as comfortable on land as they are in the water. Adult males are easy to spot thanks to the distinctive forehead bump, or sagittal crest. Unlike true seals, they rotate their hind flippers forward, allowing them to 'walk' or even run on all fours. In the ocean, they power through the water with their large front flippers, reaching speeds of up to 25 mph. They're also famous for jugging—floating upright with their flippers raised above the surface to help regulate their body temperature.
+> 
+> Whether lounging on shore or gliding through the waves, California sea lions are among the most charismatic animals along the Pacific coast.
+
+</details>
+
+| ![California sea lions, offshore Mexico, Pacific Ocean](https://cn.bing.com/th?id=OHR.SardineBait_EN-US4802395270_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![California sea lions, offshore Mexico, Pacific Ocean](https://cn.bing.com/th?id=OHR.SardineBait_EN-US4802395270_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SardineBait_EN-US4802395270_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SardineBait_EN-US4802395270_1080x1920.jpg) |
+
 ### 20260911
 
 > The Flight 93 National Memorial Visitor Center near Shanksville, Pennsylvania (© Maurice Savage/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Lake Fyans, Grampians National Park, Victoria, Australia](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Fyans, Grampians National Park, Victoria, Australia](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_1080x1920.jpg) |
-
-### 20260905
-
-> Green-crowned brilliant hummingbirds feeding on lobster-claw flowers, Costa Rica (© Paul Hobson/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> National Hummingbird Day celebrates some of nature's most extraordinary aerial specialists. Found only in the Americas, these tiny birds can hover in place, fly backward, and beat their wings dozens of times per second. As they visit flowers in search of nectar, they also serve as important pollinators, helping sustain ecosystems from alpine meadows to tropical rainforests. Their shimmering plumage, remarkable agility, and high-energy lifestyles make them some of the world's most fascinating birds.
-> 
-> Today's image shows green-crowned brilliant hummingbirds feeding on lobster-claw flowers in Costa Rica. Among Central America's larger hummingbird species, they are known for their iridescent emerald-green plumage and long, slightly curved bills, perfectly adapted for reaching deep into tubular blossoms. They inhabit humid forests from lowland regions to mountain slopes, where flowering plants provide a reliable source of nectar year-round. This feeding behavior highlights the close relationship between rainforest plants and their pollinators, offering a glimpse into the interconnected web of life in tropical rainforests.
-> 
-> 
-
-</details>
-
-| ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Hummingbird Day](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_1080x1920.jpg) |7_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
