@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260913
+
+> Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> The image captures the jagged skyline of Cadini di Misurina at sunrise in Veneto, northeastern Italy. Visitors heading toward nearby Tre Cime di Lavaredo often come for the famous route only to find their attention hijacked by the Cadini. Part of the Dolomites, these needle-like peaks reaching more than 9,300 feet at their highest point seem sculpted for drama. The twist? They started out as ancient coral reefs.
+> 
+> Around 250 million years ago, this region lay beneath a warm tropical sea. As the African and Eurasian tectonic plates collided, the seabed was thrust thousands of feet into the sky, preserving shells and other marine fossils in cliffs now explored by hikers instead of fish.
+> 
+> At sunrise and sunset, the Dolomites glow pink and orange in the Alpine phenomenon known as 'enrosadira,' making these former reefs appear almost lit from within. Today, this UNESCO World Heritage Site preserves one of geology's most improbable stories. From coral reef to mountain skyline, few places have traveled farther.
+
+</details>
+
+| ![Cadini di Misurina, Dolomites, Veneto, Italy](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cadini di Misurina, Dolomites, Veneto, Italy](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_1080x1920.jpg) |
+
 ### 20260912
 
 > California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Labor Day](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Labor Day](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_1080x1920.jpg) |
-
-### 20260906
-
-> Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> At first glance, today's image looks more like a drowned woodland than a lake. Bare tree trunks emerge from the water, their reflections stretching across the surface as the Grampians glow in the distance. This is Lake Fyans, an artificial reservoir on the edge of the Grampians (Gariwerd) National Park in Victoria, Australia. Popular with boaters, anglers, sailors, and water-skiers, it offers a front-row seat to one of the country's most striking landscapes.
-> 
-> The mountains beyond the lake are part of the Grampians, a range shaped over hundreds of millions of years. Today, the region is known for its rugged sandstone peaks, dramatic lookouts, waterfalls, and rich Aboriginal cultural heritage. Trails crisscross the park, leading hikers to sweeping views and encounters with kangaroos, emus, and other native birds. Lake Fyans captures that wild spirit in a single scene: flooded trees, open skies, and an ever-changing backdrop of ancient mountains.
-> 
-> 
-
-</details>
-
-| ![Lake Fyans, Grampians National Park, Victoria, Australia](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Fyans, Grampians National Park, Victoria, Australia](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_1080x1920.jpg) |7_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
