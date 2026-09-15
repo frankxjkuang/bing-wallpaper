@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260914
+
+> Field of kochia plants, China (© lingqi xie/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In today's image, kochia plants spread across the landscape in China in shades of green and deep red. Native to parts of Eurasia, kochia was introduced to the United States in the late 1800s as an ornamental plant and a source of material for broom making. Its ability to withstand drought, heat, saline soils, and low rainfall helped it spread across the Great Plains and much of the American West.
+> 
+> Growing quickly from seed, a single plant can reach several feet tall in one season and produce thousands of seeds. Young plants have been used as forage for livestock, particularly in dry regions where other vegetation is scarce. While admired for its striking colors and resilience, kochia is also known to farmers as a hardy weed that can be difficult to control. From American prairies to the vibrant fields seen here in China, it remains a remarkable example of nature's adaptability.
+> 
+> 
+
+</details>
+
+| ![Field of kochia plants, China](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Field of kochia plants, China](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_1080x1920.jpg) |
+
 ### 20260913
 
 > Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Beech tree in a cereal field, Hampshire, England](https://cn.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Beech tree in a cereal field, Hampshire, England](https://cn.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_1080x1920.jpg) |
-
-### 20260907
-
-> 'Industries of California' mural by Ralph Stackpole at Coit Tower, San Francisco, California (© David R. Frazier Photolibrary, Inc./Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Labor Day honors the contributions of American workers and the history of labor in the United States. Established as a federal holiday in 1894, it emerged during a period of rapid industrial growth and social change. Today, Labor Day recognizes the people whose efforts have helped build communities, industries, and infrastructure across the nation. From farms and factories to railroads and construction sites, generations of workers have played a vital role in shaping the country's history.
-> 
-> That story comes to life in today's image, showing a section of 'Industries of California,' a mural by artist Ralph Stackpole at San Francisco's Coit Tower. Completed in 1934 as part of a New Deal public art program, the mural depicts agriculture, manufacturing, transportation, and daily life during the Great Depression. It celebrates the labor and ingenuity that powered California's economy, making it a fitting tribute on a day dedicated to the people whose work continues to move society forward.
-> 
-> 
-
-</details>
-
-| ![Labor Day](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Labor Day](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_1080x1920.jpg) |bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
