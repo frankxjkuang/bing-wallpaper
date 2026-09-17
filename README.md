@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260916
+
+> Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Two polar bear cubs pick their way across the snow in Svalbard, a remote Norwegian archipelago of glaciers, mountains, and frozen fjords deep in the Arctic Ocean. This wild landscape is part of the Barents Sea region, home to one of the world's largest polar bear populations, with around 2,600 bears.
+> 
+> For these youngsters, every outing is an adventure. They explore a world shaped by drifting sea ice, towering ice fronts, and months of darkness followed by endless summer daylight. Playful wrestling matches and mock chases may look like games, but they help prepare the cubs for life in one of Earth's most challenging environments.
+> 
+> Svalbard is one of the best places in the world to see polar bears, yet it is also among the fastest-warming regions on the planet. As sea ice conditions change, local bears have shown a remarkable ability to adapt, but their future remains closely tied to the frozen landscapes that define the High Arctic.
+
+</details>
+
+| ![Polar bear cubs playing in Svalbard, Norway](https://cn.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar bear cubs playing in Svalbard, Norway](https://cn.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_1080x1920.jpg) |
+
 ### 20260915
 
 > Fort Union National Monument, New Mexico (© zrfphoto/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Aerial view of Olvera, Andalusia, Spain](https://cn.bing.com/th?id=OHR.Olvera_EN-US4712443253_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Olvera, Andalusia, Spain](https://cn.bing.com/th?id=OHR.Olvera_EN-US4712443253_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Olvera_EN-US4712443253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Olvera_EN-US4712443253_1080x1920.jpg) |
-
-### 20260909
-
-> Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> When people think of South India, they often picture spice trade routes, classical music, folk dances, and a coastline that has connected India with the world for centuries. Follow that coastline west into Karnataka and you'll reach a quieter stop near Ankola: Gabit Keni Beach. Life here revolves around the Arabian Sea, with fishing boats setting out before dawn and returning with the day's catch.
-> 
-> The beach is named after the Gabit fishing community. It's an easy stop while exploring the Uttara Kannada district, especially alongside Gokarna, Karwar, and the historic Mirjan Fort. Birdwatchers may spot coastal birds near the stream, while photographers often stop by during the softer light of early morning. Why not sample local cuisine? Fresh fish curries, squid fry, and prawn dishes are popular at eateries around Ankola. Before you leave, make time for a fresh seafood meal—it may end up being as memorable as the beach itself.
-> 
-> 
-
-</details>
-
-| ![Gabit Keni Beach near Ankola, Karnataka, India](https://cn.bing.com/th?id=OHR.GabitKeni_EN-US4620523183_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gabit Keni Beach near Ankola, Karnataka, India](https://cn.bing.com/th?id=OHR.GabitKeni_EN-US4620523183_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GabitKeni_EN-US4620523183_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GabitKeni_EN-US4620523183_1080x1920.jpg) |1080x1920.jpg) |bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Olvera_EN-US4712443253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Olvera_EN-US4712443253_1080x1920.jpg) |080x1920.jpg) |1080x1920.jpg) |bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
