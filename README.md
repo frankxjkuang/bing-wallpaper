@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260917
+
+> Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Each year, late summer and early fall bring one of France's most anticipated traditions: the 'vendanges,' the grape-picking season. The timing varies from one wine region to another and depends on weather conditions, sun exposure, and the ripeness of the fruit. For many vineyards, harvest is still a hands-on effort, with teams carefully selecting bunches destined for some of the country's most celebrated wines.
+> 
+> The scene is especially striking in Santenay, at the southern end of Burgundy's Côte de Beaune. Here, rows of vines stretch across rolling hills beneath the Sorine windmill, a restored 19th-century landmark that overlooks the surrounding countryside and vineyards, as seen in today's image.
+> 
+> Harvesting grapes has shaped French life for centuries. Its importance even echoes in the French Republican calendar, which named its opening month after the gathering of the crop—a reminder of how deeply winemaking is woven into the nation's history. As baskets fill and the vineyards glow with autumn color, the season blends agriculture, heritage, and celebration into a uniquely French ritual.
+
+</details>
+
+| ![Santenay wine region, Côte de Beaune, Burgundy, France](https://cn.bing.com/th?id=OHR.Santenay_EN-US5299702509_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Santenay wine region, Côte de Beaune, Burgundy, France](https://cn.bing.com/th?id=OHR.Santenay_EN-US5299702509_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Santenay_EN-US5299702509_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Santenay_EN-US5299702509_1080x1920.jpg) |
+
 ### 20260916
 
 > Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![25th anniversary of September 11, 2001](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![25th anniversary of September 11, 2001](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_1080x1920.jpg) |
-
-### 20260910
-
-> Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Ever wondered why Andalusia is one of Spain's best-known regions? Flamenco, tapas, Moorish architecture, and extensive olive groves all play a part. Beyond its famous cities, you'll find historic places like Olvera. Surrounded by more than 2 million olive trees, this village developed as a strategic frontier settlement shaped by centuries of change. The Castle of Olvera still watches over the town, while the Church of Our Lady of the Incarnation dominates the skyline below. Visit La Cilla Cultural Center to discover Olvera's medieval history and traditions.
-> 
-> Hungry? Try 'gazpacho,' a chilled tomato soup; 'jamón ibérico,' Spain's famous cured ham; or the 'torta de aceite,' a crisp olive oil biscuit. For a scenic walk or bike ride, head to the Vía Verde de la Sierra, a former railway line turned popular trail. Watch your step on the steep cobbled streets—your camera might stay steady, but your footing may not! As the saying goes, 'poco a poco'—little by little. Slow down, wander, and let Olvera reveal itself.
-> 
-> 
-
-</details>
-
-| ![Aerial view of Olvera, Andalusia, Spain](https://cn.bing.com/th?id=OHR.Olvera_EN-US4712443253_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Olvera, Andalusia, Spain](https://cn.bing.com/th?id=OHR.Olvera_EN-US4712443253_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Olvera_EN-US4712443253_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Olvera_EN-US4712443253_1080x1920.jpg) |080x1920.jpg) |1080x1920.jpg) |bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_1080x1920.jpg) |S4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
