@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260919
+
+> Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> As Oktoberfest opens today, visitors arriving in Bavaria, Germany may hear a sound even older than the famous festival itself: the deep, resonant voice of the alphorn. This traditional Alpine instrument is closely linked to the culture of Bavaria, Austria, and Switzerland, where it once helped shepherds communicate across mountain valleys.
+> 
+> An alphorn is a long wooden wind instrument, typically about 11.5 feet in length. Usually crafted from spruce, it has no valves, keys, or finger holes. Instead, musicians create different notes by carefully controlling their breath and lip tension through a wooden mouthpiece.
+> 
+> Today, alphorn players perform at folk celebrations, cultural events, and Oktoberfest gatherings, keeping a centuries-old tradition alive. Its warm, echoing tones blend beautifully with the scenery of the Alpine region, offering a link to rural life and local heritage. For many festivalgoers, the alphorn provides a memorable reminder that Oktoberfest celebrates Bavarian culture as much as food, music, and community.
+
+</details>
+
+| ![Oktoberfest, Germany](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest, Germany](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1080x1920.jpg) |
+
 ### 20260918
 
 > Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Cadini di Misurina, Dolomites, Veneto, Italy](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cadini di Misurina, Dolomites, Veneto, Italy](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_1080x1920.jpg) |
-
-### 20260912
-
-> California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> A day at the beach is rarely quiet when California sea lions are around. With their booming barks, playful personalities, and a knack for stealing the spotlight, these marine mammals know how to put on a show.
-> 
-> Found along the Pacific coast from British Columbia to Mexico, California sea lions are among the few animals that seem just as comfortable on land as they are in the water. Adult males are easy to spot thanks to the distinctive forehead bump, or sagittal crest. Unlike true seals, they rotate their hind flippers forward, allowing them to 'walk' or even run on all fours. In the ocean, they power through the water with their large front flippers, reaching speeds of up to 25 mph. They're also famous for jugging—floating upright with their flippers raised above the surface to help regulate their body temperature.
-> 
-> Whether lounging on shore or gliding through the waves, California sea lions are among the most charismatic animals along the Pacific coast.
-
-</details>
-
-| ![California sea lions, offshore Mexico, Pacific Ocean](https://cn.bing.com/th?id=OHR.SardineBait_EN-US4802395270_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![California sea lions, offshore Mexico, Pacific Ocean](https://cn.bing.com/th?id=OHR.SardineBait_EN-US4802395270_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SardineBait_EN-US4802395270_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SardineBait_EN-US4802395270_1080x1920.jpg) |83443_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_1080x1920.jpg) |S4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_1080x1920.jpg) |eBait_EN-US4802395270_1080x1920.jpg) |83443_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_1080x1920.jpg) |S4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
