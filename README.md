@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260920
+
+> Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> No other city is nearly as romanticized as Paris. Yet the French capital's history has not always been as rosy as the sunset glowing behind the Eiffel Tower. Built for the 1889 Exposition Universelle, or the World's Fair, which marked the centennial of the start of the French Revolution, the tower was originally intended to serve as the fair's entrance centerpiece. Designed by engineer Gustave Eiffel and his team, the iron landmark rose nearly 1,000 feet above the Champ de Mars and became the tallest structure in the world at the time.
+> 
+> Many locals criticized the bold design, but it quickly captured the public's imagination. During the World's Fair, millions came to see the monument and enjoy panoramic views unlike any they had experienced before.
+> 
+> Today, visitors can stroll along the Seine and explore old neighborhoods and museums throughout a city that continues to reinvent itself. As evening falls and the Eiffel Tower glows against the night sky, it remains a powerful symbol of French creativity, ambition, and resilience.
+
+</details>
+
+| ![Eiffel Tower at sunset, Paris, France](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Eiffel Tower at sunset, Paris, France](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1080x1920.jpg) |
+
 ### 20260919
 
 > Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Field of kochia plants, China](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Field of kochia plants, China](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_1080x1920.jpg) |
-
-### 20260913
-
-> Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The image captures the jagged skyline of Cadini di Misurina at sunrise in Veneto, northeastern Italy. Visitors heading toward nearby Tre Cime di Lavaredo often come for the famous route only to find their attention hijacked by the Cadini. Part of the Dolomites, these needle-like peaks reaching more than 9,300 feet at their highest point seem sculpted for drama. The twist? They started out as ancient coral reefs.
-> 
-> Around 250 million years ago, this region lay beneath a warm tropical sea. As the African and Eurasian tectonic plates collided, the seabed was thrust thousands of feet into the sky, preserving shells and other marine fossils in cliffs now explored by hikers instead of fish.
-> 
-> At sunrise and sunset, the Dolomites glow pink and orange in the Alpine phenomenon known as 'enrosadira,' making these former reefs appear almost lit from within. Today, this UNESCO World Heritage Site preserves one of geology's most improbable stories. From coral reef to mountain skyline, few places have traveled farther.
-
-</details>
-
-| ![Cadini di Misurina, Dolomites, Veneto, Italy](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Cadini di Misurina, Dolomites, Veneto, Italy](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_1080x1920.jpg) |eBait_EN-US4802395270_1080x1920.jpg) |83443_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_1080x1920.jpg) |S4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_1080x1920.jpg) ||eBait_EN-US4802395270_1080x1920.jpg) |83443_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_1080x1920.jpg) |S4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
