@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260921
+
+> Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Few animals can claim to be both expert groomers and guardians of underwater forests. That's why Sea Otter Awareness Week, held each year during the last full week of September, encourages people to discover more about these remarkable marine mammals and the challenges they face.
+> 
+> In today's image, a sea otter grooms its fur in Monterey Bay, California. This behavior is far more than a daily ritual. Unlike seals and whales, sea otters have little insulating blubber, so they rely on the densest fur of any animal. Careful cleaning traps air within their coat, creating a waterproof layer that helps them stay warm in the cold Pacific. Sea otters are also considered a keystone species. By feeding on sea urchins and other invertebrates, they play a vital role in protecting kelp forests, which provide habitat for countless marine organisms. Once pushed to the brink by the fur trade, these charismatic mammals remain symbols of resilience and coastal conservation.
+> 
+> 
+
+</details>
+
+| ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1080x1920.jpg) |
+
 ### 20260920
 
 > Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.FortUnion_EN-US5138724452_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.FortUnion_EN-US5138724452_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FortUnion_EN-US5138724452_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FortUnion_EN-US5138724452_1080x1920.jpg) |
-
-### 20260914
-
-> Field of kochia plants, China (© lingqi xie/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In today's image, kochia plants spread across the landscape in China in shades of green and deep red. Native to parts of Eurasia, kochia was introduced to the United States in the late 1800s as an ornamental plant and a source of material for broom making. Its ability to withstand drought, heat, saline soils, and low rainfall helped it spread across the Great Plains and much of the American West.
-> 
-> Growing quickly from seed, a single plant can reach several feet tall in one season and produce thousands of seeds. Young plants have been used as forage for livestock, particularly in dry regions where other vegetation is scarce. While admired for its striking colors and resilience, kochia is also known to farmers as a hardy weed that can be difficult to control. From American prairies to the vibrant fields seen here in China, it remains a remarkable example of nature's adaptability.
-> 
-> 
-
-</details>
-
-| ![Field of kochia plants, China](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Field of kochia plants, China](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_1080x1920.jpg) ||eBait_EN-US4802395270_1080x1920.jpg) |83443_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_1080x1920.jpg) |S4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FortUnion_EN-US5138724452_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FortUnion_EN-US5138724452_1080x1920.jpg) |d=OHR.Flight93_EN-US5966783443_1080x1920.jpg) |S4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
