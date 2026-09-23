@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260922
+
+> Fall aspen trees near Guardsman Pass, Utah, USA (© Danita Delimont/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> The autumn equinox marks a turning point in the Northern Hemisphere. Occurring each September, it is the moment when the sun crosses the equator heading south, and day and night are nearly equal in length. After this celestial balance, daylight gradually shrinks as the journey toward winter begins.
+> 
+> Near Guardsman Pass in Utah, the change is written across the mountainsides in gold. Many of the aspens coloring the American West are quaking aspens, the most widely distributed native tree species in North America. What appears to be a forest of individuals is often something else entirely: many aspens grow in connected colonies, with trunks emerging from a shared root network and carrying the same genetic code as their neighbors.
+> 
+> Even as their leaves turn yellow and fall, much of the organism remains alive below ground. Aspens can persist through winter via their root systems, quietly preparing for future growth. The autumn equinox may signal summer's end, but in these remarkable groves, life never truly pauses.
+
+</details>
+
+| ![Autumn equinox](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn equinox](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_1080x1920.jpg) |
+
 ### 20260921
 
 > Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Polar bear cubs playing in Svalbard, Norway](https://cn.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar bear cubs playing in Svalbard, Norway](https://cn.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_1080x1920.jpg) |
-
-### 20260915
-
-> Fort Union National Monument, New Mexico (© zrfphoto/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Today marks the first day of Hispanic Heritage Month, a nationwide celebration honoring the histories, cultures, and contributions of Americans with roots in Spain, Mexico, the Caribbean, and Central and South America. Observed each year from September 15 to October 15, the month begins on a date that coincides with the independence anniversaries of several Latin American nations, including Costa Rica, El Salvador, Guatemala, Honduras, and Nicaragua.
-> 
-> The image shows Fort Union National Monument in northeastern New Mexico, a place where many stories of the American Southwest intersect. Once a major outpost on the Santa Fe Trail, Fort Union stood along a route that carried not only goods and travelers, but also ideas, languages, and traditions between cultures.
-> 
-> As Hispanic Heritage Month begins, sites like Fort Union remind us that the nation's story has been shaped by centuries of cultural exchange. From food and music to language, art, and community traditions, Hispanic influences continue to enrich everyday life across the United States.
-
-</details>
-
-| ![Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.FortUnion_EN-US5138724452_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Hispanic Heritage Month](https://cn.bing.com/th?id=OHR.FortUnion_EN-US5138724452_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FortUnion_EN-US5138724452_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FortUnion_EN-US5138724452_1080x1920.jpg) |d=OHR.Flight93_EN-US5966783443_1080x1920.jpg) |S4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_1080x1920.jpg) |-US5138724452_1080x1920.jpg) |d=OHR.Flight93_EN-US5966783443_1080x1920.jpg) |S4463800234_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1080x1920.jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
