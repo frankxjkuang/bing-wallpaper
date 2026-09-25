@@ -1,135 +1,137 @@
 ## bing wallpaper
 
-### 20260923
+### 20260924
 
-> 地坛公园秋日美景，北京，中国 (© by Wei/Adobestock)
+> Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)
 
 <details>
 <summary>Description</summary>
 
-> 金色地毯通常只出现在童话世界里，但在金秋时节的北京，它们却铺展在你的脚下。地坛公园（方泽坛）著名的银杏大道汇聚了200多株历史悠久的银杏树。每当秋风掠过，数以万计的扇形金叶翩翩飘落，将这座古老的皇家坛庙铺垫成一片如梦似幻的金黄海洋。
+> On Lanzarote, part of Spain's Canary Islands, geology got carried away. Dark sand meets the Atlantic beneath cliffs streaked with ocher and rust, the handiwork of volcanic activity spanning millions of years. One chapter of this story arrived remarkably recently: between 1730 and 1736, numerous vents opened across Lanzarote, sending lava over dozens of square miles and burying roads, villages, and farmland.
 > 
-> 地坛始建于明代嘉靖九年（1530年），曾是明清两代帝王在秋分时节祭祀“皇地祗”神明的地方。如今，当太阳直射赤道、昼夜再次平分，这座庄严的皇家坛庙不再只有岁月的肃穆，而是在光影与斑斓色彩中蜕变为自然与历史交融的避风港，静静诉说着古都数百年的时空变迁。
+> The beach in the image sits beside El Golfo, a tiny fishing village on the island's western shore. The settlement borders Los Volcanes Natural Park, while boats, seafood restaurants, and crashing waves carry on as if this scenery were perfectly ordinary. Nearby, the famous green lagoon Charco de los Clicos occupies a partially collapsed volcanic crater linked to the sea through underground fissures. Its improbable emerald color comes partly from algae, bringing green water, black sand, and blue sea into one strikingly vivid frame. No filter required. El Golfo comes with its own color palette.
 > 
-> 在清晨和煦的秋阳下，朱红的宫墙、古朴的黛瓦与熠熠生辉的金叶交相辉映，勾勒出绝美的高古意境。正如文学大师史铁生在《我与地坛》中所描绘的那样，地坛始终守护着这份宁静与包容，倾听着风吹落叶的沙沙响声，邀请每一位游人在喧嚣的现代都市深处放慢脚步，体味岁月留下的温润与悠长。
+> 
 
 </details>
 
-| ![地坛公园银杏大道，北京，中国](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![地坛公园银杏大道，北京，中国](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Black lava beach, El Golfo, Lanzarote, Canary Islands, Spain](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black lava beach, El Golfo, Lanzarote, Canary Islands, Spain](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_1080x1920.jpg) |
+
+### 20260923
+
+> Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Most landmarks were built by history. This one was built for a story. Hobbiton Movie Set sits in Matamata, New Zealand, on a working sheep farm that caught the eye of filmmakers scouting locations for The Lord of the Rings in 1998. The hills already looked Shire-like; round doors, tidy gardens, and curling chimneys completed the illusion. The set was later rebuilt for The Hobbit films and became a destination for those eager to step into Middle-earth.
+> 
+> That feels especially fitting during Tolkien Week, the calendar week containing Hobbit Day on September 22. What began as Bilbo and Frodo Baggins' shared birthday in J.R.R. Tolkien's novels became a real-world excuse for feasts, costumes, readings, and second breakfasts. First proclaimed by the American Tolkien Society in 1978, these celebrations honor a writer who did far more than tell stories: he created languages, legends, maps, and songs so richly detailed that generations of readers have treated a fictional world as a place worth returning to.
+> 
+> 
+
+</details>
+
+| ![Tolkien Week](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tolkien Week](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_1080x1920.jpg) |
 
 ### 20260922
 
-> 瓜兹曼山口附近的秋日山杨林，犹他州，美国 (© Danita Delimont/Shutterstock)
+> Fall aspen trees near Guardsman Pass, Utah, USA (© Danita Delimont/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 在犹他州瓜兹曼山口附近，季节的变化以金色写满山坡。为美国西部染上色彩的山杨中，有许多是美洲山杨——北美分布最广的本土树种。眼前看似由一棵棵独立树木组成的森林，往往有着截然不同的真相：许多山杨形成彼此相连的无性系群落，树干从共享的根系网络中长出，并与相邻树干拥有相同的遗传密码。
+> The autumn equinox marks a turning point in the Northern Hemisphere. Occurring each September, it is the moment when the sun crosses the equator heading south, and day and night are nearly equal in length. After this celestial balance, daylight gradually shrinks as the journey toward winter begins.
 > 
-> 即使叶片变黄飘落，这个生物体仍有很大一部分在地下存活。山杨可以依靠根系熬过冬季，静静地为未来的生长做准备。秋分或许宣告夏季结束，但在这些非凡的林地中，生命从未真正停歇。
+> Near Guardsman Pass in Utah, the change is written across the mountainsides in gold. Many of the aspens coloring the American West are quaking aspens, the most widely distributed native tree species in North America. What appears to be a forest of individuals is often something else entirely: many aspens grow in connected colonies, with trunks emerging from a shared root network and carrying the same genetic code as their neighbors.
 > 
-> 
+> Even as their leaves turn yellow and fall, much of the organism remains alive below ground. Aspens can persist through winter via their root systems, quietly preparing for future growth. The autumn equinox may signal summer's end, but in these remarkable groves, life never truly pauses.
 
 </details>
 
-| ![瓜兹曼山口，犹他州，美国](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![瓜兹曼山口，犹他州，美国](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Autumn equinox](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn equinox](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_1080x1920.jpg) |
 
 ### 20260921
 
-> 正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国 (© Suzi Eszterhas/Minden Pictures)
+> Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)
 
 <details>
 <summary>Description</summary>
 
-> 很少有动物既能称得上梳理皮毛的高手，又是水下森林的守护者。正因如此，每年9月最后一个完整周举行的海獭认知周鼓励人们进一步了解这些非凡的海洋哺乳动物，以及它们面临的种种挑战。
+> Few animals can claim to be both expert groomers and guardians of underwater forests. That's why Sea Otter Awareness Week, held each year during the last full week of September, encourages people to discover more about these remarkable marine mammals and the challenges they face.
 > 
-> 在今天的图片中，一只海獭正在美国加利福尼亚州蒙特雷湾梳理皮毛。这种行为绝不只是一项日常习惯。与海豹和鲸不同，海獭几乎没有用于保温的脂肪层，因此要依靠所有动物中最浓密的皮毛。细致清洁能让空气留存在毛层中，形成防水层，帮助它们在寒冷的太平洋中保持温暖。海獭也被视为关键种。它们以海胆和其他无脊椎动物为食，在保护海带森林方面发挥着至关重要的作用；海带森林则为不计其数的海洋生物提供栖息地。这些魅力十足的哺乳动物一度因毛皮贸易而濒临灭绝，如今依然是坚韧生命力与海岸保护的象征。
+> In today's image, a sea otter grooms its fur in Monterey Bay, California. This behavior is far more than a daily ritual. Unlike seals and whales, sea otters have little insulating blubber, so they rely on the densest fur of any animal. Careful cleaning traps air within their coat, creating a waterproof layer that helps them stay warm in the cold Pacific. Sea otters are also considered a keystone species. By feeding on sea urchins and other invertebrates, they play a vital role in protecting kelp forests, which provide habitat for countless marine organisms. Once pushed to the brink by the fur trade, these charismatic mammals remain symbols of resilience and coastal conservation.
 > 
 > 
 
 </details>
 
-| ![海獭认知周](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![海獭认知周](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1080x1920.jpg) |
 
 ### 20260920
 
-> 日落时分的埃菲尔铁塔，巴黎，法国 (© Alexander Spatari/Getty Images)
+> Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 几乎没有哪座城市像巴黎这样被赋予如此多的浪漫想象。然而，这座法国首都的历史并非始终像埃菲尔铁塔背后的落日霞光一样绚丽。铁塔为1889年世界博览会而建；这届世博会纪念法国大革命爆发一百周年，而铁塔最初计划作为博览会入口处的核心建筑。由工程师古斯塔夫·埃菲尔及其团队设计的这座钢铁地标，从战神广场拔地而起，高度接近1,000英尺，并成为当时世界上最高的建筑。
+> No other city is nearly as romanticized as Paris. Yet the French capital's history has not always been as rosy as the sunset glowing behind the Eiffel Tower. Built for the 1889 Exposition Universelle, or the World's Fair, which marked the centennial of the start of the French Revolution, the tower was originally intended to serve as the fair's entrance centerpiece. Designed by engineer Gustave Eiffel and his team, the iron landmark rose nearly 1,000 feet above the Champ de Mars and became the tallest structure in the world at the time.
 > 
-> 许多当地人曾批评这一大胆设计，但它很快便激发了公众的想象力。世博会期间，数百万人前来参观这座纪念建筑，并欣赏他们此前从未体验过的全景视野。
+> Many locals criticized the bold design, but it quickly captured the public's imagination. During the World's Fair, millions came to see the monument and enjoy panoramic views unlike any they had experienced before.
 > 
-> 如今，游客可以沿塞纳河漫步，探访这座不断重塑自我的城市中的古老街区和各类博物馆。夜幕降临，埃菲尔铁塔在夜空下熠熠生辉，依然是法国创造力、雄心与韧性的有力象征。
+> Today, visitors can stroll along the Seine and explore old neighborhoods and museums throughout a city that continues to reinvent itself. As evening falls and the Eiffel Tower glows against the night sky, it remains a powerful symbol of French creativity, ambition, and resilience.
 
 </details>
 
-| ![法国巴黎日落时分的埃菲尔铁塔](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![法国巴黎日落时分的埃菲尔铁塔](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Eiffel Tower at sunset, Paris, France](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Eiffel Tower at sunset, Paris, France](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1080x1920.jpg) |
 
 ### 20260919
 
-> 阿尔卑斯长号演奏者，巴伐利亚州，德国 (© U. J. Alexander/Shutterstock)
+> Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)
 
 <details>
 <summary>Description</summary>
 
-> 慕尼黑啤酒节于今天开幕，抵达德国巴伐利亚州的游客或许会听到一种甚至比这一著名节日本身更古老的声音：阿尔卑斯长号深沉而浑厚的鸣响。这种传统的阿尔卑斯乐器与巴伐利亚、奥地利和瑞士的文化紧密相连；过去，牧羊人曾用它跨越山谷彼此传递信息。
+> As Oktoberfest opens today, visitors arriving in Bavaria, Germany may hear a sound even older than the famous festival itself: the deep, resonant voice of the alphorn. This traditional Alpine instrument is closely linked to the culture of Bavaria, Austria, and Switzerland, where it once helped shepherds communicate across mountain valleys.
 > 
-> 阿尔卑斯长号是一种细长的木制管乐器，通常长约11.5英尺。它一般以云杉木制成，没有活塞、按键或指孔。演奏者通过木制吹嘴，精细控制气息和嘴唇的张力，从而奏出不同的音符。
+> An alphorn is a long wooden wind instrument, typically about 11.5 feet in length. Usually crafted from spruce, it has no valves, keys, or finger holes. Instead, musicians create different notes by carefully controlling their breath and lip tension through a wooden mouthpiece.
 > 
-> 如今，阿尔卑斯长号演奏者会在民俗庆典、文化活动和慕尼黑啤酒节聚会中演出，让这项传承数百年的传统延续至今。它温暖而回荡的音色与阿尔卑斯地区的景致优美交融，将人们与乡村生活和当地文化遗产联系起来。对许多节庆参与者而言，阿尔卑斯长号令人难忘地提醒人们：慕尼黑啤酒节所庆祝的不仅是美食、音乐和社群，同样也是巴伐利亚文化。如今，阿尔卑斯长号演奏者会在民俗庆典、文化活动和慕尼黑啤酒节聚会中演出，让这项传承数百年的传统延续至今。它温暖而回荡的音色与阿尔卑斯地区的景致优美交融，将人们与乡村生活和当地文化遗产联系起来。对许多节庆参与者而言，阿尔卑斯长号令人难忘地提醒人们：慕尼黑啤酒节所庆祝的不仅是美食、音乐和社群，同样也是巴伐利亚文化。
+> Today, alphorn players perform at folk celebrations, cultural events, and Oktoberfest gatherings, keeping a centuries-old tradition alive. Its warm, echoing tones blend beautifully with the scenery of the Alpine region, offering a link to rural life and local heritage. For many festivalgoers, the alphorn provides a memorable reminder that Oktoberfest celebrates Bavarian culture as much as food, music, and community.
 
 </details>
 
-| ![德国慕尼黑啤酒节](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![德国慕尼黑啤酒节](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Oktoberfest, Germany](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest, Germany](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1080x1920.jpg) |
 
 ### 20260918
 
-> 温纳茨山口，峰区国家公园，英格兰 (© Daniel_Kay/Getty Images)
+> Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在英格兰峰区，一条蜿蜒的长路从已有3亿多年历史的岩石间穿过。如此漫长的地质时间尺度本就令人惊叹，而这条路还穿越了温纳茨山口：这是一道狭窄的石灰岩峡谷，高耸的峭壁展现出远古海洋曾经覆盖英国这一地区的痕迹。
+> A long, winding road cuts through rocks more than 300 million years old in England's Peak District. As if that geological timescale were not remarkable enough, the road passes through Winnats Pass, a narrow limestone gorge whose towering cliffs reveal the ancient seas that once covered this part of Britain.
 > 
-> 然而，温纳茨山口只是英国首座国家公园——峰区国家公园的亮点之一。在这里，葱郁的石灰岩谷地逐渐过渡为一望无际的砂岩荒原，山丘下还隐匿着洞穴系统。游客可以沿壮观的山脊徒步，探索曾由铅矿工开采的地下洞窟，也可以漫步于卡斯尔顿和贝克韦尔等风景如画的社区。英格兰很少有地方能在一片景观中汇聚如此丰富的地质多样性和户外探险体验。无论从狂风劲吹的山顶远眺，还是身处洞窟深处，峰区都是一个每次转弯都会展现新景象的地方。
+> Yet Winnats Pass is only one highlight of the Peak District National Park, Britain's first national park. Here, green limestone valleys give way to sweeping gritstone moorlands, while hidden cave systems run beneath the hills. Visitors can hike along dramatic ridges, explore underground caverns once worked by lead miners, and wander through picturesque communities such as Castleton and Bakewell. Few places in England pack so much geological diversity and outdoor adventure into a single landscape. Whether viewed from a windswept hilltop or from the depths of a cavern, the Peak District is a place where every turn reveals something new.
 > 
 > 
 
 </details>
 
-| ![英格兰峰区国家公园温纳茨山口](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![英格兰峰区国家公园温纳茨山口](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Winnats Pass, Peak District National Park, England](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winnats Pass, Peak District National Park, England](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1080x1920.jpg) |
-
-### 20260917
-
-> 桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国 (© Marco Bottigelli/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 每年夏末秋初，法国最令人期待的传统之一——“vendanges”葡萄采摘季——如期而至。采摘时间因葡萄酒产区而异，并取决于天气状况、日照以及果实的成熟度。对许多葡萄园而言，采收仍主要依靠人工，工作人员会仔细挑选一串串葡萄，用于酿造法国一些最负盛名的葡萄酒。
-> 
-> 在勃艮第伯恩丘南端的桑特奈，这一景象格外壮观。正如今天的画面所示，一排排葡萄藤沿起伏山丘铺展，山坡上方矗立着索林风车；这座修复后的19世纪地标俯瞰着周围的乡野和葡萄园。
-> 
-> 几个世纪以来，葡萄采收一直塑造着法国人的生活。它的重要性甚至在法国共和历中留下回响：共和历以收获葡萄来命名其第一个月份，提醒人们葡萄酒酿造与法国历史交织得何等深厚。随着篮筐渐渐装满、葡萄园披上秋日色彩，农业、传统遗产与庆典在这个季节交融为一种独具法国特色的仪式。
-
-</details>
-
-| ![桑特奈葡萄酒产区，伯恩丘，勃艮第，法国](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![桑特奈葡萄酒产区，伯恩丘，勃艮第，法国](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1080x1920.jpg) |jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
