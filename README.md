@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260925
+
+> Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> What if the full moon were the guest of honor at your family dinner? That is the idea behind the Mid-Autumn Festival, also known as the Moon Festival. Celebrated on the 15th day of the eighth lunar month, it is one of the most important festivals in Chinese culture. Its roots trace back more than 3,000 years to moon-honoring rituals during the Zhou Dynasty. Its best-known legend tells of Chang'e, who drank an elixir of immortality and rose to the moon.
+> 
+> Mooncakes are the celebration's signature treat. Their round shape symbolizes completeness and reunion. Folklore claims that rebels once hid secret messages to overthrow the Mongol rulers inside mooncakes during the Yuan Dynasty.
+> 
+> The festival has also inspired matchmaking customs, earning comparisons to a lunar Valentine's Day. And while the Mid-Autumn moon is celebrated for its brightness, science says it is not necessarily the year's brightest. With legends, lanterns, and mooncakes, this festival has plenty to look up to.
+
+</details>
+
+| ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_1080x1920.jpg) |
+
 ### 20260924
 
 > Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)
@@ -112,26 +131,7 @@
 
 | ![Oktoberfest, Germany](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest, Germany](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1080x1920.jpg) |
-
-### 20260918
-
-> Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> A long, winding road cuts through rocks more than 300 million years old in England's Peak District. As if that geological timescale were not remarkable enough, the road passes through Winnats Pass, a narrow limestone gorge whose towering cliffs reveal the ancient seas that once covered this part of Britain.
-> 
-> Yet Winnats Pass is only one highlight of the Peak District National Park, Britain's first national park. Here, green limestone valleys give way to sweeping gritstone moorlands, while hidden cave systems run beneath the hills. Visitors can hike along dramatic ridges, explore underground caverns once worked by lead miners, and wander through picturesque communities such as Castleton and Bakewell. Few places in England pack so much geological diversity and outdoor adventure into a single landscape. Whether viewed from a windswept hilltop or from the depths of a cavern, the Peak District is a place where every turn reveals something new.
-> 
-> 
-
-</details>
-
-| ![Winnats Pass, Peak District National Park, England](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Winnats Pass, Peak District National Park, England](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1080x1920.jpg) |k_EN-US6112068451_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1080x1920.jpg) |jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
