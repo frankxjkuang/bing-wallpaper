@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260926
+
+> Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> What do a bear's ears, a house on fire, and a road packed with hairpin turns have in common? They're all part of the story of southeastern Utah's public lands.
+> 
+> On National Public Lands Day, Cedar Mesa and nearby Muley Point offer a remarkable mix of ancient history and high-desert scenery. Bears Ears National Monument encompasses important cultural and natural resources, including archaeological sites that reflect thousands of years of human history. Its name comes from twin buttes that resemble a bear's ears.
+> 
+> Rising to roughly 6,500 feet, Cedar Mesa is carved by deep canyons, including Grand Gulch, an archaeological treasure trove. Mule Canyon's House on Fire gets its name from sandstone that glows orange in morning light. Nearby Muley Point overlooks the San Juan River, Valley of the Gods, Monument Valley, and Navajo Mountain. Reaching it via the steep, unpaved Moki Dugway gives new meaning to the word 'switchback.'
+
+</details>
+
+| ![National Public Lands Day](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Public Lands Day](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_1080x1920.jpg) |
+
 ### 20260925
 
 > Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Eiffel Tower at sunset, Paris, France](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Eiffel Tower at sunset, Paris, France](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1080x1920.jpg) |
-
-### 20260919
-
-> Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> As Oktoberfest opens today, visitors arriving in Bavaria, Germany may hear a sound even older than the famous festival itself: the deep, resonant voice of the alphorn. This traditional Alpine instrument is closely linked to the culture of Bavaria, Austria, and Switzerland, where it once helped shepherds communicate across mountain valleys.
-> 
-> An alphorn is a long wooden wind instrument, typically about 11.5 feet in length. Usually crafted from spruce, it has no valves, keys, or finger holes. Instead, musicians create different notes by carefully controlling their breath and lip tension through a wooden mouthpiece.
-> 
-> Today, alphorn players perform at folk celebrations, cultural events, and Oktoberfest gatherings, keeping a centuries-old tradition alive. Its warm, echoing tones blend beautifully with the scenery of the Alpine region, offering a link to rural life and local heritage. For many festivalgoers, the alphorn provides a memorable reminder that Oktoberfest celebrates Bavarian culture as much as food, music, and community.
-
-</details>
-
-| ![Oktoberfest, Germany](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Oktoberfest, Germany](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1080x1920.jpg) |k_EN-US6112068451_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1080x1920.jpg) |k_EN-US6112068451_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1080x1920.jpg) |jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
