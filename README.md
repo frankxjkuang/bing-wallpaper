@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260927
+
+> Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Think of this as underwater hide-and-seek: the sea pen stands out while the crab blends in. Today's image comes from the waters surrounding Komodo National Park in Indonesia, established in 1980 and named after the Komodo dragon, the world's largest living lizard. The protected area includes islands, mangroves, seagrass beds, and coral reefs. Located between the Pacific and Indian Oceans, the park is shaped by powerful currents that support a rich diversity of marine life, including species that rely on camouflage to survive.
+> 
+> Decorator crabs are masters of disguise. They attach algae, sponges, hydroids, and other marine materials to hooked hairs on their shells, creating underwater camouflage. Sea pens, soft corals anchored to the seafloor, provide an ideal hiding place. A sea pen's branching structure helps break up the crab's outline, making it harder for predators to spot among the drifting currents. Keep your distance during night dives: some species can briefly glow when disturbed, ruining the illusion.
+> 
+> 
+
+</details>
+
+| ![Decorator crab on a sea pen, Komodo National Park, Indonesia](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Decorator crab on a sea pen, Komodo National Park, Indonesia](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |
+
 ### 20260926
 
 > Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1080x1920.jpg) |
-
-### 20260920
-
-> Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> No other city is nearly as romanticized as Paris. Yet the French capital's history has not always been as rosy as the sunset glowing behind the Eiffel Tower. Built for the 1889 Exposition Universelle, or the World's Fair, which marked the centennial of the start of the French Revolution, the tower was originally intended to serve as the fair's entrance centerpiece. Designed by engineer Gustave Eiffel and his team, the iron landmark rose nearly 1,000 feet above the Champ de Mars and became the tallest structure in the world at the time.
-> 
-> Many locals criticized the bold design, but it quickly captured the public's imagination. During the World's Fair, millions came to see the monument and enjoy panoramic views unlike any they had experienced before.
-> 
-> Today, visitors can stroll along the Seine and explore old neighborhoods and museums throughout a city that continues to reinvent itself. As evening falls and the Eiffel Tower glows against the night sky, it remains a powerful symbol of French creativity, ambition, and resilience.
-
-</details>
-
-| ![Eiffel Tower at sunset, Paris, France](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Eiffel Tower at sunset, Paris, France](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1080x1920.jpg) |tps://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1080x1920.jpg) |k_EN-US6112068451_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1080x1920.jpg) |6200857270_1080x1920.jpg) |k_EN-US6112068451_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1080x1920.jpg) |jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
