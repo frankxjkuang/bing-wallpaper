@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260928
+
+> Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Most first-time visitors know Jaipur, in Rajasthan, India, as the Pink City, but the earlier royal capital was centered on Amber Fort. That's where much of the dynasty's political and architectural history was shaped. The fort developed over more than a century, beginning under Raja Man Singh I in 1592 and continuing under later Kachwaha rulers who controlled the kingdom that eventually became Jaipur State. The royal family moved to the newly planned city of Jaipur in 1727, but Amber continued to serve ceremonial functions.
+> 
+> Architecturally, the fort combines defensive Rajput features with Mughal-inspired arches, courtyards, painted surfaces, and marble detailing. The Sattais Katcheri Hall, seen in the image, takes its name from its 27 pillars. The structure is associated with administrative purposes. The fort also includes audience halls, royal courtyards, and the ornate Sheesh Mahal. Explore the sprawling complex, experience the warmth of 'Padharo Sa,' and save room for a plate of dal baati churma—baked wheat dumplings, lentils, and a sweet crumbly dessert.
+> 
+> 
+
+</details>
+
+| ![Amber Fort near Jaipur, Rajasthan, India](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Amber Fort near Jaipur, Rajasthan, India](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1080x1920.jpg) |
+
 ### 20260927
 
 > Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)
@@ -112,28 +131,7 @@
 
 | ![Autumn equinox](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn equinox](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_1080x1920.jpg) |
-
-### 20260921
-
-> Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Few animals can claim to be both expert groomers and guardians of underwater forests. That's why Sea Otter Awareness Week, held each year during the last full week of September, encourages people to discover more about these remarkable marine mammals and the challenges they face.
-> 
-> In today's image, a sea otter grooms its fur in Monterey Bay, California. This behavior is far more than a daily ritual. Unlike seals and whales, sea otters have little insulating blubber, so they rely on the densest fur of any animal. Careful cleaning traps air within their coat, creating a waterproof layer that helps them stay warm in the cold Pacific. Sea otters are also considered a keystone species. By feeding on sea urchins and other invertebrates, they play a vital role in protecting kelp forests, which provide habitat for countless marine organisms. Once pushed to the brink by the fur trade, these charismatic mammals remain symbols of resilience and coastal conservation.
-> 
-> 
-
-</details>
-
-| ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Sea Otter Awareness Week](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1080x1920.jpg) |6200857270_1080x1920.jpg) |k_EN-US6112068451_1080x1920.jpg) |0.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1080x1920.jpg) |jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1080x1920.jpg) |jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
