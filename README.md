@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260929
+
+> The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Seen from above, the Kasilof River winds like a ribbon of turquoise through Alaska's Kenai Peninsula. The vivid blue water comes from glacial silt carried downstream from Tustumena Lake, one of the largest freshwater lakes in the state. Flowing about 17 miles before emptying into Cook Inlet, the river is shorter than its famous neighbor, the Kenai, but no less remarkable.
+> 
+> The Kasilof begins in a landscape shaped by ice and remains closely tied to the region's fishing culture. Long an important resource for the Dena'ina people, the river later became central to commercial, subsistence, and recreational fishing. Today, anglers come for salmon runs, while visitors explore nearby recreation sites, campgrounds, and nature trails. The community of Kasilof itself is a small fishing town on the peninsula's west coast, where river, forest, and estuary habitats support abundant wildlife. Whether viewed from a drift boat or from the air, the Kasilof offers a striking glimpse of Alaska's glacial origins and enduring connection to the water.
+> 
+> 
+
+</details>
+
+| ![The blue, glacier-fed waters of the Kasilof River, Alaska](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The blue, glacier-fed waters of the Kasilof River, Alaska](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg) |
+
 ### 20260928
 
 > Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Tolkien Week](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tolkien Week](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_1080x1920.jpg) |
-
-### 20260922
-
-> Fall aspen trees near Guardsman Pass, Utah, USA (© Danita Delimont/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> The autumn equinox marks a turning point in the Northern Hemisphere. Occurring each September, it is the moment when the sun crosses the equator heading south, and day and night are nearly equal in length. After this celestial balance, daylight gradually shrinks as the journey toward winter begins.
-> 
-> Near Guardsman Pass in Utah, the change is written across the mountainsides in gold. Many of the aspens coloring the American West are quaking aspens, the most widely distributed native tree species in North America. What appears to be a forest of individuals is often something else entirely: many aspens grow in connected colonies, with trunks emerging from a shared root network and carrying the same genetic code as their neighbors.
-> 
-> Even as their leaves turn yellow and fall, much of the organism remains alive below ground. Aspens can persist through winter via their root systems, quietly preparing for future growth. The autumn equinox may signal summer's end, but in these remarkable groves, life never truly pauses.
-
-</details>
-
-| ![Autumn equinox](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn equinox](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_1080x1920.jpg) |d landscape 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1080x1920.jpg) |jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_1080x1920.jpg) |h?id=OHR.Santenay_ZH-CN5676942384_1080x1920.jpg) |jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
