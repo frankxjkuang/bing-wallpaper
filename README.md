@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20260930
+
+> Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Balanced on a slender stalk in Norfolk, England, the male bearded reedling in today's image stands out with a pale blue-gray head, a bright orange bill, and the black facial markings that give the species its name. Despite its striking appearance, this small bird spends much of its life hidden among the dense wetland vegetation of marshes, lakeshores, and reed beds.
+> 
+> About the size of a chickadee, the bearded reedling is an agile climber, easily navigating flexible stems that bend in the wind. Its long tail helps it maintain balance as it searches for food. During the warmer months, it feeds mainly on insects, spiders, and other small invertebrates. When winter arrives, it switches to eating seeds, allowing it to remain in the same habitat year-round. Bearded reedlings are also highly social. Families often gather in flocks, communicating with distinctive ringing calls that carry across the wetlands. Their lively movements and unique features make them one of Europe's most recognizable wetland birds.
+> 
+> 
+
+</details>
+
+| ![Male bearded reedling, Norfolk, England](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Male bearded reedling, Norfolk, England](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_1080x1920.jpg) |
+
 ### 20260929
 
 > The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Black lava beach, El Golfo, Lanzarote, Canary Islands, Spain](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black lava beach, El Golfo, Lanzarote, Canary Islands, Spain](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_1080x1920.jpg) |
-
-### 20260923
-
-> Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Most landmarks were built by history. This one was built for a story. Hobbiton Movie Set sits in Matamata, New Zealand, on a working sheep farm that caught the eye of filmmakers scouting locations for The Lord of the Rings in 1998. The hills already looked Shire-like; round doors, tidy gardens, and curling chimneys completed the illusion. The set was later rebuilt for The Hobbit films and became a destination for those eager to step into Middle-earth.
-> 
-> That feels especially fitting during Tolkien Week, the calendar week containing Hobbit Day on September 22. What began as Bilbo and Frodo Baggins' shared birthday in J.R.R. Tolkien's novels became a real-world excuse for feasts, costumes, readings, and second breakfasts. First proclaimed by the American Tolkien Society in 1978, these celebrations honor a writer who did far more than tell stories: he created languages, legends, maps, and songs so richly detailed that generations of readers have treated a fictional world as a place worth returning to.
-> 
-> 
-
-</details>
-
-| ![Tolkien Week](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Tolkien Week](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_1080x1920.jpg) |h?id=OHR.Santenay_ZH-CN5676942384_1080x1920.jpg) |jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_1080x1920.jpg) |g) |jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
