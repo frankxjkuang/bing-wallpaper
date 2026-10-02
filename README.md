@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261001
+
+> Sunset from Olmsted Point, Yosemite National Park, California, USA (© Robb Hirsch/Tandem Stills + Motion)
+
+<details>
+<summary>Description</summary>
+
+> On October 1, 1890, Yosemite became the nation's third national park. More than a century later, it still feels like a place that operates on geological time rather than human schedules. From Olmsted Point, the overlook in today's image, that timescale is impossible to miss. The smooth granite underfoot was sculpted by glaciers, while scattered boulders known as glacial erratics were carried here by ice and abandoned when it melted.
+> 
+> The view also turns some of Yosemite's most famous landmarks inside out. Half Dome, usually seen rising above Yosemite Valley, reveals its sheer north face from here, making the familiar icon look almost unfamiliar. Beyond it lie Tenaya Canyon, Clouds Rest, Tenaya Lake, and pale stone that records millions of years of uplift, erosion, and ice. Named for landscape architect Frederick Law Olmsted and his son, Frederick Law Olmsted Jr., whose conservation work helped shape America's park movement, Olmsted Point offers a reminder that Yosemite is not just scenic; it is a landscape still telling its story in stone.
+> 
+> 
+
+</details>
+
+| ![Yosemite National Park anniversary](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yosemite National Park anniversary](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_1080x1920.jpg) |
+
 ### 20260930
 
 > Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_1080x1920.jpg) |
-
-### 20260924
-
-> Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> On Lanzarote, part of Spain's Canary Islands, geology got carried away. Dark sand meets the Atlantic beneath cliffs streaked with ocher and rust, the handiwork of volcanic activity spanning millions of years. One chapter of this story arrived remarkably recently: between 1730 and 1736, numerous vents opened across Lanzarote, sending lava over dozens of square miles and burying roads, villages, and farmland.
-> 
-> The beach in the image sits beside El Golfo, a tiny fishing village on the island's western shore. The settlement borders Los Volcanes Natural Park, while boats, seafood restaurants, and crashing waves carry on as if this scenery were perfectly ordinary. Nearby, the famous green lagoon Charco de los Clicos occupies a partially collapsed volcanic crater linked to the sea through underground fissures. Its improbable emerald color comes partly from algae, bringing green water, black sand, and blue sea into one strikingly vivid frame. No filter required. El Golfo comes with its own color palette.
-> 
-> 
-
-</details>
-
-| ![Black lava beach, El Golfo, Lanzarote, Canary Islands, Spain](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black lava beach, El Golfo, Lanzarote, Canary Islands, Spain](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_1080x1920.jpg) |g) |jpg) |x1920.jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_1080x1920.jpg) |jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
