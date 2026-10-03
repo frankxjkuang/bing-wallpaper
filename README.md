@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261002
+
+> Chattooga River in the Appalachian Mountains, North Carolina (© mtilghma/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Rivers have long played an important role in life across the United States, supporting communities, wildlife, and industry. President Lyndon B. Johnson signed the Wild and Scenic Rivers Act into law on October 2, 1968. It created a national system to protect rivers and river segments with outstanding scenic, recreational, geologic, fish and wildlife, historic, or cultural values. The Act preserves designated rivers in a free-flowing condition, protects their water quality, and aims to safeguard the qualities that made them worthy of designation.
+> 
+> Featured in today's image, the Chattooga River became part of the system in 1974, with nearly 57 miles designated across Georgia, North Carolina, and South Carolina. Flowing through the Appalachian Mountains, the river is known for its scenery, whitewater recreation, and wildlife. Often called the crown jewel of the Southeast, the Chattooga offers opportunities for rafting, kayaking, and canoeing. It even served as the model for the fictional Cahulawassee River in James Dickey's 1970 novel 'Deliverance.'
+> 
+> 
+
+</details>
+
+| ![Wild and Scenic Rivers Act](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wild and Scenic Rivers Act](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_1080x1920.jpg) |
+
 ### 20261001
 
 > Sunset from Olmsted Point, Yosemite National Park, California, USA (© Robb Hirsch/Tandem Stills + Motion)
@@ -112,26 +131,7 @@
 
 | ![National Public Lands Day](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Public Lands Day](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_1080x1920.jpg) |
-
-### 20260925
-
-> Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> What if the full moon were the guest of honor at your family dinner? That is the idea behind the Mid-Autumn Festival, also known as the Moon Festival. Celebrated on the 15th day of the eighth lunar month, it is one of the most important festivals in Chinese culture. Its roots trace back more than 3,000 years to moon-honoring rituals during the Zhou Dynasty. Its best-known legend tells of Chang'e, who drank an elixir of immortality and rose to the moon.
-> 
-> Mooncakes are the celebration's signature treat. Their round shape symbolizes completeness and reunion. Folklore claims that rebels once hid secret messages to overthrow the Mongol rulers inside mooncakes during the Yuan Dynasty.
-> 
-> The festival has also inspired matchmaking customs, earning comparisons to a lunar Valentine's Day. And while the Mid-Autumn moon is celebrated for its brightness, science says it is not necessarily the year's brightest. With legends, lanterns, and mooncakes, this festival has plenty to look up to.
-
-</details>
-
-| ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mid-Autumn Festival](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_1080x1920.jpg) |jpg) |e 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_1080x1920.jpg) |ait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
