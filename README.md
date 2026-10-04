@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261003
+
+> Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska (© Danny Green/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> The season of big meals, bigger bellies, and stocking up for winter is here. In Alaska, brown bears at Lake Clark National Park and Preserve make the most of the food still available in October. They feed on fish, sedges, berries, roots, clams, and other foods to build up fat reserves. Some can weigh more than 1,000 pounds before entering their dens for hibernation. That stored fat helps them survive the winter, when they do not eat or drink.
+> 
+> Silver Salmon Creek is a bear buffet, and bear-watching is a popular activity in this national park. One of the nation's most remote units, Lake Clark National Park and Preserve spans more than 4 million acres and can be reached by plane or boat. Its Cook Inlet coast is also home to moose, wolves, foxes, and marine mammals. If you're planning a visit, come prepared for wilderness, wildlife, and a place where the bears get one of the best tables.
+> 
+> 
+
+</details>
+
+| ![Brown bear in Lake Clark National Park and Preserve, Alaska](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Brown bear in Lake Clark National Park and Preserve, Alaska](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_1080x1920.jpg) |
+
 ### 20261002
 
 > Chattooga River in the Appalachian Mountains, North Carolina (© mtilghma/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Decorator crab on a sea pen, Komodo National Park, Indonesia](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Decorator crab on a sea pen, Komodo National Park, Indonesia](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |
-
-### 20260926
-
-> Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> What do a bear's ears, a house on fire, and a road packed with hairpin turns have in common? They're all part of the story of southeastern Utah's public lands.
-> 
-> On National Public Lands Day, Cedar Mesa and nearby Muley Point offer a remarkable mix of ancient history and high-desert scenery. Bears Ears National Monument encompasses important cultural and natural resources, including archaeological sites that reflect thousands of years of human history. Its name comes from twin buttes that resemble a bear's ears.
-> 
-> Rising to roughly 6,500 feet, Cedar Mesa is carved by deep canyons, including Grand Gulch, an archaeological treasure trove. Mule Canyon's House on Fire gets its name from sandstone that glows orange in morning light. Nearby Muley Point overlooks the San Juan River, Valley of the Gods, Monument Valley, and Navajo Mountain. Reaching it via the steep, unpaved Moki Dugway gives new meaning to the word 'switchback.'
-
-</details>
-
-| ![National Public Lands Day](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Public Lands Day](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_1080x1920.jpg) |ait 4K](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
