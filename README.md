@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261005
+
+> Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> What can a 28-inch-tall bird teach us about life? Quite a lot. On World Teachers' Day, the Adélie penguin offers a lesson plan packed with resourcefulness, resilience, and a little mischief. Found along the Antarctic coast, the species was named after Adèle, the wife of French explorer Jules Dumont d'Urville, during the expedition that encountered the penguins in 1840.
+> 
+> Adélie penguins are famous for building nests from pebbles. Males collect stones to attract mates, but some also help themselves to pebbles from neighboring nests. Small but surprisingly feisty, they defend their territory with their flippers when challenged. When crossing snowy terrain, they have another clever trick: they lie on their bellies and slide across the ice, a move known as tobogganing.
+> 
+> In the water, Adélies are agile swimmers, reaching speeds of several miles per hour as they hunt for food or evade predators such as leopard seals. So, today's lesson? Adapt, stay determined, and, when necessary, go with the slide.
+
+</details>
+
+| ![World Teachers' Day](https://cn.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Teachers' Day](https://cn.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_1080x1920.jpg) |
+
 ### 20261004
 
 > Artemis I moon rocket at Launch Complex 39B, Kennedy Space Center, Florida, June 15, 2022 (© EVA MARIE UZCATEGUI/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![The blue, glacier-fed waters of the Kasilof River, Alaska](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The blue, glacier-fed waters of the Kasilof River, Alaska](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg) |
-
-### 20260928
-
-> Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Most first-time visitors know Jaipur, in Rajasthan, India, as the Pink City, but the earlier royal capital was centered on Amber Fort. That's where much of the dynasty's political and architectural history was shaped. The fort developed over more than a century, beginning under Raja Man Singh I in 1592 and continuing under later Kachwaha rulers who controlled the kingdom that eventually became Jaipur State. The royal family moved to the newly planned city of Jaipur in 1727, but Amber continued to serve ceremonial functions.
-> 
-> Architecturally, the fort combines defensive Rajput features with Mughal-inspired arches, courtyards, painted surfaces, and marble detailing. The Sattais Katcheri Hall, seen in the image, takes its name from its 27 pillars. The structure is associated with administrative purposes. The fort also includes audience halls, royal courtyards, and the ornate Sheesh Mahal. Explore the sprawling complex, experience the warmth of 'Padharo Sa,' and save room for a plate of dal baati churma—baked wheat dumplings, lentils, and a sweet crumbly dessert.
-> 
-> 
-
-</details>
-
-| ![Amber Fort near Jaipur, Rajasthan, India](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Amber Fort near Jaipur, Rajasthan, India](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg) |ll_EN-US9930812541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
