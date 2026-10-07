@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261006
+
+> Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> What if a mountain range could show you its geological history in stripes? At Zhangye National Geopark in China, the rocks do exactly that. Ridges roll across the landscape in bands of red, orange, yellow, brown, and other earthy tones. Known as the Danxia landform, this striking landscape was shaped by layers of sedimentary rock deposited over geological time. Tectonic forces later uplifted and folded the rocks, while weathering and erosion carved them into ridges, cliffs, gullies, and peaks.
+> 
+> The name Danxia literally translates to rosy clouds. The colors come from the rocks themselves, with minerals and chemical processes contributing to the different shades. Iron oxides, for instance, are responsible for much of its characteristic red coloring, while variations in minerals and sediment create its broader palette.
+> 
+> Designated as a UNESCO Global Geopark in 2020, Zhangye is located in Gansu, a region linked to the ancient Silk Road. For International Geodiversity Day, it is a colorful reminder that Earth's best artwork is rock-solid.
+
+</details>
+
+| ![International Geodiversity Day](https://cn.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Geodiversity Day](https://cn.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_1080x1920.jpg) |
+
 ### 20261005
 
 > Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Male bearded reedling, Norfolk, England](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Male bearded reedling, Norfolk, England](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_1080x1920.jpg) |
-
-### 20260929
-
-> The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Seen from above, the Kasilof River winds like a ribbon of turquoise through Alaska's Kenai Peninsula. The vivid blue water comes from glacial silt carried downstream from Tustumena Lake, one of the largest freshwater lakes in the state. Flowing about 17 miles before emptying into Cook Inlet, the river is shorter than its famous neighbor, the Kenai, but no less remarkable.
-> 
-> The Kasilof begins in a landscape shaped by ice and remains closely tied to the region's fishing culture. Long an important resource for the Dena'ina people, the river later became central to commercial, subsistence, and recreational fishing. Today, anglers come for salmon runs, while visitors explore nearby recreation sites, campgrounds, and nature trails. The community of Kasilof itself is a small fishing town on the peninsula's west coast, where river, forest, and estuary habitats support abundant wildlife. Whether viewed from a drift boat or from the air, the Kasilof offers a striking glimpse of Alaska's glacial origins and enduring connection to the water.
-> 
-> 
-
-</details>
-
-| ![The blue, glacier-fed waters of the Kasilof River, Alaska](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![The blue, glacier-fed waters of the Kasilof River, Alaska](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg) |ll_EN-US9930812541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_1080x1920.jpg) |=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg) |ll_EN-US9930812541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
