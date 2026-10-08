@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261007
+
+> Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> What if a forest could keep you guessing at every turn? At Puzzlewood, near Coleford in the Forest of Dean, England, winding paths lead through twisted trees, moss-covered rocks, and deep stone ravines. Its unusual rock formations, known as scowles, are natural geological features that were exposed and modified over time and later exploited for iron ore mining during the Roman period and possibly earlier. In 1848, a worker discovered more than 3,000 Roman-era coins hidden in earthenware jars inside a rock cavity, turning the woodland into a real-life treasure hunt.
+> 
+> Around 1.5 miles of paths, wooden bridges, and stone walkways guide visitors through the rugged landscape. Puzzlewood has also starred on screen, appearing in 'Star Wars: The Force Awakens,' 'Doctor Who,' 'Merlin,' and 'Cursed.' Local lore links its gnarled trees and mysterious atmosphere to J.R.R. Tolkien's Middle-earth forests, although there is no definitive proof.
+> 
+> 
+
+</details>
+
+| ![Puzzlewood, Forest of Dean, Gloucestershire, England](https://cn.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Puzzlewood, Forest of Dean, Gloucestershire, England](https://cn.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_1080x1920.jpg) |
+
 ### 20261006
 
 > Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Yosemite National Park anniversary](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yosemite National Park anniversary](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_1080x1920.jpg) |
-
-### 20260930
-
-> Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Balanced on a slender stalk in Norfolk, England, the male bearded reedling in today's image stands out with a pale blue-gray head, a bright orange bill, and the black facial markings that give the species its name. Despite its striking appearance, this small bird spends much of its life hidden among the dense wetland vegetation of marshes, lakeshores, and reed beds.
-> 
-> About the size of a chickadee, the bearded reedling is an agile climber, easily navigating flexible stems that bend in the wind. Its long tail helps it maintain balance as it searches for food. During the warmer months, it feeds mainly on insects, spiders, and other small invertebrates. When winter arrives, it switches to eating seeds, allowing it to remain in the same habitat year-round. Bearded reedlings are also highly social. Families often gather in flocks, communicating with distinctive ringing calls that carry across the wetlands. Their lively movements and unique features make them one of Europe's most recognizable wetland birds.
-> 
-> 
-
-</details>
-
-| ![Male bearded reedling, Norfolk, England](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Male bearded reedling, Norfolk, England](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_1080x1920.jpg) |=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg) |ll_EN-US9930812541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_1080x1920.jpg) |080x1920.jpg) |=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg) |ll_EN-US9930812541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
