@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261008
+
+> Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Something has clearly crossed a line. Off the coast of Mayotte in the Indian Ocean, this octopus has adopted a defensive posture that says: whatever is approaching should reconsider its life choices.
+> 
+> It's a warning octopuses can deliver with style. Instead of armor, they rely on transformation. Together, tiny muscular structures called papillae and pigment-filled chromatophore cells let them change color, pattern, and even skin texture within seconds. The result is an animal that can resemble rocks, coral, algae, or shadows. It doesn't simply blend into its surroundings. It becomes them.
+> 
+> And camouflage is only the opening act. Octopuses can vanish in a cloud of ink, squeeze through openings barely larger than their beak, solve puzzles, and explore with arms that contain most of their neurons. In a sense, each arm has a mind of its own. World Octopus Day celebrates one of the ocean's great evolutionary oddities: three hearts, eight arms, blue blood. Nature really went off -script with this one.
+
+</details>
+
+| ![World Octopus Day](https://cn.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Octopus Day](https://cn.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_1080x1920.jpg) |
+
 ### 20261007
 
 > Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Wild and Scenic Rivers Act](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wild and Scenic Rivers Act](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_1080x1920.jpg) |
-
-### 20261001
-
-> Sunset from Olmsted Point, Yosemite National Park, California, USA (© Robb Hirsch/Tandem Stills + Motion)
-
-<details>
-<summary>Description</summary>
-
-> On October 1, 1890, Yosemite became the nation's third national park. More than a century later, it still feels like a place that operates on geological time rather than human schedules. From Olmsted Point, the overlook in today's image, that timescale is impossible to miss. The smooth granite underfoot was sculpted by glaciers, while scattered boulders known as glacial erratics were carried here by ice and abandoned when it melted.
-> 
-> The view also turns some of Yosemite's most famous landmarks inside out. Half Dome, usually seen rising above Yosemite Valley, reveals its sheer north face from here, making the familiar icon look almost unfamiliar. Beyond it lie Tenaya Canyon, Clouds Rest, Tenaya Lake, and pale stone that records millions of years of uplift, erosion, and ice. Named for landscape architect Frederick Law Olmsted and his son, Frederick Law Olmsted Jr., whose conservation work helped shape America's park movement, Olmsted Point offers a reminder that Yosemite is not just scenic; it is a landscape still telling its story in stone.
-> 
-> 
-
-</details>
-
-| ![Yosemite National Park anniversary](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Yosemite National Park anniversary](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_1080x1920.jpg) |080x1920.jpg) |=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg) |ll_EN-US9930812541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_1080x1920.jpg) |080x1920.jpg) |=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg) |ll_EN-US9930812541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
