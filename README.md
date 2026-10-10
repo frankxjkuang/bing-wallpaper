@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261009
+
+> View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Just off the coast of Corsica, France, the Sanguinaires Islands rise from the Mediterranean as a small archipelago of four rugged, rocky islands. Viewed from a historic watchtower, they sit at the entrance to the Gulf of Ajaccio. Steep cliffs, centuries-old landmarks, and sweeping sea views have drawn visitors to the area for generations. Though the farthest island lies only about 1.2 miles from shore, the archipelago feels surprisingly remote, surrounded by open water and shaped by wind, waves, and salt spray.
+> 
+> Visitors can reach Mezu Mare, the largest island, via authorized boat services and explore its designated footpaths. Elsewhere, protected habitats provide refuge for nesting seabirds and hardy Mediterranean plants adapted to dry, windswept conditions. A lighthouse on Mezu Mare stands as a reminder of the archipelago's long maritime history and strategic position at the entrance to the gulf. Today, the Sanguinaires Islands offer dramatic scenery, wildlife, and traces of a rich seafaring heritage, creating one of Corsica's most memorable natural landscapes.
+> 
+> 
+
+</details>
+
+| ![View of the Sanguinaires Islands from Corsica, France](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![View of the Sanguinaires Islands from Corsica, France](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_1080x1920.jpg) |
+
 ### 20261008
 
 > Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Brown bear in Lake Clark National Park and Preserve, Alaska](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Brown bear in Lake Clark National Park and Preserve, Alaska](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_1080x1920.jpg) |
-
-### 20261002
-
-> Chattooga River in the Appalachian Mountains, North Carolina (© mtilghma/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Rivers have long played an important role in life across the United States, supporting communities, wildlife, and industry. President Lyndon B. Johnson signed the Wild and Scenic Rivers Act into law on October 2, 1968. It created a national system to protect rivers and river segments with outstanding scenic, recreational, geologic, fish and wildlife, historic, or cultural values. The Act preserves designated rivers in a free-flowing condition, protects their water quality, and aims to safeguard the qualities that made them worthy of designation.
-> 
-> Featured in today's image, the Chattooga River became part of the system in 1974, with nearly 57 miles designated across Georgia, North Carolina, and South Carolina. Flowing through the Appalachian Mountains, the river is known for its scenery, whitewater recreation, and wildlife. Often called the crown jewel of the Southeast, the Chattooga offers opportunities for rafting, kayaking, and canoeing. It even served as the model for the fictional Cahulawassee River in James Dickey's 1970 novel 'Deliverance.'
-> 
-> 
-
-</details>
-
-| ![Wild and Scenic Rivers Act](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wild and Scenic Rivers Act](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_1080x1920.jpg) |080x1920.jpg) |=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg) |ll_EN-US9930812541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_1080x1920.jpg) |0x1920.jpg) |=OHR.KasilofRiver_EN-US0047556055_1080x1920.jpg) |ll_EN-US9930812541_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
