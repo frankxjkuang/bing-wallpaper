@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261013
+
+> 普利特维采湖群国家公园，克罗地亚 (© Jan Wlodarczyk/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> 在克罗地亚的普利特维采湖群国家公园，水似乎无处不在。十六个阶梯状湖泊由瀑布、溪流和层叠而下的水流组成的网络连接起来，蜿蜒穿过森林覆盖的石灰岩峡谷。湖水的颜色不断变化，从翠绿到深蓝不等，这是由矿物质、阳光和不断变化的倒影共同造就的。普利特维采湖群国家公园成立于1949年，是克罗地亚历史最悠久、面积最大的国家公园。这里以石灰华屏障闻名，这种天然石灰岩构造是富含矿物质的水在数百年间沉积碳酸钙形成的。这些屏障仍在继续生长和变化，逐渐改变着公园内的瀑布和湖泊。
+> 
+> 普利特维采湖群国家公园于1979年被列入联合国教科文组织世界遗产名录，保护着欧洲最非凡的淡水生态系统之一。木栈道在水面上纵横交错，让游客得以近距离观赏层叠的瀑布、宁静的水潭和森林覆盖的湖岸；在这里，大自然仍在不断重塑景观。湖泊、瀑布和林地在此汇聚成一幅近乎超凡脱俗的景象。
+> 
+> 
+
+</details>
+
+| ![克罗地亚普利特维采湖群国家公园](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![克罗地亚普利特维采湖群国家公园](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_1080x1920.jpg) |
+
 ### 20261012
 
 > 曼布尔斯码头，斯旺西，威尔士 (© Helen Hotson/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![英国格洛斯特郡谜林，英格兰格洛斯特郡迪恩森林](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![英国格洛斯特郡谜林，英格兰格洛斯特郡迪恩森林](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_1080x1920.jpg) |
-
-### 20261006
-
-> 丹霞地貌，张掖国家地质公园，甘肃省，中国 (© Weiquan Lin/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 如果一座山能用一道道条纹向你展示它的地质历史，会是什么样？在中国的张掖国家地质公园，岩石正是如此。红色、橙色、黄色、棕色以及其他大地色调的条带在山脊间绵延起伏。这种壮丽景观被称为丹霞地貌，由地质年代中沉积形成的多层沉积岩塑造而成。后来，构造力使岩石抬升并发生褶皱，而风化和侵蚀则将它们雕琢成山脊、峭壁、沟壑和山峰。
-> 
-> “丹霞”这个名称的字面意思是玫瑰色的云霞。这些颜色来自岩石本身，其中矿物质和化学过程造就了不同的色调。例如，氧化铁形成了其大部分标志性的红色，而矿物质和沉积物的差异则构成了更加丰富的色彩。
-> 
-> 张掖于2020年被指定为联合国教科文组织世界地质公园，坐落在甘肃，这一地区与古丝绸之路有着密切联系。值此国际地质多样性日，它以斑斓的色彩提醒我们：地球最杰出的艺术作品坚如磐石。
-
-</details>
-
-| ![国际地质多样性日](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![国际地质多样性日](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1080x1920.jpg) |K](https://cn.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_1080x1920.jpg) |EN-US9930812541_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_1080x1920.jpg) |2541_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1080x1920.jpg) |_EN-US3885857486_1080x1920.jpg) |SamarkandCeiling_EN-US3761829748_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
