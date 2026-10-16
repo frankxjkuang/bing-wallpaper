@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261015
+
+> View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> As twilight settles over Wroclaw, golden light spills across rooftops, church towers, and one of Central Europe's most striking historic centers. This southwestern Polish city spans islands and waterways linked by more than 100 bridges, blending medieval architecture with vibrant modern life. At its heart is Rynek, a lively Market Square established in the 13th century and home to the Gothic Old Town Hall, one of Wroclaw's most recognizable landmarks.
+> 
+> Today's view was captured from the Witches' Bridge, also known as the Bridge of the Penitents, a footbridge connecting the towers of St. Mary Magdalene Church. Suspended about 148 feet above the ground, it offers sweeping views of the Old Town's colorful facades, winding streets, and the bustling Market Square below. From centuries-old churches and riverside promenades to museums and cafés, Wroclaw rewards visitors with something new at every turn. After sunset, the city is especially enchanting as its historic center glows beneath the evening sky.
+> 
+> 
+
+</details>
+
+| ![Market Square from the Witches' Bridge, Wroclaw, Poland](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Market Square from the Witches' Bridge, Wroclaw, Poland](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1080x1920.jpg) |
+
 ### 20261014
 
 > Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![View of the Sanguinaires Islands from Corsica, France](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![View of the Sanguinaires Islands from Corsica, France](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_1080x1920.jpg) |
-
-### 20261008
-
-> Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Something has clearly crossed a line. Off the coast of Mayotte in the Indian Ocean, this octopus has adopted a defensive posture that says: whatever is approaching should reconsider its life choices.
-> 
-> It's a warning octopuses can deliver with style. Instead of armor, they rely on transformation. Together, tiny muscular structures called papillae and pigment-filled chromatophore cells let them change color, pattern, and even skin texture within seconds. The result is an animal that can resemble rocks, coral, algae, or shadows. It doesn't simply blend into its surroundings. It becomes them.
-> 
-> And camouflage is only the opening act. Octopuses can vanish in a cloud of ink, squeeze through openings barely larger than their beak, solve puzzles, and explore with arms that contain most of their neurons. In a sense, each arm has a mind of its own. World Octopus Day celebrates one of the ocean's great evolutionary oddities: three hearts, eight arms, blue blood. Nature really went off -script with this one.
-
-</details>
-
-| ![World Octopus Day](https://cn.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Octopus Day](https://cn.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_1080x1920.jpg) |d portrait 4K](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1080x1920.jpg) |00&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_1080x1920.jpg) |&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
