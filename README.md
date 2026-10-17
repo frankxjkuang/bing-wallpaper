@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261016
+
+> Mount Sneffels in the San Juan Mountains near Ridgway, Colorado (© lightphoto/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Some mountains make you work for the view. Mount Sneffels makes you work for the last few hundred feet. Rising to 14,150 feet in Colorado's San Juan Mountains, this fourteener is a familiar sight around Ridgway, Ouray, and Telluride. It sits within the 16,587-acre Mount Sneffels Wilderness, a protected area designated in 1980. Hikers can reach the mountain from several approaches, including the Yankee Boy Basin and the Blue Lakes area.
+> 
+> The mountain itself is geologically distinctive: unlike many of its nearby peaks, Mount Sneffels is largely made of an intrusion of igneous rock that pushed into older volcanic deposits. Below its western flank, Blue Lakes fill a deep alpine basin and offer another way to experience the area. The peak also rises above the tree line, where the landscape becomes noticeably more exposed and rocky. Keep an eye on the sky because mountain weather loves a plot twist. Check the forecast and start early, and bring layers, water, and the right gear for the conditions.
+> 
+> 
+
+</details>
+
+| ![Mount Sneffels in the San Juan Mountains near Ridgway, Colorado](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Sneffels in the San Juan Mountains near Ridgway, Colorado](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |
+
 ### 20261015
 
 > View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_1080x1920.jpg) |
-
-### 20261009
-
-> View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Just off the coast of Corsica, France, the Sanguinaires Islands rise from the Mediterranean as a small archipelago of four rugged, rocky islands. Viewed from a historic watchtower, they sit at the entrance to the Gulf of Ajaccio. Steep cliffs, centuries-old landmarks, and sweeping sea views have drawn visitors to the area for generations. Though the farthest island lies only about 1.2 miles from shore, the archipelago feels surprisingly remote, surrounded by open water and shaped by wind, waves, and salt spray.
-> 
-> Visitors can reach Mezu Mare, the largest island, via authorized boat services and explore its designated footpaths. Elsewhere, protected habitats provide refuge for nesting seabirds and hardy Mediterranean plants adapted to dry, windswept conditions. A lighthouse on Mezu Mare stands as a reminder of the archipelago's long maritime history and strategic position at the entrance to the gulf. Today, the Sanguinaires Islands offer dramatic scenery, wildlife, and traces of a rich seafaring heritage, creating one of Corsica's most memorable natural landscapes.
-> 
-> 
-
-</details>
-
-| ![View of the Sanguinaires Islands from Corsica, France](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![View of the Sanguinaires Islands from Corsica, France](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_1080x1920.jpg) |&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_1080x1920.jpg) |bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_1080x1920.jpg) |&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
