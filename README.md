@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261017
+
+> Life-size replica of Chauvet  cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Some discoveries start with a shovel. Others start with a drawing on a cave wall. International Archaeology Day celebrates both the detective work and the evidence behind them. Organized by the Archaeological Institute of America, this annual event began in 2011 and became International Archaeology Day in 2013 as participation expanded worldwide. Today, it brings archaeology closer to the public through talks, museum programs, site visits, simulated digs, and hands-on activities.
+> 
+> That detective mindset helped reveal the significance of Chauvet Cave in southern France. Discovered in 1994, the cave contains more than 1,000 drawings and engravings depicting at least 14 animal species, including mammoths, lions, rhinoceroses, and bison. Dating back to roughly 35,000 years ago, the artwork offers evidence of early human creativity and artistic techniques. The original cave is carefully protected, so visitors can experience a life-size replica at Grotte Chauvet 2 in Vallon-Pont-d'Arc. Archaeologists combine excavation, documentation, scientific dating, and modern imaging to turn such discoveries into clues about the past.
+> 
+> 
+
+</details>
+
+| ![International Archaeology Day](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_1080x1920.jpg) |
+
 ### 20261016
 
 > Mount Sneffels in the San Juan Mountains near Ridgway, Colorado (© lightphoto/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Glade Creek Grist Mill, Babcock State Park, West Virginia](https://cn.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Glade Creek Grist Mill, Babcock State Park, West Virginia](https://cn.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_1080x1920.jpg) |
-
-### 20261010
-
-> Double-crested cormorants over Monterey Bay, California (© Hiroya Minakuchi/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> World Migratory Bird Day celebrates one of nature's greatest journeys. Observed each year in May and October, the global campaign reflects migration patterns around the world and highlights the importance of protecting the habitats and flyways that birds depend on. 'Every Bird Counts—Your Observations Matter!' is the 2026 theme, emphasizing how observations by individuals and communities can contribute to bird research, monitoring, and conservation, helping scientists better understand migration.
-> 
-> Today's image captures double-crested cormorants flying above the waves of Monterey Bay, California. Widespread across North America, these adaptable seabirds may migrate or remain year-round, depending on the population. Along California's coast, bays, wetlands, and estuaries provide important habitat for birds traveling the Pacific Flyway. For many species, these ecosystems support journeys spanning vast distances. Each sighting helps reveal these migrations and reminds us that even a single bird can be part of a much larger story.
-> 
-> 
-
-</details>
-
-| ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Migratory Bird Day](https://cn.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_1080x1920.jpg) |bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_1080x1920.jpg) |&h=224&rs=1&c=4) | ![地牢省立公园，加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
