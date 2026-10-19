@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261018
+
+> Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> If parks could keep birthday diaries, Eryri National Park (Snowdonia) in Wales would have quite the story to tell. The park turns 75 today, marking the anniversary of its designation in 1951. Eryri stretches across 823 square miles, with nine mountain ranges, 74 miles of coastline, and habitats ranging from peatlands and native woodlands to upland landscapes. At more than 3,500 feet, Yr Wyddfa is Eryri's highest point. Nearby, the Carneddau and Glyderau add their own peaks, while Cadair Idris rises in the south. These protected landscapes provide habitats for wildlife and include 17 National Nature Reserves and 56 Sites of Special Scientific Interest.
+> 
+> And Eryri's story isn't just about nature. Dolbadarn Castle adds a medieval chapter. Built during the 13th century by Llywelyn the Great, the castle guarded the route through Llanberis Pass and later served as a prison for a Welsh prince. Its round tower, standing 50 feet tall, remains its most recognizable feature, overlooking nearby Llyn Padarn.
+> 
+> 
+
+</details>
+
+| ![Eryri National Park (Snowdonia) in Wales turns 75](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Eryri National Park (Snowdonia) in Wales turns 75](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_1080x1920.jpg) |
+
 ### 20261017
 
 > Life-size replica of Chauvet  cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |
-
-### 20261011
-
-> Glade Creek Grist Mill, Babcock State Park, West Virginia (© dszc/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Surrounded by a patchwork of red, orange, and gold, Glade Creek Grist Mill stands above the rocky waters of Glade Creek in West Virginia's Babcock State Park. Although it looks like a relic from the pioneer era, the mill is actually a carefully crafted tribute to Appalachia's milling heritage.
-> 
-> Completed in 1976, the mill was built using parts salvaged from several historic gristmills once scattered across West Virginia, bringing together pieces of the state's rural past in a single working structure. Water from Glade Creek still turns the wheel and powers traditional grain-grinding demonstrations, offering visitors a glimpse into a way of life once common throughout the Appalachian Mountains.
-> 
-> The mill may be the park's most recognizable landmark, but it is only part of the story. Each autumn, Babcock State Park's forests transform into a mosaic of brilliant color, framing waterfalls, rocky streambeds, and miles of hiking trails. Together, the landscape and mill create an enduring symbol of Appalachian history, craftsmanship, and natural beauty.
-
-</details>
-
-| ![Glade Creek Grist Mill, Babcock State Park, West Virginia](https://cn.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Glade Creek Grist Mill, Babcock State Park, West Virginia](https://cn.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
