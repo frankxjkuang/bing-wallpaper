@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261019
+
+> Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)
+
+<details>
+<summary>Description</summary>
+
+> What if a city's busiest street had no road? In Venice, Italy, traffic flows along the Grand Canal, a 2.4-mile waterway that winds through the city in a giant reverse S-shape. Known to locals as the Canalazzo, it is Venice's main water-traffic corridor, carrying vaporetti, water taxis, gondolas, police boats, and other vessels. The canal follows the course of an ancient river that once flowed into the Venetian Lagoon.
+> 
+> Nearly 170 historic buildings line its banks, many built by wealthy Venetian families between the 13th and 18th centuries. With palaces and houses rising directly from the water, the Grand Canal has little room for conventional sidewalks.
+> 
+> Despite its importance, only four bridges cross it: Rialto, Scalzi, Constitution, and Accademia. For centuries, boats were the main way to cross. Today, a journey along the canal offers a moving look at Venice's architecture and history. Here, even a traffic jam comes with a view—and a gondolier.
+
+</details>
+
+| ![Grand Canal in Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grand Canal in Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_1080x1920.jpg) |
+
 ### 20261018
 
 > Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Plitvice Lakes National Park, Croatia](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Plitvice Lakes National Park, Croatia](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |
-
-### 20261012
-
-> White House Ruin at Canyon de Chelly National Monument in Arizona (© Ingo Arndt/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Indigenous Peoples' Day honors the histories, cultures, and enduring contributions of Indigenous peoples across the United States. Observed by many communities on the second Monday in October, the day also invites reflection on the hardships Native peoples have faced and celebrates the resilience of Tribal Nations, whose languages, traditions, and knowledge continue to shape the country today.
-> 
-> That living heritage is reflected in today's image of the White House Ruin at Canyon de Chelly National Monument in northeastern Arizona. The cliff dwelling was built and occupied by Ancestral Puebloans between about 1060 and 1275, beneath the shelter of a towering sandstone alcove. Yet Canyon de Chelly is far more than an archaeological site. People have lived in these canyons for nearly 5,000 years, and Navajo (Diné) families still reside, farm, and raise livestock there.
-> 
-> The monument is located entirely within the Navajo Nation and is managed in partnership with the National Park Service. It connects generations of Indigenous history in one continuously inhabited landscape.
-
-</details>
-
-| ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Indigenous Peoples' Day](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
