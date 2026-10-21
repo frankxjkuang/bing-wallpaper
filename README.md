@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261020
+
+> Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Slow and steady wins the race—and the brown-throated sloth seems perfectly happy to skip the race altogether. On International Sloth Day, this three-toed mammal offers a different lesson in getting by: conserve energy, hang on, and take your time.
+> 
+> Native to Central and South America, it spends much of its life upside down in the forest canopy. Its coarse fur hosts algae, fungi, and specialized sloth moths, creating a tiny ecosystem on its back. The algae can even give its coat a greenish tint, helping it blend into the foliage. Its unusual anatomy helps it thrive in the treetops. Its extra neck vertebrae allow it to turn its head up to 270 degrees.
+> 
+> Even digestion takes the slow lane. Its multi-chambered stomach helps break down tough, fibrous leaves. About once a week, it makes a risky trip to the forest floor to defecate. And despite its sluggish reputation, it is also a surprisingly capable swimmer.
+
+</details>
+
+| ![International Sloth Day](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Sloth Day](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_1080x1920.jpg) |
+
 ### 20261019
 
 > Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)
@@ -112,26 +131,7 @@
 
 | ![National Fossil Day](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Fossil Day](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_1080x1920.jpg) |
-
-### 20261013
-
-> Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Water seems to be everywhere at Plitvice Lakes National Park in Croatia. Sixteen terraced lakes are linked by a network of waterfalls, streams, and cascades that wind through forested limestone canyons. The constantly changing colors of the water, ranging from emerald green to deep blue, are shaped by minerals, sunlight, and ever-changing reflections. Established in 1949, Plitvice Lakes is Croatia's oldest and largest national park. The landscape is famous for its tufa barriers, natural limestone formations created as mineral-rich water deposits calcium carbonate over centuries. These barriers continue to grow and change, gradually transforming the park's waterfalls and lakes.
-> 
-> Recognized as a UNESCO World Heritage Site in 1979, Plitvice protects one of Europe's most remarkable freshwater ecosystems. Wooden walkways weave across the water, bringing visitors close to cascades, tranquil pools, and forested shores where nature continues to reshape the landscape. Here, lakes, waterfalls, and woodlands come together in a scene that feels almost otherworldly.
-> 
-> 
-
-</details>
-
-| ![Plitvice Lakes National Park, Croatia](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Plitvice Lakes National Park, Croatia](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_1080x1920.jpg) |/cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
