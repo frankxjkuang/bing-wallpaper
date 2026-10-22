@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261021
+
+> Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Bridging the gap between old and new, Nguyen Hoang Bridge gives Hue's skyline a fresh connection. Spanning the Perfume River in Vietnam, the modern steel-arch landmark opened to traffic on March 26, 2025. Its design, called 'The Crane Facing Thien Mu,' draws inspiration from a local legend and nearby Thien Mu Pagoda.
+> 
+> Designed by Finnish bridge architect Antti Karjalainen, the bridge features steel arches shaped like a crane's outstretched wings. Its V-shaped piers suggest cranes gathering peacefully beside the river. The royal-yellow color pays tribute to Hue's imperial heritage under the Nguyen dynasty.
+> 
+> The details continue along the pedestrian walkways, where 64 parasol-shaped steel ornaments echo the aesthetics of the royal court. After dark, color-changing LEDs illuminate the arches, creating the appearance of a crane in flight. There is a historical twist, too: Hue's famous Truong Tien Bridge briefly carried the Nguyen Hoang name in 1945. With its mix of heritage and modern engineering, this bridge gives Hue a new way to move forward.
+
+</details>
+
+| ![Nguyen Hoang Bridge, Hue, Vietnam](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nguyen Hoang Bridge, Hue, Vietnam](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_1080x1920.jpg) |
+
 ### 20261020
 
 > Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![Market Square from the Witches' Bridge, Wroclaw, Poland](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Market Square from the Witches' Bridge, Wroclaw, Poland](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1080x1920.jpg) |
-
-### 20261014
-
-> Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> How do we know what Earth looked like long before humans appeared? Fossils provide many clues. National Fossil Day celebrates paleontology and the discoveries that help scientists reconstruct past environments, trace the evolution of life, and learn about creatures that vanished millions of years ago. From dinosaurs to tiny marine organisms, these remnants of the past preserve snapshots of ancient worlds that no longer exist.
-> 
-> The coiled shells in today's image are the remains of ammonites from the Jurassic Period, when dinosaurs dominated the land and ancient seas teemed with marine life. Though they resembled modern nautiluses, ammonites were more closely related to squid and octopuses. Their chambered shells formed the distinctive spirals that make them some of the world's most recognizable fossils.
-> 
-> Ammonites disappeared alongside the non-avian dinosaurs about 66 million years ago, but they remain invaluable to scientists. Their widespread presence helps researchers date ancient rocks and understand prehistoric seas. Preserved in stone, these shells offer a window into a vanished world.
-
-</details>
-
-| ![National Fossil Day](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Fossil Day](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_1080x1920.jpg) |/cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1080x1920.jpg) |1080x1920.jpg) |/cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
