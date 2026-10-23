@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261022
+
+> Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Few places in South Korea capture the magic of autumn quite like Naejangsan National Park, where mountainsides glow in brilliant shades of scarlet, orange, yellow, and gold. Located in the country's southwest, the park is particularly famous for its vivid maple colors, making it one of Korea's premier destinations for fall scenery. Its name, meaning 'many secrets in the mountains,' reflects the varied landscapes found throughout the region.
+> 
+> Naejangsan rises to about 2,500 feet at Sinseonbong Peak, with nine distinctive peaks surrounding its valleys. Visitors can follow hiking trails through woodlands and mountain passes, while the Naejangsan Cable Car offers elevated views of the colorful ridgelines. The park is also home to the historic temples of Naejangsa and Baegyangsa, adding a rich cultural dimension to the landscape.
+> 
+> Other highlights include Geumseongyegok Valley and the Dodeokpokpo and Geumseonpokpo waterfalls. With around 760 species of native plants, Naejangsan offers rich biodiversity beyond its celebrated autumn colors, making it a destination worth exploring in every season.
+
+</details>
+
+| ![Autumn in Naejangsan National Park, South Korea](https://cn.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn in Naejangsan National Park, South Korea](https://cn.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_1080x1920.jpg) |
+
 ### 20261021
 
 > Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Mount Sneffels in the San Juan Mountains near Ridgway, Colorado](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Sneffels in the San Juan Mountains near Ridgway, Colorado](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |
-
-### 20261015
-
-> View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> As twilight settles over Wroclaw, golden light spills across rooftops, church towers, and one of Central Europe's most striking historic centers. This southwestern Polish city spans islands and waterways linked by more than 100 bridges, blending medieval architecture with vibrant modern life. At its heart is Rynek, a lively Market Square established in the 13th century and home to the Gothic Old Town Hall, one of Wroclaw's most recognizable landmarks.
-> 
-> Today's view was captured from the Witches' Bridge, also known as the Bridge of the Penitents, a footbridge connecting the towers of St. Mary Magdalene Church. Suspended about 148 feet above the ground, it offers sweeping views of the Old Town's colorful facades, winding streets, and the bustling Market Square below. From centuries-old churches and riverside promenades to museums and cafés, Wroclaw rewards visitors with something new at every turn. After sunset, the city is especially enchanting as its historic center glows beneath the evening sky.
-> 
-> 
-
-</details>
-
-| ![Market Square from the Witches' Bridge, Wroclaw, Poland](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Market Square from the Witches' Bridge, Wroclaw, Poland](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1080x1920.jpg) |1080x1920.jpg) |/cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |tviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
