@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261023
+
+> Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Two gray wolves move through the sagebrush of Yellowstone National Park in Wyoming, home to some of North America's most closely watched wolf packs. Their thick coats help them withstand harsh winters, and their keen senses make them skilled hunters and communicators.
+> 
+> During Wolf Awareness Week, people around the world recognize the important role that wolves play in healthy ecosystems. Gray wolves are highly social animals that typically live in family groups, or packs, and work together to hunt, defend their territory, and raise their young. After disappearing from Yellowstone in the early 20th century, they were reintroduced to the park in 1995 as part of a landmark conservation effort that restored the species to one of its most iconic habitats.
+> 
+> Today, Yellowstone remains one of the best places to observe these predators, offering a glimpse into the lives of one of the continent's most celebrated wildlife species.
+
+</details>
+
+| ![Wolf Awareness Week](https://cn.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Wolf Awareness Week](https://cn.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_1080x1920.jpg) |
+
 ### 20261022
 
 > Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_1080x1920.jpg) |
-
-### 20261016
-
-> Mount Sneffels in the San Juan Mountains near Ridgway, Colorado (© lightphoto/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Some mountains make you work for the view. Mount Sneffels makes you work for the last few hundred feet. Rising to 14,150 feet in Colorado's San Juan Mountains, this fourteener is a familiar sight around Ridgway, Ouray, and Telluride. It sits within the 16,587-acre Mount Sneffels Wilderness, a protected area designated in 1980. Hikers can reach the mountain from several approaches, including the Yankee Boy Basin and the Blue Lakes area.
-> 
-> The mountain itself is geologically distinctive: unlike many of its nearby peaks, Mount Sneffels is largely made of an intrusion of igneous rock that pushed into older volcanic deposits. Below its western flank, Blue Lakes fill a deep alpine basin and offer another way to experience the area. The peak also rises above the tree line, where the landscape becomes noticeably more exposed and rocky. Keep an eye on the sky because mountain weather loves a plot twist. Check the forecast and start early, and bring layers, water, and the right gear for the conditions.
-> 
-> 
-
-</details>
-
-| ![Mount Sneffels in the San Juan Mountains near Ridgway, Colorado](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Mount Sneffels in the San Juan Mountains near Ridgway, Colorado](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |tviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_1080x1920.jpg) |ing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |tviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
