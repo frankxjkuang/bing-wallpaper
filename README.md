@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261024
+
+> Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> Today we're inside the Royal Portuguese Cabinet of Reading in Rio de Janeiro, Brazil, where the humble act of opening a book took on grand architectural ambitions. Founded in 1837 by 43 Portuguese immigrants, just 15 years after Brazil's independence, the institution eventually moved into the building seen here, completed half a century later in a lavish Neo-Manueline style. Shelves soar over 70 feet around a vast reading room, crowned by a monumental stained-glass skylight that makes daylight part of the design.
+> 
+> The building became a bridge between two countries: its façade was carved in Lisbon, shipped across the Atlantic, and assembled in Rio. So striking was the result that it was ranked among the 20 most beautiful libraries in the world in 2014. Opened to the public in 1900, it now preserves hundreds of thousands of volumes, making it the largest collection of Portuguese literature outside Portugal. Yet beneath all that ornate grandeur, the original idea remains wonderfully simple: give people access to books.
+> 
+> 
+
+</details>
+
+| ![Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil](https://cn.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil](https://cn.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_1080x1920.jpg) |
+
 ### 20261023
 
 > Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Eryri National Park (Snowdonia) in Wales turns 75](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Eryri National Park (Snowdonia) in Wales turns 75](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_1080x1920.jpg) |
-
-### 20261017
-
-> Life-size replica of Chauvet  cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> Some discoveries start with a shovel. Others start with a drawing on a cave wall. International Archaeology Day celebrates both the detective work and the evidence behind them. Organized by the Archaeological Institute of America, this annual event began in 2011 and became International Archaeology Day in 2013 as participation expanded worldwide. Today, it brings archaeology closer to the public through talks, museum programs, site visits, simulated digs, and hands-on activities.
-> 
-> That detective mindset helped reveal the significance of Chauvet Cave in southern France. Discovered in 1994, the cave contains more than 1,000 drawings and engravings depicting at least 14 animal species, including mammoths, lions, rhinoceroses, and bison. Dating back to roughly 35,000 years ago, the artwork offers evidence of early human creativity and artistic techniques. The original cave is carefully protected, so visitors can experience a life-size replica at Grotte Chauvet 2 in Vallon-Pont-d'Arc. Archaeologists combine excavation, documentation, scientific dating, and modern imaging to turn such discoveries into clues about the past.
-> 
-> 
-
-</details>
-
-| ![International Archaeology Day](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Archaeology Day](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_1080x1920.jpg) |ing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |tviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_1080x1920.jpg) |HR.ChauvetPaintingsFrance_EN-US6137200151_1080x1920.jpg) |ing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |tviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
