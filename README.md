@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261025
+
+> Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> In Bulgaria's Western Rhodope Mountains, autumn leaves gather beside the rushing waters of Sitovo Waterfall. Near the village of Sitovo, southwest of Plovdiv, the falls tumble beneath an old stone bridge whose arch frames the cascades like a storybook scene. Moss-covered stones and pine trees add shades of green to the autumn landscape, while fallen leaves gather along the water's edge or drift through its pools. The falls become especially lively after rain and during spring snowmelt, when the surrounding woodland echoes with the sound of rushing water.
+> 
+> Sitovo offers more than natural scenery. The village preserves traditional Rhodope homes, while nearby rock shelters are home to the mysterious Sitovo Inscription, a series of symbols carved into stone. First documented in 1928, the inscription remains undeciphered, with its origin, language, meaning, and date still uncertain. Here, water, stone, forest, and mystery meet in one of Bulgaria's quieter corners.
+> 
+> 
+
+</details>
+
+| ![Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_1080x1920.jpg) |
+
 ### 20261024
 
 > Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Grand Canal in Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grand Canal in Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_1080x1920.jpg) |
-
-### 20261018
-
-> Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> If parks could keep birthday diaries, Eryri National Park (Snowdonia) in Wales would have quite the story to tell. The park turns 75 today, marking the anniversary of its designation in 1951. Eryri stretches across 823 square miles, with nine mountain ranges, 74 miles of coastline, and habitats ranging from peatlands and native woodlands to upland landscapes. At more than 3,500 feet, Yr Wyddfa is Eryri's highest point. Nearby, the Carneddau and Glyderau add their own peaks, while Cadair Idris rises in the south. These protected landscapes provide habitats for wildlife and include 17 National Nature Reserves and 56 Sites of Special Scientific Interest.
-> 
-> And Eryri's story isn't just about nature. Dolbadarn Castle adds a medieval chapter. Built during the 13th century by Llywelyn the Great, the castle guarded the route through Llanberis Pass and later served as a prison for a Welsh prince. Its round tower, standing 50 feet tall, remains its most recognizable feature, overlooking nearby Llyn Padarn.
-> 
-> 
-
-</details>
-
-| ![Eryri National Park (Snowdonia) in Wales turns 75](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Eryri National Park (Snowdonia) in Wales turns 75](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_1080x1920.jpg) |HR.ChauvetPaintingsFrance_EN-US6137200151_1080x1920.jpg) |ing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |tviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_1080x1920.jpg) |les_EN-US6620614213_1080x1920.jpg) |HR.ChauvetPaintingsFrance_EN-US6137200151_1080x1920.jpg) |ing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |tviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
