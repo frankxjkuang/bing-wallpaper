@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261026
+
+> Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)
+
+<details>
+<summary>Description</summary>
+
+> Bat Week shines a spotlight on some of the world's most important and often misunderstood mammals. Observed each October, the event celebrates the vital role bats play in healthy ecosystems across the globe. As pollinators, seed dispersers, and natural pest controllers, they support forests, farms, and food supplies. Some can consume thousands of insects in a single night, helping reduce the need for pesticides. With more than 1,500 species found worldwide, bats are the only mammals capable of sustained flight, making them one of nature's most impressive success stories.
+> 
+> Today's image features a gray-headed flying fox in Victoria, Australia. Despite their foxlike faces, flying foxes are fruit bats rather than insect hunters. Their keen eyesight and strong sense of smell help them locate blossoms and fruit, while their long-distance journeys spread pollen and seeds across the landscape. Hanging upside down between flights, this large bat looks perfectly at home. During Bat Week, it serves as a fitting ambassador for these remarkable nighttime navigators.
+> 
+> 
+
+</details>
+
+| ![Bat Week](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bat Week](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1080x1920.jpg) |
+
 ### 20261025
 
 > Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![International Sloth Day](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Sloth Day](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_1080x1920.jpg) |
-
-### 20261019
-
-> Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)
-
-<details>
-<summary>Description</summary>
-
-> What if a city's busiest street had no road? In Venice, Italy, traffic flows along the Grand Canal, a 2.4-mile waterway that winds through the city in a giant reverse S-shape. Known to locals as the Canalazzo, it is Venice's main water-traffic corridor, carrying vaporetti, water taxis, gondolas, police boats, and other vessels. The canal follows the course of an ancient river that once flowed into the Venetian Lagoon.
-> 
-> Nearly 170 historic buildings line its banks, many built by wealthy Venetian families between the 13th and 18th centuries. With palaces and houses rising directly from the water, the Grand Canal has little room for conventional sidewalks.
-> 
-> Despite its importance, only four bridges cross it: Rialto, Scalzi, Constitution, and Accademia. For centuries, boats were the main way to cross. Today, a journey along the canal offers a moving look at Venice's architecture and history. Here, even a traffic jam comes with a view—and a gondolier.
-
-</details>
-
-| ![Grand Canal in Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Grand Canal in Venice, Italy](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_1080x1920.jpg) |les_EN-US6620614213_1080x1920.jpg) |HR.ChauvetPaintingsFrance_EN-US6137200151_1080x1920.jpg) |ing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |tviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_1080x1920.jpg) |1920.jpg) |ing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |tviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
