@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261027
+
+> A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Reflected in calm water and glowing in the light of the setting sun, this grove of pond cypress creates a striking display of color and symmetry. Native to the southeastern United States, the species is associated with shallow ponds, depressions, and wetland habitats. This image was captured in Georgia, where these trees can be found in places such as the Okefenokee Swamp and other low-lying wetlands.
+> 
+> Unlike most conifers, pond cypress sheds its needle-like foliage each fall, taking on warm yellow, copper, and orange-brown tones. Closely related to the more widespread bald cypress, it is generally smaller and more strongly associated with still or shallow water.
+> 
+> Cypress wetlands provide important habitat and nesting sites for birds, amphibians, and other wildlife. Here, glowing reflections, dark trunks, and sunlight transform the wetland into a nearly painterly landscape, revealing the quiet beauty of the American South.
+
+</details>
+
+| ![A grove of pond cypress trees with fall foliage, Georgia](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A grove of pond cypress trees with fall foliage, Georgia](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_1080x1920.jpg) |
+
 ### 20261026
 
 > Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)
@@ -112,26 +131,7 @@
 
 | ![Nguyen Hoang Bridge, Hue, Vietnam](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nguyen Hoang Bridge, Hue, Vietnam](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_1080x1920.jpg) |
-
-### 20261020
-
-> Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Slow and steady wins the race—and the brown-throated sloth seems perfectly happy to skip the race altogether. On International Sloth Day, this three-toed mammal offers a different lesson in getting by: conserve energy, hang on, and take your time.
-> 
-> Native to Central and South America, it spends much of its life upside down in the forest canopy. Its coarse fur hosts algae, fungi, and specialized sloth moths, creating a tiny ecosystem on its back. The algae can even give its coat a greenish tint, helping it blend into the foliage. Its unusual anatomy helps it thrive in the treetops. Its extra neck vertebrae allow it to turn its head up to 270 degrees.
-> 
-> Even digestion takes the slow lane. Its multi-chambered stomach helps break down tough, fibrous leaves. About once a week, it makes a risky trip to the forest floor to defecate. And despite its sluggish reputation, it is also a surprisingly capable swimmer.
-
-</details>
-
-| ![International Sloth Day](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![International Sloth Day](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_1080x1920.jpg) |1920.jpg) |ing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |tviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_1080x1920.jpg) |trait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |tviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
