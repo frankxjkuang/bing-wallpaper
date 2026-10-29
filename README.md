@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261028
+
+> Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> What stories could these walls tell? Rising above eastern Bohemia in Czechia, Kunětická hora Castle has witnessed centuries of history. Dating to the late 14th century, the castle gradually evolved into an impressive fortress and noble residence. Its elevated position offered commanding views of the surrounding countryside and helped make it an important stronghold.
+> 
+> The complex reached its height in the 16th century, when the powerful Pernštejn family transformed it into a grand late Gothic and Renaissance stronghold. Later centuries brought decline and neglect, and parts of the site were even lost to stone quarrying. Restoration began in the early 20th century, helping preserve the landmark visitors see today.
+> 
+> Visitors can explore historic rooms and exhibitions, climb the tower for panoramic views, and discover the legends associated with the castle. Rising above the Elbe lowlands, Kunětická hora Castle remains a striking reminder of Bohemia's medieval past.
+
+</details>
+
+| ![Kunětická hora Castle, Bohemia, Czechia](https://cn.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kunětická hora Castle, Bohemia, Czechia](https://cn.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_1080x1920.jpg) |
+
 ### 20261027
 
 > A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Autumn in Naejangsan National Park, South Korea](https://cn.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn in Naejangsan National Park, South Korea](https://cn.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_1080x1920.jpg) |
-
-### 20261021
-
-> Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Bridging the gap between old and new, Nguyen Hoang Bridge gives Hue's skyline a fresh connection. Spanning the Perfume River in Vietnam, the modern steel-arch landmark opened to traffic on March 26, 2025. Its design, called 'The Crane Facing Thien Mu,' draws inspiration from a local legend and nearby Thien Mu Pagoda.
-> 
-> Designed by Finnish bridge architect Antti Karjalainen, the bridge features steel arches shaped like a crane's outstretched wings. Its V-shaped piers suggest cranes gathering peacefully beside the river. The royal-yellow color pays tribute to Hue's imperial heritage under the Nguyen dynasty.
-> 
-> The details continue along the pedestrian walkways, where 64 parasol-shaped steel ornaments echo the aesthetics of the royal court. After dark, color-changing LEDs illuminate the arches, creating the appearance of a crane in flight. There is a historical twist, too: Hue's famous Truong Tien Bridge briefly carried the Nguyen Hoang name in 1945. With its mix of heritage and modern engineering, this bridge gives Hue a new way to move forward.
-
-</details>
-
-| ![Nguyen Hoang Bridge, Hue, Vietnam](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nguyen Hoang Bridge, Hue, Vietnam](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_1080x1920.jpg) |trait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |tviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_1080x1920.jpg) |](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_1080x1920.jpg) |trait 4K](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1080x1920.jpg) |tviceAutumn_EN-US6255909048_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
