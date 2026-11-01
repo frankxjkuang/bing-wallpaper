@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261031
+
+> St. Bartholomew's Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Forget the fog machine. Frankfurt, Germany, has something far more effective: a Gothic cathedral with a tower that looks ready for a midnight séance. St. Bartholomew's Cathedral, seen here, has the medieval silhouette Halloween practically ordered for itself. But the holiday's own history is even stranger.
+> 
+> Halloween was already perfecting the spooky atmosphere long before anyone invented fun-sized candy bars. Some of its traditions have been linked to Samhain, an ancient Celtic festival marking the harvest season's end and winter's beginning. Tradition held that the boundary between the living and the dead blurred then, allowing supernatural beings to wander our world. People responded with bonfires, offerings, and disguises designed to blend in with the otherworldly crowd.
+> 
+> The Christian calendar later added All Saints' Day on November 1 and All Souls' Day on November 2. The night before All Saints' Day became All Hallows' Eve, eventually Halloween. So while St. Bartholomew's supplies the Gothic backdrop, Halloween brought ghosts, disguises, and supernatural drama. Honestly, the holiday came prepared.
+
+</details>
+
+| ![It's Halloween!](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![It's Halloween!](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1080x1920.jpg) |
+
 ### 20261030
 
 > Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_1080x1920.jpg) |
-
-### 20261024
-
-> Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> Today we're inside the Royal Portuguese Cabinet of Reading in Rio de Janeiro, Brazil, where the humble act of opening a book took on grand architectural ambitions. Founded in 1837 by 43 Portuguese immigrants, just 15 years after Brazil's independence, the institution eventually moved into the building seen here, completed half a century later in a lavish Neo-Manueline style. Shelves soar over 70 feet around a vast reading room, crowned by a monumental stained-glass skylight that makes daylight part of the design.
-> 
-> The building became a bridge between two countries: its façade was carved in Lisbon, shipped across the Atlantic, and assembled in Rio. So striking was the result that it was ranked among the 20 most beautiful libraries in the world in 2014. Opened to the public in 1900, it now preserves hundreds of thousands of volumes, making it the largest collection of Portuguese literature outside Portugal. Yet beneath all that ornate grandeur, the original idea remains wonderfully simple: give people access to books.
-> 
-> 
-
-</details>
-
-| ![Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil](https://cn.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil](https://cn.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_1080x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_1080x1920.jpg) |x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
