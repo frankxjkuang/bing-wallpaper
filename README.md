@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261101
+
+> Handmade baskets, Santa Fe, New Mexico (© Patrick Lane/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> A basket can carry far more than its contents. The Native American basketry seen here in Santa Fe, New Mexico, points to a much bigger story: a rich variety of techniques and designs developed by communities across the country. Their materials, patterns, and styles reflect their places of origin, turning everyday objects into records of local knowledge and identity.
+> 
+> Every November, Native American Heritage Month shines a light on stories like these. What began as a week of recognition in 1986 expanded into a month in 1990, celebrating the cultures, contributions, and creativity that continue to shape the United States today.
+> 
+> Santa Fe is a fitting place to explore that story. The city is home to the Institute of American Indian Arts, where contemporary and traditional Native basketry is featured alongside pottery, jewelry, paintings, and prints. Here, the past isn't sitting quietly behind glass. It's being woven into the present, shaped by new generations of artists, and carried into the future.
+
+</details>
+
+| ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_1080x1920.jpg) |
+
 ### 20261031
 
 > St. Bartholomew's Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Bat Week](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bat Week](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1080x1920.jpg) |
-
-### 20261025
-
-> Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> In Bulgaria's Western Rhodope Mountains, autumn leaves gather beside the rushing waters of Sitovo Waterfall. Near the village of Sitovo, southwest of Plovdiv, the falls tumble beneath an old stone bridge whose arch frames the cascades like a storybook scene. Moss-covered stones and pine trees add shades of green to the autumn landscape, while fallen leaves gather along the water's edge or drift through its pools. The falls become especially lively after rain and during spring snowmelt, when the surrounding woodland echoes with the sound of rushing water.
-> 
-> Sitovo offers more than natural scenery. The village preserves traditional Rhodope homes, while nearby rock shelters are home to the mysterious Sitovo Inscription, a series of symbols carved into stone. First documented in 1928, the inscription remains undeciphered, with its origin, language, meaning, and date still uncertain. Here, water, stone, forest, and mystery meet in one of Bulgaria's quieter corners.
-> 
-> 
-
-</details>
-
-| ![Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_1080x1920.jpg) |x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1080x1920.jpg) |terfall_EN-US7626867890_1080x1920.jpg) |x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
