@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261102
+
+> Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> While November might bring us a step closer to the holiday season, polar bears have other plans. They gather along the shores of Hudson Bay in Manitoba, Canada, waiting for sea ice to form so they can head back out to hunt seals. That annual spectacle inspired Polar Bear Week, observed during the first week of November, a celebration of the Arctic's largest land predator. Polar bears are powerful swimmers, expert hunters, and remarkably adapted to life in one of Earth's harshest environments. Yet shrinking sea ice means many spend longer on land, making it harder to find food and raising the risk of encounters with people.
+> 
+> The image captures a heartwarming scene: a mother and her cubs near Hudson Bay, where generations of bears have gathered seasonally. During Polar Bear Week, these iconic animals remind us not only of the Arctic's wild beauty, but also of the importance of protecting the frozen habitat they depend on.
+> 
+> 
+
+</details>
+
+| ![Polar Bear Week](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1080x1920.jpg) |
+
 ### 20261101
 
 > Handmade baskets, Santa Fe, New Mexico (© Patrick Lane/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![A grove of pond cypress trees with fall foliage, Georgia](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A grove of pond cypress trees with fall foliage, Georgia](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_1080x1920.jpg) |
-
-### 20261026
-
-> Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)
-
-<details>
-<summary>Description</summary>
-
-> Bat Week shines a spotlight on some of the world's most important and often misunderstood mammals. Observed each October, the event celebrates the vital role bats play in healthy ecosystems across the globe. As pollinators, seed dispersers, and natural pest controllers, they support forests, farms, and food supplies. Some can consume thousands of insects in a single night, helping reduce the need for pesticides. With more than 1,500 species found worldwide, bats are the only mammals capable of sustained flight, making them one of nature's most impressive success stories.
-> 
-> Today's image features a gray-headed flying fox in Victoria, Australia. Despite their foxlike faces, flying foxes are fruit bats rather than insect hunters. Their keen eyesight and strong sense of smell help them locate blossoms and fruit, while their long-distance journeys spread pollen and seeds across the landscape. Hanging upside down between flights, this large bat looks perfectly at home. During Bat Week, it serves as a fitting ambassador for these remarkable nighttime navigators.
-> 
-> 
-
-</details>
-
-| ![Bat Week](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bat Week](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1080x1920.jpg) |terfall_EN-US7626867890_1080x1920.jpg) |x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_1080x1920.jpg) |N-US7714746725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1080x1920.jpg) |terfall_EN-US7626867890_1080x1920.jpg) |x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg) |.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1080x1920.jpg) | 4K](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1080x1920.jpg) |/cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1080x1920.jpg) |ArcitcCub_EN-US2529097123_1080x1920.jpg) |UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1080x1920.jpg) |) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1080x1920.jpg) |pg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
