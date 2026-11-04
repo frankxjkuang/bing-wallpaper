@@ -1,127 +1,137 @@
 ## bing wallpaper
 
-### 20261102
+### 20261103
 
-> Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)
+> 布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利 (© leonid_tit/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> While November might bring us a step closer to the holiday season, polar bears have other plans. They gather along the shores of Hudson Bay in Manitoba, Canada, waiting for sea ice to form so they can head back out to hunt seals. That annual spectacle inspired Polar Bear Week, observed during the first week of November, a celebration of the Arctic's largest land predator. Polar bears are powerful swimmers, expert hunters, and remarkably adapted to life in one of Earth's harshest environments. Yet shrinking sea ice means many spend longer on land, making it harder to find food and raising the risk of encounters with people.
+> 布莱埃斯湖坐落在意大利北部南蒂罗尔的多洛米蒂山脉，海拔近1500米。湖泊四周森林环绕，法内斯-塞内斯-布莱埃斯湖自然公园的壮丽群峰耸立其间，以动人的碧绿和湛蓝湖水闻名。一条3.5公里长的步道环绕湖岸，游客也可以乘坐传统木质划艇，从另一种视角欣赏风光。这里还是多条山间徒步路线的起点，包括多洛米蒂山脉著名的多洛米蒂高山步道1号。
 > 
-> The image captures a heartwarming scene: a mother and her cubs near Hudson Bay, where generations of bears have gathered seasonally. During Polar Bear Week, these iconic animals remind us not only of the Arctic's wild beauty, but also of the importance of protecting the frozen habitat they depend on.
+> 
 > 
 > 
 
 </details>
 
-| ![Polar Bear Week](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![布莱埃斯湖，多洛米蒂山脉，意大利](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![布莱埃斯湖，多洛米蒂山脉，意大利](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1080x1920.jpg) |
+
+### 20261102
+
+> 北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大 (© Danita Delimont/Adobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> 11月也许让我们离节日季又近了一步，但北极熊有别的打算。它们聚集在加拿大马尼托巴省的哈得孙湾沿岸，等待海冰形成，以便重返冰面捕猎海豹。每年上演的这一幕催生了在11月第一周举行的北极熊周，以庆祝北极地区体型最大的陆生捕食者。北极熊是游泳健将、捕猎高手，也极其适应地球上最严酷的环境之一。然而，海冰不断缩减，意味着许多北极熊不得不在陆地上待更久，觅食更加困难，与人类相遇的风险也随之上升。
+> 
+> 画面定格了哈得孙湾附近温馨的一幕：一只母熊和它的幼崽。世代北极熊都会在特定季节聚集于此。北极熊周期间，这些标志性的动物不仅让我们想起北极的野性之美，也提醒我们保护它们赖以生存的冰封家园。
+> 
+> 
+
+</details>
+
+| ![北极熊周](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![北极熊周](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_1080x1920.jpg) |
 
 ### 20261101
 
-> Handmade baskets, Santa Fe, New Mexico (© Patrick Lane/Getty Images)
+> 黑森林，巴登-符腾堡州，德国 (© Britus/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> A basket can carry far more than its contents. The Native American basketry seen here in Santa Fe, New Mexico, points to a much bigger story: a rich variety of techniques and designs developed by communities across the country. Their materials, patterns, and styles reflect their places of origin, turning everyday objects into records of local knowledge and identity.
+> 今天，我们一起欣赏笼罩在黑森林上空的朦胧景色。黑森林绵延约160公里，横跨德国西南部，汇集了葱郁的山丘、幽深的山谷、湖泊和迷人的小镇。最高峰费尔德贝格山海拔1,493米；多瑙河和内卡河也发源于黑森林。这里同样不乏历史与传统。林业长期以来在当地占据重要地位，而延续数百年的钟表制造传统，更让别具特色的布谷鸟钟名扬德国以外。
 > 
-> Every November, Native American Heritage Month shines a light on stories like these. What began as a week of recognition in 1986 expanded into a month in 1990, celebrating the cultures, contributions, and creativity that continue to shape the United States today.
 > 
-> Santa Fe is a fitting place to explore that story. The city is home to the Institute of American Indian Arts, where contemporary and traditional Native basketry is featured alongside pottery, jewelry, paintings, and prints. Here, the past isn't sitting quietly behind glass. It's being woven into the present, shaped by new generations of artists, and carried into the future.
+> 
+> 
 
 </details>
 
-| ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![黑森林，巴登-符腾堡州，德国](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![黑森林，巴登-符腾堡州，德国](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_1080x1920.jpg) |
 
 ### 20261031
 
-> St. Bartholomew's Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)
+> 圣巴尔多禄茂教堂，法兰克福，德国 (© AlxeyPnferov/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Forget the fog machine. Frankfurt, Germany, has something far more effective: a Gothic cathedral with a tower that looks ready for a midnight séance. St. Bartholomew's Cathedral, seen here, has the medieval silhouette Halloween practically ordered for itself. But the holiday's own history is even stranger.
+> 忘了烟雾机吧。德国法兰克福有更能烘托气氛的景物：一座哥特式大教堂，塔楼仿佛随时能上演一场午夜招魂会。画面中的圣巴尔多禄茂教堂有着中世纪风格的轮廓，简直像是万圣节特意挑选的布景。不过，这个节日本身的历史更加离奇。
 > 
-> Halloween was already perfecting the spooky atmosphere long before anyone invented fun-sized candy bars. Some of its traditions have been linked to Samhain, an ancient Celtic festival marking the harvest season's end and winter's beginning. Tradition held that the boundary between the living and the dead blurred then, allowing supernatural beings to wander our world. People responded with bonfires, offerings, and disguises designed to blend in with the otherworldly crowd.
+> 早在迷你巧克力棒问世之前，万圣节就已深谙营造诡异氛围之道。它的一些习俗与古代凯尔特人的萨温节有关；这一节日标志着收获季节结束、冬季开始。按照传统观念，此时生者与亡者之间的界限会变得模糊，超自然的存在得以在人间游荡。人们便点起篝火、献上供品，还乔装打扮，好融入那群来自异界的访客。
 > 
-> The Christian calendar later added All Saints' Day on November 1 and All Souls' Day on November 2. The night before All Saints' Day became All Hallows' Eve, eventually Halloween. So while St. Bartholomew's supplies the Gothic backdrop, Halloween brought ghosts, disguises, and supernatural drama. Honestly, the holiday came prepared.
+> 后来，基督教历法将11月1日定为诸圣节，11月2日定为追思亡者日。诸圣节的前夜成为万圣节前夜，后来演变成Halloween，即今天的万圣节。所以，圣巴尔多禄茂教堂提供了哥特式背景，而幽灵、装扮和超自然的戏剧感则是万圣节自己带来的。说真的，这个节日早有准备。
 
 </details>
 
-| ![It's Halloween!](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![It's Halloween!](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![万圣节到了！](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![万圣节到了！](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_1080x1920.jpg) |
 
 ### 20261030
 
-> Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)
+> 沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国 (© Terry St.Louis/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Winter brings a familiar rhythm to Bosque del Apache National Wildlife Refuge in New Mexico. The cranes arrive, wetlands fill with birds, and this area becomes a hub for seasonal wildlife. Established in 1939, the 57,331-acre sanctuary was created to provide a protected stopover for migrating waterfowl. Its wetlands, fields, and waterways now support wildlife throughout the year. Sandhill cranes, seen in today's image, are especially associated with the refuge during winter.
+> 冬天为新墨西哥州的博斯克德尔阿帕奇国家野生动物保护区带来熟悉的节奏。沙丘鹤陆续飞来，湿地聚满鸟儿，这片区域成为季节性野生动物的聚集地。这座占地57,331英亩的保护区成立于1939年，旨在为迁徙的水鸟提供受保护的中途栖息地。如今，这里的湿地、田野和水道全年滋养着野生动物。画面中的沙丘鹤尤其是保护区冬季的标志性身影。
 > 
-> These cranes typically begin arriving in late October and remain throughout the winter. At night, they roost in shallow water before heading to nearby fields around sunrise to feed. The refuge is an important wintering ground for the Rocky Mountain population of sandhill cranes, which migrates through the Middle Rio Grande Valley. Other seasonal visitors include snow geese, Ross's geese, northern pintails, northern shovelers, hawks, and eagles. Mammals such as mule deer, coyotes, and jackrabbits also inhabit the refuge, while its habitats support threatened and endangered species.
+> 这些沙丘鹤通常从10月下旬开始抵达，并在此度过整个冬季。夜里，它们栖息在浅水中，日出前后飞往附近的田野觅食。保护区是沙丘鹤落基山种群的重要越冬地；这一种群迁徙时会经过中里奥格兰德河谷。其他季节性访客包括雪雁、细嘴雁、针尾鸭、琵嘴鸭、鹰和雕。骡鹿、郊狼、北美野兔等哺乳动物也栖息于此，而这里的生境还为受威胁和濒危物种提供支持。
 > 
 > 
 
 </details>
 
-| ![Bosque del Apache National Wildlife Refuge, New Mexico](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bosque del Apache National Wildlife Refuge, New Mexico](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![沙丘鹤，新墨西哥州，美国](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![沙丘鹤，新墨西哥州，美国](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_1080x1920.jpg) |
 
 ### 20261029
 
-> Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)
+> 立石，埃夫伯里，威尔特郡，英格兰 (© George W Johnson/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> As morning mist drifts among the standing stones of Avebury in Wiltshire, England, the scene feels almost timeless. These ancient megaliths form part of one of the world's most remarkable prehistoric landscapes, centered on a vast Neolithic monument built around 4,500 years ago. Avebury contains the world's largest prehistoric stone circle, as well as a massive henge and stone avenues extending into the surrounding countryside. Together with nearby monuments such as Silbury Hill and West Kennet Avenue, it forms part of an extensive Neolithic complex that has fascinated generations of visitors, researchers, and archaeologists.
+> 晨雾在英格兰威尔特郡埃夫伯里的立石间飘荡，眼前景象仿佛超越了时间。这些古老的巨石构成了世界上最非凡的史前景观之一，其核心是一座约建于4500年前的宏大新石器时代纪念性建筑。埃夫伯里拥有世界上最大的史前石圈，还有一座巨型环形遗址，以及延伸至周围乡野的石列大道。它与附近的锡尔伯里山、西肯尼特大道等遗迹共同组成一处规模宏大的新石器时代遗址群，令一代又一代游客、研究人员和考古学家为之着迷。
 > 
-> Unlike many archaeological sites, Avebury allows visitors to walk among the stones themselves. Designated a UNESCO World Heritage Site as part of the Stonehenge, Avebury and Associated Sites World Heritage property, it offers a rare opportunity to experience a prehistoric setting where ancient monuments remain integrated with the modern countryside. While the precise purposes and meanings of these monuments remain uncertain, their scale is unmistakable.
+> 与许多考古遗址不同，埃夫伯里允许游客亲自在石头之间漫步。作为“巨石阵、埃夫伯里和相关遗址”世界遗产的一部分，这里被列为联合国教科文组织世界遗产，为人们提供了难得的机会，亲身感受古代纪念性建筑与现代乡野依然融为一体的史前环境。尽管这些遗迹的确切用途和含义仍未确定，但其宏大规模毋庸置疑。
 > 
 > 
 
 </details>
 
-| ![Standing stones at Avebury in Wiltshire, England](https://cn.bing.com/th?id=OHR.AveburyStones_EN-US9568662876_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Standing stones at Avebury in Wiltshire, England](https://cn.bing.com/th?id=OHR.AveburyStones_EN-US9568662876_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![兰威尔特郡埃夫伯里的立石，英格](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![兰威尔特郡埃夫伯里的立石，英格](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AveburyStones_EN-US9568662876_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AveburyStones_EN-US9568662876_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1080x1920.jpg) |
 
 ### 20261028
 
-> Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)
+> 库涅季采山城堡，波希米亚，捷克 (© Marek Saroch/Alamy)
 
 <details>
 <summary>Description</summary>
 
-> What stories could these walls tell? Rising above eastern Bohemia in Czechia, Kunětická hora Castle has witnessed centuries of history. Dating to the late 14th century, the castle gradually evolved into an impressive fortress and noble residence. Its elevated position offered commanding views of the surrounding countryside and helped make it an important stronghold.
+> 这些城墙会讲述怎样的故事？库涅季采山城堡高踞于捷克波希米亚东部，见证了数百年的历史。城堡的历史可追溯至14世纪末，后来逐渐发展为一座宏伟的要塞和贵族宅邸。它地势高耸，可俯瞰周围乡野，也因此成为一处重要据点。
 > 
-> The complex reached its height in the 16th century, when the powerful Pernštejn family transformed it into a grand late Gothic and Renaissance stronghold. Later centuries brought decline and neglect, and parts of the site were even lost to stone quarrying. Restoration began in the early 20th century, helping preserve the landmark visitors see today.
+> 这座建筑群在16世纪达到鼎盛，当时势力强大的佩恩施泰因家族将其改建为一座宏伟的晚期哥特式和文艺复兴式要塞。此后数百年间，这里逐渐衰败并遭到弃置，部分遗址甚至因采石而消失。修复工作于20世纪初启动，帮助保存了游客如今所见的这处地标。
 > 
-> Visitors can explore historic rooms and exhibitions, climb the tower for panoramic views, and discover the legends associated with the castle. Rising above the Elbe lowlands, Kunětická hora Castle remains a striking reminder of Bohemia's medieval past.
+> 游客可以参观历史房间和展览，登上塔楼欣赏全景，还能了解与城堡相关的种种传说。库涅季采山城堡高踞易北河低地之上，至今仍以醒目的身姿唤起人们对波希米亚中世纪往昔的记忆。
 
 </details>
 
-| ![Kunětická hora Castle, Bohemia, Czechia](https://cn.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Kunětická hora Castle, Bohemia, Czechia](https://cn.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![波希米亚的库涅季采山城堡，捷克](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![波希米亚的库涅季采山城堡，捷克](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_1080x1920.jpg) |
-
-### 20261027
-
-> A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Reflected in calm water and glowing in the light of the setting sun, this grove of pond cypress creates a striking display of color and symmetry. Native to the southeastern United States, the species is associated with shallow ponds, depressions, and wetland habitats. This image was captured in Georgia, where these trees can be found in places such as the Okefenokee Swamp and other low-lying wetlands.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1080x1920.jpg) |splay of color and symmetry. Native to the southeastern United States, the species is associated with shallow ponds, depressions, and wetland habitats. This image was captured in Georgia, where these trees can be found in places such as the Okefenokee Swamp and other low-lying wetlands.
 > 
 > Unlike most conifers, pond cypress sheds its needle-like foliage each fall, taking on warm yellow, copper, and orange-brown tones. Closely related to the more widespread bald cypress, it is generally smaller and more strongly associated with still or shallow water.
 > 
