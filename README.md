@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261104
+
+> 五彩落羽杉间划船的人们，宣城，安徽省，中国 (© Jackal Pan/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> 在安徽省宣城，人们划船穿过色彩斑斓的落羽杉林。秋天将这片被水淹没的林地变成由琥珀色、铜色和深铁锈色交织而成的锦绣景致。落羽杉的学名是“Taxodium distichum”，它在针叶树中颇为特别：每年秋季，柔软如羽毛的针叶会先变成红褐色，然后脱落。在北美洲，落羽杉因能生长在沼泽、河漫滩等湿地环境而闻名，常长出称为“膝状根”的瘤状根部突起，露出周围的泥土和水面。
+> 
+> 有些落羽杉极为长寿，历史记录中甚至有树龄超过1000年的个体。划船的人们从平静的水面滑过，在林木间穿行；眼前的景观也映照出落羽杉对湿地环境的天然适应性。深秋时节，这里的景色尤其动人：树叶由绿色转为如火般绚烂的色调，倒映在粼粼水面上，让整片森林宛如一幅生动的画。
+> 
+> 
+
+</details>
+
+| ![五彩落羽杉，宣城，安徽省，中国](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![五彩落羽杉，宣城，安徽省，中国](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1080x1920.jpg) |
+
 ### 20261103
 
 > 布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利 (© leonid_tit/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![兰威尔特郡埃夫伯里的立石，英格](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![兰威尔特郡埃夫伯里的立石，英格](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1080x1920.jpg) |
-
-### 20261028
-
-> 库涅季采山城堡，波希米亚，捷克 (© Marek Saroch/Alamy)
-
-<details>
-<summary>Description</summary>
-
-> 这些城墙会讲述怎样的故事？库涅季采山城堡高踞于捷克波希米亚东部，见证了数百年的历史。城堡的历史可追溯至14世纪末，后来逐渐发展为一座宏伟的要塞和贵族宅邸。它地势高耸，可俯瞰周围乡野，也因此成为一处重要据点。
-> 
-> 这座建筑群在16世纪达到鼎盛，当时势力强大的佩恩施泰因家族将其改建为一座宏伟的晚期哥特式和文艺复兴式要塞。此后数百年间，这里逐渐衰败并遭到弃置，部分遗址甚至因采石而消失。修复工作于20世纪初启动，帮助保存了游客如今所见的这处地标。
-> 
-> 游客可以参观历史房间和展览，登上塔楼欣赏全景，还能了解与城堡相关的种种传说。库涅季采山城堡高踞易北河低地之上，至今仍以醒目的身姿唤起人们对波希米亚中世纪往昔的记忆。
-
-</details>
-
-| ![波希米亚的库涅季采山城堡，捷克](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![波希米亚的库涅季采山城堡，捷克](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1080x1920.jpg) |splay of color and symmetry. Native to the southeastern United States, the species is associated with shallow ponds, depressions, and wetland habitats. This image was captured in Georgia, where these trees can be found in places such as the Okefenokee Swamp and other low-lying wetlands.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1080x1920.jpg) |or and symmetry. Native to the southeastern United States, the species is associated with shallow ponds, depressions, and wetland habitats. This image was captured in Georgia, where these trees can be found in places such as the Okefenokee Swamp and other low-lying wetlands.
 > 
 > Unlike most conifers, pond cypress sheds its needle-like foliage each fall, taking on warm yellow, copper, and orange-brown tones. Closely related to the more widespread bald cypress, it is generally smaller and more strongly associated with still or shallow water.
 > 
