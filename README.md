@@ -1,32 +1,51 @@
 ## bing wallpaper
 
-### 20261104
+### 20261105
 
-> 五彩落羽杉间划船的人们，宣城，安徽省，中国 (© Jackal Pan/Getty Images)
+> Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 在安徽省宣城，人们划船穿过色彩斑斓的落羽杉林。秋天将这片被水淹没的林地变成由琥珀色、铜色和深铁锈色交织而成的锦绣景致。落羽杉的学名是“Taxodium distichum”，它在针叶树中颇为特别：每年秋季，柔软如羽毛的针叶会先变成红褐色，然后脱落。在北美洲，落羽杉因能生长在沼泽、河漫滩等湿地环境而闻名，常长出称为“膝状根”的瘤状根部突起，露出周围的泥土和水面。
+> A simple wooden stile leads into one of England's most celebrated landscapes. The Lake District, a UNESCO World Heritage Site, is a patchwork of shimmering lakes, rugged fells, and centuries-old stone walls, all shaped by both nature and farming traditions.
 > 
-> 有些落羽杉极为长寿，历史记录中甚至有树龄超过1000年的个体。划船的人们从平静的水面滑过，在林木间穿行；眼前的景观也映照出落羽杉对湿地环境的天然适应性。深秋时节，这里的景色尤其动人：树叶由绿色转为如火般绚烂的色调，倒映在粼粼水面上，让整片森林宛如一幅生动的画。
+> This path leads toward Black Fell, whose rocky summit is known as Black Crag. At 1,060 feet, it may not be the tallest fell in the region, but its views are remarkable. From the top, hikers can look across Windermere, Coniston Water, and the dramatic Langdale Pikes.
+> 
+> The route to Black Crag winds around Tarn Hows, one of the Lake District's most picturesque spots, before climbing steadily toward the summit. For those approaching via Tom Gill, the journey also passes through woodland alongside the tumbling waterfalls. Whether you come for a leisurely walk or a hilltop panorama, this corner of Cumbria packs an outsized sense of adventure into every step.
+
+</details>
+
+| ![Black Crag, Lake District, England](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black Crag, Lake District, England](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_1080x1920.jpg) |
+
+### 20261104
+
+> People rowing among colorful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> People paddle through a glowing maze of bald cypress in Xuancheng, Anhui, where autumn transforms flooded woodlands into a tapestry of amber, copper, and deep rust. Known scientifically as 'Taxodium distichum,' bald cypress is unusual among conifers because it sheds its soft, feathery needles each fall, turning reddish-brown before they drop. In North America, it is famous for thriving in swamps, floodplains, and other wet habitats, often developing knobby root projections called 'knees' that rise above the surrounding soil and water.
+> 
+> Some specimens are exceptionally long-lived, with historical records reporting trees more than 1,000 years old. As rowers glide across the still water, they weave through a landscape that reflects the tree's natural affinity for wetlands. The scene is especially striking in late autumn, when the foliage shifts from green to fiery shades that shimmer across the water, turning the forest into a living painting.
 > 
 > 
 
 </details>
 
-| ![五彩落羽杉，宣城，安徽省，中国](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![五彩落羽杉，宣城，安徽省，中国](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Colorful bald cypress, Xuancheng, Anhui, China](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Colorful bald cypress, Xuancheng, Anhui, China](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1080x1920.jpg) |
 
 ### 20261103
 
-> 布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利 (© leonid_tit/Getty Images)
+> Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 布莱埃斯湖坐落在意大利北部南蒂罗尔的多洛米蒂山脉，海拔近1500米。湖泊四周森林环绕，法内斯-塞内斯-布莱埃斯湖自然公园的壮丽群峰耸立其间，以动人的碧绿和湛蓝湖水闻名。一条3.5公里长的步道环绕湖岸，游客也可以乘坐传统木质划艇，从另一种视角欣赏风光。这里还是多条山间徒步路线的起点，包括多洛米蒂山脉著名的多洛米蒂高山步道1号。
+> Tucked among the peaks of the Dolomites, Lake Braies sits nearly 5,000 feet above sea level in northern Italy. Its green and blue waters are framed by forest and the mountains of Fanes-Sennes-Braies Nature Park. Visitors can follow a two-mile trail around the shore or head out onto the water in one of the lake's traditional wooden rowboats. It's also a great place to begin exploring the surrounding mountains, with several hiking routes starting here, including the famous Alta Via 1.
 > 
 > 
 > 
@@ -34,108 +53,85 @@
 
 </details>
 
-| ![布莱埃斯湖，多洛米蒂山脉，意大利](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![布莱埃斯湖，多洛米蒂山脉，意大利](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Lake Braies, Dolomites, Italy](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Braies, Dolomites, Italy](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_1080x1920.jpg) |
 
 ### 20261102
 
-> 北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大 (© Danita Delimont/Adobe Stock)
+> Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)
 
 <details>
 <summary>Description</summary>
 
-> 11月也许让我们离节日季又近了一步，但北极熊有别的打算。它们聚集在加拿大马尼托巴省的哈得孙湾沿岸，等待海冰形成，以便重返冰面捕猎海豹。每年上演的这一幕催生了在11月第一周举行的北极熊周，以庆祝北极地区体型最大的陆生捕食者。北极熊是游泳健将、捕猎高手，也极其适应地球上最严酷的环境之一。然而，海冰不断缩减，意味着许多北极熊不得不在陆地上待更久，觅食更加困难，与人类相遇的风险也随之上升。
+> While November might bring us a step closer to the holiday season, polar bears have other plans. They gather along the shores of Hudson Bay in Manitoba, Canada, waiting for sea ice to form so they can head back out to hunt seals. That annual spectacle inspired Polar Bear Week, observed during the first week of November, a celebration of the Arctic's largest land predator. Polar bears are powerful swimmers, expert hunters, and remarkably adapted to life in one of Earth's harshest environments. Yet shrinking sea ice means many spend longer on land, making it harder to find food and raising the risk of encounters with people.
 > 
-> 画面定格了哈得孙湾附近温馨的一幕：一只母熊和它的幼崽。世代北极熊都会在特定季节聚集于此。北极熊周期间，这些标志性的动物不仅让我们想起北极的野性之美，也提醒我们保护它们赖以生存的冰封家园。
+> The image captures a heartwarming scene: a mother and her cubs near Hudson Bay, where generations of bears have gathered seasonally. During Polar Bear Week, these iconic animals remind us not only of the Arctic's wild beauty, but also of the importance of protecting the frozen habitat they depend on.
 > 
 > 
 
 </details>
 
-| ![北极熊周](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![北极熊周](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Polar Bear Week](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1080x1920.jpg) |
 
 ### 20261101
 
-> 黑森林，巴登-符腾堡州，德国 (© Britus/Getty Images)
+> Handmade baskets, Santa Fe, New Mexico (© Patrick Lane/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 今天，我们一起欣赏笼罩在黑森林上空的朦胧景色。黑森林绵延约160公里，横跨德国西南部，汇集了葱郁的山丘、幽深的山谷、湖泊和迷人的小镇。最高峰费尔德贝格山海拔1,493米；多瑙河和内卡河也发源于黑森林。这里同样不乏历史与传统。林业长期以来在当地占据重要地位，而延续数百年的钟表制造传统，更让别具特色的布谷鸟钟名扬德国以外。
+> A basket can carry far more than its contents. The Native American basketry seen here in Santa Fe, New Mexico, points to a much bigger story: a rich variety of techniques and designs developed by communities across the country. Their materials, patterns, and styles reflect their places of origin, turning everyday objects into records of local knowledge and identity.
 > 
+> Every November, Native American Heritage Month shines a light on stories like these. What began as a week of recognition in 1986 expanded into a month in 1990, celebrating the cultures, contributions, and creativity that continue to shape the United States today.
 > 
-> 
-> 
+> Santa Fe is a fitting place to explore that story. The city is home to the Institute of American Indian Arts, where contemporary and traditional Native basketry is featured alongside pottery, jewelry, paintings, and prints. Here, the past isn't sitting quietly behind glass. It's being woven into the present, shaped by new generations of artists, and carried into the future.
 
 </details>
 
-| ![黑森林，巴登-符腾堡州，德国](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![黑森林，巴登-符腾堡州，德国](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Native American Heritage Month](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_1080x1920.jpg) |
 
 ### 20261031
 
-> 圣巴尔多禄茂教堂，法兰克福，德国 (© AlxeyPnferov/Getty Images)
+> St. Bartholomew's Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 忘了烟雾机吧。德国法兰克福有更能烘托气氛的景物：一座哥特式大教堂，塔楼仿佛随时能上演一场午夜招魂会。画面中的圣巴尔多禄茂教堂有着中世纪风格的轮廓，简直像是万圣节特意挑选的布景。不过，这个节日本身的历史更加离奇。
+> Forget the fog machine. Frankfurt, Germany, has something far more effective: a Gothic cathedral with a tower that looks ready for a midnight séance. St. Bartholomew's Cathedral, seen here, has the medieval silhouette Halloween practically ordered for itself. But the holiday's own history is even stranger.
 > 
-> 早在迷你巧克力棒问世之前，万圣节就已深谙营造诡异氛围之道。它的一些习俗与古代凯尔特人的萨温节有关；这一节日标志着收获季节结束、冬季开始。按照传统观念，此时生者与亡者之间的界限会变得模糊，超自然的存在得以在人间游荡。人们便点起篝火、献上供品，还乔装打扮，好融入那群来自异界的访客。
+> Halloween was already perfecting the spooky atmosphere long before anyone invented fun-sized candy bars. Some of its traditions have been linked to Samhain, an ancient Celtic festival marking the harvest season's end and winter's beginning. Tradition held that the boundary between the living and the dead blurred then, allowing supernatural beings to wander our world. People responded with bonfires, offerings, and disguises designed to blend in with the otherworldly crowd.
 > 
-> 后来，基督教历法将11月1日定为诸圣节，11月2日定为追思亡者日。诸圣节的前夜成为万圣节前夜，后来演变成Halloween，即今天的万圣节。所以，圣巴尔多禄茂教堂提供了哥特式背景，而幽灵、装扮和超自然的戏剧感则是万圣节自己带来的。说真的，这个节日早有准备。
+> The Christian calendar later added All Saints' Day on November 1 and All Souls' Day on November 2. The night before All Saints' Day became All Hallows' Eve, eventually Halloween. So while St. Bartholomew's supplies the Gothic backdrop, Halloween brought ghosts, disguises, and supernatural drama. Honestly, the holiday came prepared.
 
 </details>
 
-| ![万圣节到了！](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![万圣节到了！](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![It's Halloween!](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![It's Halloween!](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1080x1920.jpg) |
 
 ### 20261030
 
-> 沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国 (© Terry St.Louis/Getty Images)
+> Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> 冬天为新墨西哥州的博斯克德尔阿帕奇国家野生动物保护区带来熟悉的节奏。沙丘鹤陆续飞来，湿地聚满鸟儿，这片区域成为季节性野生动物的聚集地。这座占地57,331英亩的保护区成立于1939年，旨在为迁徙的水鸟提供受保护的中途栖息地。如今，这里的湿地、田野和水道全年滋养着野生动物。画面中的沙丘鹤尤其是保护区冬季的标志性身影。
+> Winter brings a familiar rhythm to Bosque del Apache National Wildlife Refuge in New Mexico. The cranes arrive, wetlands fill with birds, and this area becomes a hub for seasonal wildlife. Established in 1939, the 57,331-acre sanctuary was created to provide a protected stopover for migrating waterfowl. Its wetlands, fields, and waterways now support wildlife throughout the year. Sandhill cranes, seen in today's image, are especially associated with the refuge during winter.
 > 
-> 这些沙丘鹤通常从10月下旬开始抵达，并在此度过整个冬季。夜里，它们栖息在浅水中，日出前后飞往附近的田野觅食。保护区是沙丘鹤落基山种群的重要越冬地；这一种群迁徙时会经过中里奥格兰德河谷。其他季节性访客包括雪雁、细嘴雁、针尾鸭、琵嘴鸭、鹰和雕。骡鹿、郊狼、北美野兔等哺乳动物也栖息于此，而这里的生境还为受威胁和濒危物种提供支持。
+> These cranes typically begin arriving in late October and remain throughout the winter. At night, they roost in shallow water before heading to nearby fields around sunrise to feed. The refuge is an important wintering ground for the Rocky Mountain population of sandhill cranes, which migrates through the Middle Rio Grande Valley. Other seasonal visitors include snow geese, Ross's geese, northern pintails, northern shovelers, hawks, and eagles. Mammals such as mule deer, coyotes, and jackrabbits also inhabit the refuge, while its habitats support threatened and endangered species.
 > 
 > 
 
 </details>
 
-| ![沙丘鹤，新墨西哥州，美国](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![沙丘鹤，新墨西哥州，美国](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Bosque del Apache National Wildlife Refuge, New Mexico](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bosque del Apache National Wildlife Refuge, New Mexico](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_1080x1920.jpg) |
-
-### 20261029
-
-> 立石，埃夫伯里，威尔特郡，英格兰 (© George W Johnson/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> 晨雾在英格兰威尔特郡埃夫伯里的立石间飘荡，眼前景象仿佛超越了时间。这些古老的巨石构成了世界上最非凡的史前景观之一，其核心是一座约建于4500年前的宏大新石器时代纪念性建筑。埃夫伯里拥有世界上最大的史前石圈，还有一座巨型环形遗址，以及延伸至周围乡野的石列大道。它与附近的锡尔伯里山、西肯尼特大道等遗迹共同组成一处规模宏大的新石器时代遗址群，令一代又一代游客、研究人员和考古学家为之着迷。
-> 
-> 与许多考古遗址不同，埃夫伯里允许游客亲自在石头之间漫步。作为“巨石阵、埃夫伯里和相关遗址”世界遗产的一部分，这里被列为联合国教科文组织世界遗产，为人们提供了难得的机会，亲身感受古代纪念性建筑与现代乡野依然融为一体的史前环境。尽管这些遗迹的确切用途和含义仍未确定，但其宏大规模毋庸置疑。
-> 
-> 
-
-</details>
-
-| ![兰威尔特郡埃夫伯里的立石，英格](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![兰威尔特郡埃夫伯里的立石，英格](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1080x1920.jpg) |or and symmetry. Native to the southeastern United States, the species is associated with shallow ponds, depressions, and wetland habitats. This image was captured in Georgia, where these trees can be found in places such as the Okefenokee Swamp and other low-lying wetlands.
-> 
-> Unlike most conifers, pond cypress sheds its needle-like foliage each fall, taking on warm yellow, copper, and orange-brown tones. Closely related to the more widespread bald cypress, it is generally smaller and more strongly associated with still or shallow water.
-> 
-> Cypress wetlands provide important habitat and nesting sites for birds, amphibians, and other wildlife. Here, glowing reflections, dark trunks, and sunlight transform the wetland into a nearly painterly landscape, revealing the quiet beauty of the American South.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1080x1920.jpg) |ks, and sunlight transform the wetland into a nearly painterly landscape, revealing the quiet beauty of the American South.
 
 </details>
 
