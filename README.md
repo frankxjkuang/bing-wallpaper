@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261106
+
+> Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii (© MNStudio/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> A volcano, a rainforest, and a bamboo grove? Haleakalā National Park on Maui has all three. Spanning Maui from its 10,023-foot summit to the coast, the park protects landscapes that change dramatically with elevation, rainfall, and temperature. It was established in 1916 as part of Hawaii National Park and became its own national park in 1961. The name Haleakalā translates to 'House of the Sun,' reflecting the Hawaiian mo'olelo of Māui capturing the sun to lengthen the day.
+> 
+> The park is home to more than 850 plant species, including the Haleakalā silversword, a plant found naturally only on the mountain, as well as native birds such as the nēnē and 'ua'u. In the Kīpahulu District, the Pīpīwai Trail heads through a wet forest to its famous bamboo grove. About a mile into the hike, the bamboo creates a canopy overhead, with its stalks making distinctive sounds when the wind moves through them.
+> 
+> 
+
+</details>
+
+| ![Bamboo forest, Haleakalā National Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bamboo forest, Haleakalā National Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_1080x1920.jpg) |
+
 ### 20261105
 
 > Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![It's Halloween!](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![It's Halloween!](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1080x1920.jpg) |
-
-### 20261030
-
-> Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Winter brings a familiar rhythm to Bosque del Apache National Wildlife Refuge in New Mexico. The cranes arrive, wetlands fill with birds, and this area becomes a hub for seasonal wildlife. Established in 1939, the 57,331-acre sanctuary was created to provide a protected stopover for migrating waterfowl. Its wetlands, fields, and waterways now support wildlife throughout the year. Sandhill cranes, seen in today's image, are especially associated with the refuge during winter.
-> 
-> These cranes typically begin arriving in late October and remain throughout the winter. At night, they roost in shallow water before heading to nearby fields around sunrise to feed. The refuge is an important wintering ground for the Rocky Mountain population of sandhill cranes, which migrates through the Middle Rio Grande Valley. Other seasonal visitors include snow geese, Ross's geese, northern pintails, northern shovelers, hawks, and eagles. Mammals such as mule deer, coyotes, and jackrabbits also inhabit the refuge, while its habitats support threatened and endangered species.
-> 
-> 
-
-</details>
-
-| ![Bosque del Apache National Wildlife Refuge, New Mexico](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bosque del Apache National Wildlife Refuge, New Mexico](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1080x1920.jpg) |ks, and sunlight transform the wetland into a nearly painterly landscape, revealing the quiet beauty of the American South.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1080x1920.jpg) |ks, and sunlight transform the wetland into a nearly painterly landscape, revealing the quiet beauty of the American South.
 
 </details>
 
