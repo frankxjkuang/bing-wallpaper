@@ -1,42 +1,61 @@
 ## bing wallpaper
 
-### 20261107
+### 20261108
 
-> A bison in the grasslands of Theodore Roosevelt National Park, North Dakota, USA (© Tandem Stock/Adobe Stock)
+> Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> One of North America's most remarkable animals, the bison is a powerful symbol of strength, resilience and conservation. Weighing as much as 900 kilograms (2,000 pounds) and capable of running up to 55 km/h (35 mph), bison are surprisingly agile. Despite being commonly called buffalo, American bison are a distinct species known for their massive shoulder hump, curved horns and shaggy coats that help them thrive through harsh winters. Once pushed to the brink of extinction, bison have made an inspiring comeback thanks to conservation efforts across Canada and the United States, making them a powerful example of successful wildlife recovery.
+> What happens when the darkest night of the year gets the brightest celebration? Diwali. The Festival of Lights is celebrated by millions worldwide, bringing together diyas, lanterns, rangoli, prayers, sweets, and family gatherings.
 > 
+> The name Diwali comes from the Sanskrit 'dipavali,' meaning 'row of lights.' The celebration falls on Amavasya, the new-moon night in the Hindu month of Kartik. Across India, the festival carries different stories and traditions. In North India, it marks Lord Rama's return to Ayodhya; in parts of South India and Nepal, it is linked to Lord Krishna's victory over Narakasura. In Bengal, the festival honors the goddess Kali. Jains and Sikhs also observe Diwali for important religious reasons.
 > 
-> 
-> 
+> The festival has found a home in America, too. California, Connecticut, and Pennsylvania recognize Diwali as a state holiday. The White House has hosted Diwali celebrations, while the US Postal Service has issued commemorative Diwali stamps, including one in 2026. From community events to sweets shared at schools and workplaces, Diwali continues to light up communities.
 
 </details>
 
-| ![Bison](https://cn.bing.com/th?id=OHR.DakotaBison_EN-CA6055061732_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bison](https://cn.bing.com/th?id=OHR.DakotaBison_EN-CA6055061732_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Diwali (Festival of Lights)](https://cn.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Diwali (Festival of Lights)](https://cn.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DakotaBison_EN-CA6055061732_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DakotaBison_EN-CA6055061732_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_1080x1920.jpg) |
+
+### 20261107
+
+> A bison in the grasslands of Theodore Roosevelt National Park, North Dakota (© Tandem Stock/Adobe Stock)
+
+<details>
+<summary>Description</summary>
+
+> When the going gets tough, the bison gets grazing. National Bison Day celebrates the North American mammal that can weigh up to 2,000 pounds yet sprint at 35 mph. Observed on the first Saturday of November, the day honors the bovine that became the United States' national mammal in 2016.
+> 
+> Despite often being called a buffalo, the American bison is not one of the true buffaloes, which are native to Africa and Asia. Its scientific name, Bison bison, leaves little room for confusion. Its muscular shoulder hump helps it swing its head side to side, clearing snow to reach grass underneath. Both males and females grow horns and beards. Their tails offer clues about their mood: a swishing tail generally signals calm, while a raised tail may indicate agitation.
+> 
+> Yellowstone National Park is the only place in the United States where bison have lived continuously since prehistoric times. Once nearly driven to extinction, bison have made an impressive conservation comeback. Today, their survival is a conservation success worth celebrating.
+
+</details>
+
+| ![National Bison Day](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_1080x1920.jpg) |
 
 ### 20261106
 
-> Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii, USA (© MNStudio/Getty Images)
+> Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii (© MNStudio/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> Haleakalā National Park on Maui is home to an extraordinary mix of landscapes, from volcanic slopes and rainforest to towering bamboo forests. The park stretches from the summit of Haleakalā, which rises 3,055 metres above sea level, to the Pacific coast. More than 850 plant species grow here, including some found nowhere else on Earth, alongside native Hawaiian wildlife. One of the park's most popular walks is the Pīpīwai Trail, which winds through lush forest before reaching a remarkable bamboo grove. As the bamboo sways in the breeze, its tall stalks create distinctive sounds that add to the unique experience.
+> A volcano, a rainforest, and a bamboo grove? Haleakalā National Park on Maui has all three. Spanning Maui from its 10,023-foot summit to the coast, the park protects landscapes that change dramatically with elevation, rainfall, and temperature. It was established in 1916 as part of Hawaii National Park and became its own national park in 1961. The name Haleakalā translates to 'House of the Sun,' reflecting the Hawaiian mo'olelo of Māui capturing the sun to lengthen the day.
 > 
-> 
+> The park is home to more than 850 plant species, including the Haleakalā silversword, a plant found naturally only on the mountain, as well as native birds such as the nēnē and 'ua'u. In the Kīpahulu District, the Pīpīwai Trail heads through a wet forest to its famous bamboo grove. About a mile into the hike, the bamboo creates a canopy overhead, with its stalks making distinctive sounds when the wind moves through them.
 > 
 > 
 
 </details>
 
-| ![Bamboo forest, Haleakalā National Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-CA6167003961_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bamboo forest, Haleakalā National Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-CA6167003961_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Bamboo forest, Haleakalā National Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bamboo forest, Haleakalā National Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-CA6167003961_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-CA6167003961_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_1080x1920.jpg) |
 
 ### 20261105
 
@@ -45,36 +64,36 @@
 <details>
 <summary>Description</summary>
 
-> A simple wooden gate opens onto the Lake District, a UNESCO World Heritage Site in north-west England known for its lakes, rolling hills and centuries-old stone walls. This path leads toward Black Crag, the summit of Black Fell, which rises to about 323 metres and offers impressive views of Windermere, Coniston Water, and the Langdale Pikes. The route passes Tarn Hows, one of the region's most scenic spots, before climbing through a landscape shaped by nature and farming traditions. Some trails also follow Tom Gill, where woodland paths run alongside cascading waterfalls in this picturesque corner of Cumbria.
+> A simple wooden stile leads into one of England's most celebrated landscapes. The Lake District, a UNESCO World Heritage Site, is a patchwork of shimmering lakes, rugged fells, and centuries-old stone walls, all shaped by both nature and farming traditions.
 > 
+> This path leads toward Black Fell, whose rocky summit is known as Black Crag. At 1,060 feet, it may not be the tallest fell in the region, but its views are remarkable. From the top, hikers can look across Windermere, Coniston Water, and the dramatic Langdale Pikes.
 > 
-> 
-> 
+> The route to Black Crag winds around Tarn Hows, one of the Lake District's most picturesque spots, before climbing steadily toward the summit. For those approaching via Tom Gill, the journey also passes through woodland alongside the tumbling waterfalls. Whether you come for a leisurely walk or a hilltop panorama, this corner of Cumbria packs an outsized sense of adventure into every step.
 
 </details>
 
-| ![Black Crag, Lake District, England](https://cn.bing.com/th?id=OHR.StileCrossing_EN-CA6257654888_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black Crag, Lake District, England](https://cn.bing.com/th?id=OHR.StileCrossing_EN-CA6257654888_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Black Crag, Lake District, England](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black Crag, Lake District, England](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StileCrossing_EN-CA6257654888_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StileCrossing_EN-CA6257654888_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_1080x1920.jpg) |
 
 ### 20261104
 
-> People rowing among colourful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)
+> People rowing among colorful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)
 
 <details>
 <summary>Description</summary>
 
-> People paddle through flooded woodlands in Xuancheng, Anhui, where fall transforms bald cypress forests into a striking display of amber, copper and rust-coloured foliage. Unlike most conifers, bald cypress sheds its soft needles each fall after they turn reddish-brown. Native to North America, these trees thrive in wetlands, swamps and floodplains, often developing distinctive root "knees" that rise above the water. Some specimens have lived for more than 1,000 years. In late fall, the still water reflects the colourful canopy above, creating a remarkable landscape that highlights the bald cypress's natural connection to wetland environments.
+> People paddle through a glowing maze of bald cypress in Xuancheng, Anhui, where autumn transforms flooded woodlands into a tapestry of amber, copper, and deep rust. Known scientifically as 'Taxodium distichum,' bald cypress is unusual among conifers because it sheds its soft, feathery needles each fall, turning reddish-brown before they drop. In North America, it is famous for thriving in swamps, floodplains, and other wet habitats, often developing knobby root projections called 'knees' that rise above the surrounding soil and water.
 > 
-> 
+> Some specimens are exceptionally long-lived, with historical records reporting trees more than 1,000 years old. As rowers glide across the still water, they weave through a landscape that reflects the tree's natural affinity for wetlands. The scene is especially striking in late autumn, when the foliage shifts from green to fiery shades that shimmer across the water, turning the forest into a living painting.
 > 
 > 
 
 </details>
 
-| ![Colourful bald cypress, Xuancheng, Anhui, China](https://cn.bing.com/th?id=OHR.AutumnChina_EN-CA6335982294_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Colourful bald cypress, Xuancheng, Anhui, China](https://cn.bing.com/th?id=OHR.AutumnChina_EN-CA6335982294_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Colorful bald cypress, Xuancheng, Anhui, China](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Colorful bald cypress, Xuancheng, Anhui, China](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-CA6335982294_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-CA6335982294_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1080x1920.jpg) |
 
 ### 20261103
 
@@ -83,7 +102,7 @@
 <details>
 <summary>Description</summary>
 
-> Lake Braies sits almost 1,500 metres above sea level in the Dolomites of South Tyrol, northern Italy. Surrounded by forest and the dramatic peaks of the Fanes-Sennes-Braies Nature Park, the lake is known for its striking green and blue waters. A 3.5-kilometre trail circles the shore, while traditional wooden rowing boats offer another way to take in the scenery. The lake is also a starting point for several mountain walks, including the Dolomites' famous Alta Via 1.
+> Tucked among the peaks of the Dolomites, Lake Braies sits nearly 5,000 feet above sea level in northern Italy. Its green and blue waters are framed by forest and the mountains of Fanes-Sennes-Braies Nature Park. Visitors can follow a two-mile trail around the shore or head out onto the water in one of the lake's traditional wooden rowboats. It's also a great place to begin exploring the surrounding mountains, with several hiking routes starting here, including the famous Alta Via 1.
 > 
 > 
 > 
@@ -91,9 +110,9 @@
 
 </details>
 
-| ![Lake Braies, Dolomites, Italy](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-CA5888574678_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Braies, Dolomites, Italy](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-CA5888574678_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Lake Braies, Dolomites, Italy](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Braies, Dolomites, Italy](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-CA5888574678_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-CA5888574678_1080x1920.jpg) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_1080x1920.jpg) |
 
 ### 20261102
 
@@ -102,56 +121,17 @@
 <details>
 <summary>Description</summary>
 
-> November marks an important time for polar bears along the shores of Hudson Bay in Manitoba, where they gather and wait for sea ice to form before returning to hunt seals. This annual event is celebrated during Polar Bear Week, observed in early November. Polar bears are powerful swimmers and highly adapted to Arctic life, but shrinking sea ice is forcing many to spend more time on land, making it harder to find food. The mother and cubs seen in today's image represent generations of bears that have followed this seasonal cycle, highlighting both the beauty of the Arctic and the importance of protecting the habitat these iconic Canadian animals depend on.
+> While November might bring us a step closer to the holiday season, polar bears have other plans. They gather along the shores of Hudson Bay in Manitoba, Canada, waiting for sea ice to form so they can head back out to hunt seals. That annual spectacle inspired Polar Bear Week, observed during the first week of November, a celebration of the Arctic's largest land predator. Polar bears are powerful swimmers, expert hunters, and remarkably adapted to life in one of Earth's harshest environments. Yet shrinking sea ice means many spend longer on land, making it harder to find food and raising the risk of encounters with people.
 > 
-> 
-> 
-> 
-
-</details>
-
-| ![Polar Bear Week](https://cn.bing.com/th?id=OHR.HudsonBear_EN-CA5688581864_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.HudsonBear_EN-CA5688581864_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HudsonBear_EN-CA5688581864_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HudsonBear_EN-CA5688581864_1080x1920.jpg) |
-
-### 20261101
-
-> Black Forest, Baden-Württemberg, Germany (© Britus/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> The Black Forest in south-west Germany is known for its misty landscapes, forested hills, deep valleys, lakes and picturesque towns. Stretching about 160 kilometres, the region is home to Feldberg, its highest peak at 1,493 metres, and marks the source of both the Danube and Neckar rivers. Beyond its natural beauty, the Black Forest is rich in history and tradition. Forestry has shaped the region for centuries, while its renowned clockmaking heritage helped make the cuckoo clock famous around the world. Today, the area remains one of Germany's most distinctive destinations, blending cultural heritage with striking scenery.
-> 
-> 
+> The image captures a heartwarming scene: a mother and her cubs near Hudson Bay, where generations of bears have gathered seasonally. During Polar Bear Week, these iconic animals remind us not only of the Arctic's wild beauty, but also of the importance of protecting the frozen habitat they depend on.
 > 
 > 
 
 </details>
 
-| ![Black Forest, Baden-Württemberg, Germany](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_EN-CA6119950535_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black Forest, Baden-Württemberg, Germany](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_EN-CA6119950535_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| ![Polar Bear Week](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_EN-CA6119950535_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_EN-CA6119950535_1080x1920.jpg) |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_1080x1920.jpg) |
-
-### 20261031
-
-> St. Bartholomew's Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Forget the fog machine. Frankfurt, Germany, has something far more effective: a Gothic cathedral with a tower that looks ready for a midnight séance. St. Bartholomew's Cathedral, seen here, has the medieval silhouette Halloween practically ordered for itself. But the holiday's own history is even stranger.
-> 
-> Halloween was already perfecting the spooky atmosphere long before anyone invented fun-sized candy bars. Some of its traditions have been linked to Samhain, an ancient Celtic festival marking the harvest season's end and winter's beginning. Tradition held that the boundary between the living and the dead blurred then, allowing supernatural beings to wander our world. People responded with bonfires, offerings, and disguises designed to blend in with the otherworldly crowd.
-> 
-> The Christian calendar later added All Saints' Day on November 1 and All Souls' Day on November 2. The night before All Saints' Day became All Hallows' Eve, eventually Halloween. So while St. Bartholomew's supplies the Gothic backdrop, Halloween brought ghosts, disguises, and supernatural drama. Honestly, the holiday came prepared.
-
-</details>
-
-| ![It's Halloween!](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![It's Halloween!](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1080x1920.jpg) |(https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1080x1920.jpg) |ks, and sunlight transform the wetland into a nearly painterly landscape, revealing the quiet beauty of the American South.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1080x1920.jpg) |bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1080x1920.jpg) |ks, and sunlight transform the wetland into a nearly painterly landscape, revealing the quiet beauty of the American South.
 
 </details>
 
