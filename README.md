@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261109
+
+> Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Cross the Guadalquivir River in Seville, the capital of Spain's Andalusia region, and the city's rhythm seems to change. On the other side lies Triana, a colorful neighborhood where ceramics, flamenco, and local traditions are woven into everyday life. Since the 19th century, the Isabel II Bridge, also known as the Triana Bridge, has connected the neighborhood to Seville's historic center.
+> 
+> Step off the bridge and Triana's distinctive character comes into view. The neighborhood has a long tradition of pottery and tilemaking, and colorful azulejos still brighten facades and workshops. Its streets have also played an important role in the history of flamenco, an art form deeply associated with Triana. Along Calle Betis, brightly painted buildings face the Guadalquivir.
+> 
+> Triana isn't defined by a single monument. Its appeal lies in its mix of artisans and markets, music and tiled courtyards, riverside terraces, and narrow streets. Seville may be just across the water, but Triana has a spirit all its own.
+
+</details>
+
+| ![Historic district of Triana, Seville, Spain](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Historic district of Triana, Seville, Spain](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_1080x1920.jpg) |
+
 ### 20261108
 
 > Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Lake Braies, Dolomites, Italy](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Braies, Dolomites, Italy](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_1080x1920.jpg) |
-
-### 20261102
-
-> Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> While November might bring us a step closer to the holiday season, polar bears have other plans. They gather along the shores of Hudson Bay in Manitoba, Canada, waiting for sea ice to form so they can head back out to hunt seals. That annual spectacle inspired Polar Bear Week, observed during the first week of November, a celebration of the Arctic's largest land predator. Polar bears are powerful swimmers, expert hunters, and remarkably adapted to life in one of Earth's harshest environments. Yet shrinking sea ice means many spend longer on land, making it harder to find food and raising the risk of encounters with people.
-> 
-> The image captures a heartwarming scene: a mother and her cubs near Hudson Bay, where generations of bears have gathered seasonally. During Polar Bear Week, these iconic animals remind us not only of the Arctic's wild beauty, but also of the importance of protecting the frozen habitat they depend on.
-> 
-> 
-
-</details>
-
-| ![Polar Bear Week](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Polar Bear Week](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1080x1920.jpg) |bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1080x1920.jpg) |ks, and sunlight transform the wetland into a nearly painterly landscape, revealing the quiet beauty of the American South.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_1080x1920.jpg) |5571462_1080x1920.jpg) |ks, and sunlight transform the wetland into a nearly painterly landscape, revealing the quiet beauty of the American South.
 
 </details>
 
