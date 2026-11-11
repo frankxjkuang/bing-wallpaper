@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261110
+
+> Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> From above, Rose Island looks like a brushstroke of green surrounded by every shade of blue. Just three miles east of Paradise Island in The Bahamas, this slender cay trades busy roads and city blocks for sandy shores, shallow waters, and an inland lagoon. Its peaceful appearance comes with a touch of movie drama. Rose Island was used as a filming location for the 1965 James Bond adventure 'Thunderball,' including the explosive destruction of the Disco Volante.
+> 
+> Beyond its cinematic cameo, Rose Island offers a glimpse of what makes The Bahamas so striking. The island is known for its swimming pigs, adding an unexpected touch of character to its shores. Across the archipelago, low-lying islands and cays meet reefs, sandbars, and brilliant shallows. Pale sand beneath clear water creates ribbons of turquoise, aquamarine, and deep blue. From this height, land and sea seem to blur together, proving that sometimes the best view of paradise comes from above.
+> 
+> 
+
+</details>
+
+| ![Aerial view of Rose Island, The Bahamas](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Rose Island, The Bahamas](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_1080x1920.jpg) |
+
 ### 20261109
 
 > Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)
@@ -112,30 +131,7 @@
 
 | ![Colorful bald cypress, Xuancheng, Anhui, China](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Colorful bald cypress, Xuancheng, Anhui, China](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1080x1920.jpg) |
-
-### 20261103
-
-> Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Tucked among the peaks of the Dolomites, Lake Braies sits nearly 5,000 feet above sea level in northern Italy. Its green and blue waters are framed by forest and the mountains of Fanes-Sennes-Braies Nature Park. Visitors can follow a two-mile trail around the shore or head out onto the water in one of the lake's traditional wooden rowboats. It's also a great place to begin exploring the surrounding mountains, with several hiking routes starting here, including the famous Alta Via 1.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Lake Braies, Dolomites, Italy](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Lake Braies, Dolomites, Italy](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_1080x1920.jpg) |5571462_1080x1920.jpg) |ks, and sunlight transform the wetland into a nearly painterly landscape, revealing the quiet beauty of the American South.
-
-</details>
-
-| ![A grove of pond cypress trees with fall foliage, Georgia](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A grove of pond cypress trees with fall foliage, Georgia](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1080x1920.jpg) |&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_1080x1920.jpg) |N-US7714746725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1080x1920.jpg) |terfall_EN-US7626867890_1080x1920.jpg) |x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
