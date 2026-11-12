@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261111
+
+> American flags in a public park in upstate New York (© Matt Champlin/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> As the sun filters through autumn trees in an upstate New York park, rows of flags turn the landscape into a tribute. Veterans Day, observed every November 11, honors all who have served in the US Armed Forces.
+> 
+> The date carries history. The armistice that ended fighting on the Western Front in World War I took effect at the eleventh hour of the eleventh day of the eleventh month in 1918. More than a century later, communities mark November 11 with ceremonies, parades, flag displays, and other tributes to veterans. At Arlington National Cemetery, the National Veterans Day Ceremony begins at 11 AM with a wreath-laying at the Tomb of the Unknown Soldier.
+> 
+> Tributes also happen closer to home, in schools, neighborhoods, and public spaces like the park pictured here. Whether through a community gathering, a flag raised in recognition, or a word of thanks, Veterans Day offers a moment to pause, reflect, and recognize generations of service.
+
+</details>
+
+| ![Veterans Day](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Veterans Day](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1080x1920.jpg) |
+
 ### 20261110
 
 > Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Black Crag, Lake District, England](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black Crag, Lake District, England](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_1080x1920.jpg) |
-
-### 20261104
-
-> People rowing among colorful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> People paddle through a glowing maze of bald cypress in Xuancheng, Anhui, where autumn transforms flooded woodlands into a tapestry of amber, copper, and deep rust. Known scientifically as 'Taxodium distichum,' bald cypress is unusual among conifers because it sheds its soft, feathery needles each fall, turning reddish-brown before they drop. In North America, it is famous for thriving in swamps, floodplains, and other wet habitats, often developing knobby root projections called 'knees' that rise above the surrounding soil and water.
-> 
-> Some specimens are exceptionally long-lived, with historical records reporting trees more than 1,000 years old. As rowers glide across the still water, they weave through a landscape that reflects the tree's natural affinity for wetlands. The scene is especially striking in late autumn, when the foliage shifts from green to fiery shades that shimmer across the water, turning the forest into a living painting.
-> 
-> 
-
-</details>
-
-| ![Colorful bald cypress, Xuancheng, Anhui, China](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Colorful bald cypress, Xuancheng, Anhui, China](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1080x1920.jpg) |&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1080x1920.jpg) |&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_1080x1920.jpg) |N-US7714746725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1080x1920.jpg) |terfall_EN-US7626867890_1080x1920.jpg) |x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
