@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261112
+
+> North Window, Arches National Park, Moab, Utah (© lightphoto/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> On November 12, Arches National Park marks the anniversary of its designation as a national park in 1971. Just north of Moab, Utah, the high-desert park is home to more than 2,000 natural sandstone arches—the densest concentration of arches in the world. Today's image, North Window, is one of the best-known formations in the park's Windows Section, where towering fins, openings, and sculpted sandstone create a landscape that looks almost architectural.
+> 
+> North Window certainly has the look of a giant stone gateway, framing distant cliffs and ever-changing skies. But there was no blueprint, architect, or construction crew involved. Instead, water, ice, temperature changes, and gravity gradually wore away softer rock, leaving the tougher layers behind.
+> 
+> More than five decades after becoming a national park, Arches still proves that nature can be one spectacular architect—with a very, very long construction schedule.
+
+</details>
+
+| ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg) |
+
 ### 20261111
 
 > American flags in a public park in upstate New York (© Matt Champlin/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![Bamboo forest, Haleakalā National Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bamboo forest, Haleakalā National Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_1080x1920.jpg) |
-
-### 20261105
-
-> Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> A simple wooden stile leads into one of England's most celebrated landscapes. The Lake District, a UNESCO World Heritage Site, is a patchwork of shimmering lakes, rugged fells, and centuries-old stone walls, all shaped by both nature and farming traditions.
-> 
-> This path leads toward Black Fell, whose rocky summit is known as Black Crag. At 1,060 feet, it may not be the tallest fell in the region, but its views are remarkable. From the top, hikers can look across Windermere, Coniston Water, and the dramatic Langdale Pikes.
-> 
-> The route to Black Crag winds around Tarn Hows, one of the Lake District's most picturesque spots, before climbing steadily toward the summit. For those approaching via Tom Gill, the journey also passes through woodland alongside the tumbling waterfalls. Whether you come for a leisurely walk or a hilltop panorama, this corner of Cumbria packs an outsized sense of adventure into every step.
-
-</details>
-
-| ![Black Crag, Lake District, England](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Black Crag, Lake District, England](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_1080x1920.jpg) | portrait 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1080x1920.jpg) |&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_1080x1920.jpg) |ait 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1080x1920.jpg) |&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_1080x1920.jpg) |N-US7714746725_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1080x1920.jpg) |terfall_EN-US7626867890_1080x1920.jpg) |x1920.jpg) |oad portrait 4K](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1080x1920.jpg) |d=OHR.WhiteHouse_EN-US6161912809_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1080x1920.jpg) |8931791_1080x1920.jpg) |ttps://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
