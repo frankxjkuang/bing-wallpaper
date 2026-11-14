@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261113
+
+> Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Dawn's first light is reflected on the frozen surface of Abraham Lake, framed by peaks of the Rocky Mountains. In winter, this picturesque lake in Alberta is famous for its frozen bubbles of methane gas, trapped beneath the ice. Strong winds keep the surface clear of snow, offering winter-long views. Come spring, when the ice thaws, the gas escapes into the atmosphere. Despite its natural beauty, the lake is a human-made reservoir, created in 1972 when the Bighorn Dam was built on the North Saskatchewan River. Its icy beauty in winter and turquoise waters in summer make it a popular photography spot all year round.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Ice on Abraham Lake in Alberta, Canada](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ice on Abraham Lake in Alberta, Canada](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_1080x1920.jpg) |
+
 ### 20261112
 
 > North Window, Arches National Park, Moab, Utah (© lightphoto/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![National Bison Day](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Bison Day](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_1080x1920.jpg) |
-
-### 20261106
-
-> Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii (© MNStudio/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> A volcano, a rainforest, and a bamboo grove? Haleakalā National Park on Maui has all three. Spanning Maui from its 10,023-foot summit to the coast, the park protects landscapes that change dramatically with elevation, rainfall, and temperature. It was established in 1916 as part of Hawaii National Park and became its own national park in 1961. The name Haleakalā translates to 'House of the Sun,' reflecting the Hawaiian mo'olelo of Māui capturing the sun to lengthen the day.
-> 
-> The park is home to more than 850 plant species, including the Haleakalā silversword, a plant found naturally only on the mountain, as well as native birds such as the nēnē and 'ua'u. In the Kīpahulu District, the Pīpīwai Trail heads through a wet forest to its famous bamboo grove. About a mile into the hike, the bamboo creates a canopy overhead, with its stalks making distinctive sounds when the wind moves through them.
-> 
-> 
-
-</details>
-
-| ![Bamboo forest, Haleakalā National Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bamboo forest, Haleakalā National Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_1080x1920.jpg) |National Park, Maui, Hawaii](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_1080x1920.jpg) |ait 4K](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1080x1920.jpg) |&rs=1&c=4) |
 |:---------:|:---------:|
