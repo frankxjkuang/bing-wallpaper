@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261114
+
+> Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)
+
+<details>
+<summary>Description</summary>
+
+> Welcome to Hong Kong, home to the world's largest collection of skyscrapers. Those pictured here tower above Victoria Harbour, whose deep waters allowed the island to develop as a busy trading port. Ships carrying tea, silk, and other goods have passed through since the 1840s, but growth rocketed in the decades after World War II, fueling a construction boom. With little flat land available between the harbor and the hills, developers had to build upward, creating this distinctive skyline. In 2026, Hong Kong has 569 buildings above 492 feet high—more than any other city.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Victoria Harbour, Hong Kong, China](https://cn.bing.com/th?id=OHR.BlueHK_EN-US7870996687_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Victoria Harbour, Hong Kong, China](https://cn.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueHK_EN-US7870996687_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1080x1920.jpg) |
+
 ### 20261113
 
 > Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)
@@ -112,20 +131,7 @@
 
 | ![Diwali (Festival of Lights)](https://cn.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Diwali (Festival of Lights)](https://cn.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_1080x1920.jpg) |
-
-### 20261107
-
-> A bison in the grasslands of Theodore Roosevelt National Park, North Dakota (© Tandem Stock/Adobe Stock)
-
-<details>
-<summary>Description</summary>
-
-> When the going gets tough, the bison gets grazing. National Bison Day celebrates the North American mammal that can weigh up to 2,000 pounds yet sprint at 35 mph. Observed on the first Saturday of November, the day honors the bovine that became the United States' national mammal in 2016.
-> 
-> Despite often being called a buffalo, the American bison is not one of the true buffaloes, which are native to Africa and Asia. Its scientific name, Bison bison, leaves little room for confusion. Its muscular shoulder hump helps it swing its head side to side, clearing snow to reach grass underneath. Both males and females grow horns and beards. Their tails offer clues about their mood: a swishing tail generally signals calm, while a raised tail may indicate agitation.
-> 
-> Yellowstone National Park is the only place in the United States where bison have lived continuously since prehistoric times. Once nearly driven to extinction, bison have made an impressive conservation comeback. Today, their survival is a conservation success worth celebrating.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_1080x1920.jpg) |celebrating.
 
 </details>
 
