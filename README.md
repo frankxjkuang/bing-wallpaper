@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261115
+
+> Frozen azalea with red leaves (© avoferten/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> As fall's first frost works its way across the South, ice crystals form on the leaves of evergreen shrubs, like this azalea. Long gone are the pinks, oranges, and yellows of their spring blooms, but a new colorful display awaits, as their green leaves turn shades of red and purple. For the plants, the new pigments protect their leaves as temperatures drop, but for gardeners, they create a vibrant autumnal display, framed in white frost. When spring arrives, new growth will restore the shrub's green leaves, and the colorful cycle begins anew.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Frost on azalea foliage](https://cn.bing.com/th?id=OHR.FirstFrost_EN-US8881008245_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Frost on azalea foliage](https://cn.bing.com/th?id=OHR.FirstFrost_EN-US8881008245_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FirstFrost_EN-US8881008245_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FirstFrost_EN-US8881008245_1080x1920.jpg) |
+
 ### 20261114
 
 > Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)
@@ -112,20 +131,7 @@
 
 | ![Historic district of Triana, Seville, Spain](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Historic district of Triana, Seville, Spain](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_1080x1920.jpg) |
-
-### 20261108
-
-> Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> What happens when the darkest night of the year gets the brightest celebration? Diwali. The Festival of Lights is celebrated by millions worldwide, bringing together diyas, lanterns, rangoli, prayers, sweets, and family gatherings.
-> 
-> The name Diwali comes from the Sanskrit 'dipavali,' meaning 'row of lights.' The celebration falls on Amavasya, the new-moon night in the Hindu month of Kartik. Across India, the festival carries different stories and traditions. In North India, it marks Lord Rama's return to Ayodhya; in parts of South India and Nepal, it is linked to Lord Krishna's victory over Narakasura. In Bengal, the festival honors the goddess Kali. Jains and Sikhs also observe Diwali for important religious reasons.
-> 
-> The festival has found a home in America, too. California, Connecticut, and Pennsylvania recognize Diwali as a state holiday. The White House has hosted Diwali celebrations, while the US Postal Service has issued commemorative Diwali stamps, including one in 2026. From community events to sweets shared at schools and workplaces, Diwali continues to light up communities.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_1080x1920.jpg) |ts to sweets shared at schools and workplaces, Diwali continues to light up communities.
 
 </details>
 
