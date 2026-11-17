@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261116
+
+> Gila Cliff Dwellings National Monument, New Mexico (© Chiara Salvadori/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Incredible views and rock-solid foundations are part of the charm of these ancient dwellings, set into the cliffside in New Mexico. Nomads had long used the natural caves above Cliff Dweller Creek as temporary shelter, but it was the Native American Mogollon people who made them their home. Archaeologists believe they created dozens of rooms inside five alcoves in the 1270s and 1280s. Up to 15 families lived here at any one time, raising children, making pottery, and overlooking the fertile Gila River valley where they grew crops and hunted wildlife. For reasons unknown, the Mogollon people moved on around 1300, leaving behind one of the American Southwest's most important archaeological sites. On November 16, 1907, President Theodore Roosevelt designated the area as Gila Cliff Dwellings National Monument, helping to ensure its preservation for future generations.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Gila Cliff Dwellings National Monument anniversary](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gila Cliff Dwellings National Monument anniversary](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg) |
+
 ### 20261115
 
 > Frozen azalea with red leaves (© avoferten/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Aerial view of Rose Island, The Bahamas](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Rose Island, The Bahamas](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_1080x1920.jpg) |
-
-### 20261109
-
-> Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Cross the Guadalquivir River in Seville, the capital of Spain's Andalusia region, and the city's rhythm seems to change. On the other side lies Triana, a colorful neighborhood where ceramics, flamenco, and local traditions are woven into everyday life. Since the 19th century, the Isabel II Bridge, also known as the Triana Bridge, has connected the neighborhood to Seville's historic center.
-> 
-> Step off the bridge and Triana's distinctive character comes into view. The neighborhood has a long tradition of pottery and tilemaking, and colorful azulejos still brighten facades and workshops. Its streets have also played an important role in the history of flamenco, an art form deeply associated with Triana. Along Calle Betis, brightly painted buildings face the Guadalquivir.
-> 
-> Triana isn't defined by a single monument. Its appeal lies in its mix of artisans and markets, music and tiled courtyards, riverside terraces, and narrow streets. Seville may be just across the water, but Triana has a spirit all its own.
-
-</details>
-
-| ![Historic district of Triana, Seville, Spain](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Historic district of Triana, Seville, Spain](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_1080x1920.jpg) |ts to sweets shared at schools and workplaces, Diwali continues to light up communities.
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_1080x1920.jpg) |US0872031458_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_1080x1920.jpg) |ts to sweets shared at schools and workplaces, Diwali continues to light up communities.
 
 </details>
 
