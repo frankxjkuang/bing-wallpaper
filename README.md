@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261117
+
+> Trail of the Cedars, Glacier National Park, Montana (© DBushue Photography/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Happy National Take a Hike Day! It's time to breathe in that crisp fall air and step into the great outdoors. Today's image features the Trail of the Cedars, one of 700 miles of hiking trails in Glacier National Park, Montana. Its 0.9-mile-long loop includes a raised boardwalk which cuts a path through western red cedars and hemlock trees. The park boasts routes for all abilities, taking in alpine lakes, wildflower meadows, mountain passes, and wilderness stretching to the Canadian border. But if you don't have spectacular scenery on your doorstep, a short stroll along a tree-lined street is an easy way to celebrate and enjoy the benefits of getting out, as the days draw in.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1080x1920.jpg) |
+
 ### 20261116
 
 > Gila Cliff Dwellings National Monument, New Mexico (© Chiara Salvadori/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Veterans Day](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Veterans Day](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1080x1920.jpg) |
-
-### 20261110
-
-> Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> From above, Rose Island looks like a brushstroke of green surrounded by every shade of blue. Just three miles east of Paradise Island in The Bahamas, this slender cay trades busy roads and city blocks for sandy shores, shallow waters, and an inland lagoon. Its peaceful appearance comes with a touch of movie drama. Rose Island was used as a filming location for the 1965 James Bond adventure 'Thunderball,' including the explosive destruction of the Disco Volante.
-> 
-> Beyond its cinematic cameo, Rose Island offers a glimpse of what makes The Bahamas so striking. The island is known for its swimming pigs, adding an unexpected touch of character to its shores. Across the archipelago, low-lying islands and cays meet reefs, sandbars, and brilliant shallows. Pale sand beneath clear water creates ribbons of turquoise, aquamarine, and deep blue. From this height, land and sea seem to blur together, proving that sometimes the best view of paradise comes from above.
-> 
-> 
-
-</details>
-
-| ![Aerial view of Rose Island, The Bahamas](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Aerial view of Rose Island, The Bahamas](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1080x1920.jpg) |d=OHR.RoseIsland_EN-US0952497192_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_1080x1920.jpg) |US0872031458_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_1080x1920.jpg) |ts to sweets shared at schools and workplaces, Diwali continues to light up communities.
 
