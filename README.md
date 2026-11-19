@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261118
+
+> Pair of barn owls (© Zahoor Salmi/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> These barn owls, bathed in evening light, are waiting for the hunt to begin. As night falls, these birds of prey swoop into action, listening for tiny movements in grass or leaves made by mice and voles. Their heart-shaped faces help funnel sound into some of the sharpest ears in the animal kingdom. This allows them to locate their prey with pinpoint precision in the dark before swooping silently, their soft feathers muffling their approach. In autumn, young barn owls strike out to find their own territories. As the nights grow longer, you might spot them earlier in the evening, gliding over fields in search of supper.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![A pair of barn owls at dusk](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A pair of barn owls at dusk](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_1080x1920.jpg) |
+
 ### 20261117
 
 > Trail of the Cedars, Glacier National Park, Montana (© DBushue Photography/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg) |
-
-### 20261111
-
-> American flags in a public park in upstate New York (© Matt Champlin/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> As the sun filters through autumn trees in an upstate New York park, rows of flags turn the landscape into a tribute. Veterans Day, observed every November 11, honors all who have served in the US Armed Forces.
-> 
-> The date carries history. The armistice that ended fighting on the Western Front in World War I took effect at the eleventh hour of the eleventh day of the eleventh month in 1918. More than a century later, communities mark November 11 with ceremonies, parades, flag displays, and other tributes to veterans. At Arlington National Cemetery, the National Veterans Day Ceremony begins at 11 AM with a wreath-laying at the Tomb of the Unknown Soldier.
-> 
-> Tributes also happen closer to home, in schools, neighborhoods, and public spaces like the park pictured here. Whether through a community gathering, a flag raised in recognition, or a word of thanks, Veterans Day offers a moment to pause, reflect, and recognize generations of service.
-
-</details>
-
-| ![Veterans Day](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Veterans Day](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg) |//cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1080x1920.jpg) |d=OHR.RoseIsland_EN-US0952497192_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
