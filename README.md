@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261119
+
+> The "Body of Knowledge" sculpture by Jaume Plensa at Goethe University in Frankfurt, Germany (© Todamo/Shutterstock)
+
+<details>
+<summary>Description</summary>
+
+> It's World Philosophy Day, when big thinkers gather to discuss life's eternal mysteries. To celebrate, today's image features the "Body of Knowledge" sculpture at Goethe University in Frankfurt, Germany, which molds steel letters from eight different alphabets into a human form. Spanish artist Jaume Plensa explains: "Our body is the home of the spirit. The place in which ideas live." On World Philosophy Day, we're all encouraged to look beyond easy answers and explore the questions that shape us, and the world around us.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![World Philosophy Day](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Philosophy Day](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_1080x1920.jpg) |
+
 ### 20261118
 
 > Pair of barn owls (© Zahoor Salmi/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![Ice on Abraham Lake in Alberta, Canada](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ice on Abraham Lake in Alberta, Canada](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_1080x1920.jpg) |
-
-### 20261112
-
-> North Window, Arches National Park, Moab, Utah (© lightphoto/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> On November 12, Arches National Park marks the anniversary of its designation as a national park in 1971. Just north of Moab, Utah, the high-desert park is home to more than 2,000 natural sandstone arches—the densest concentration of arches in the world. Today's image, North Window, is one of the best-known formations in the park's Windows Section, where towering fins, openings, and sculpted sandstone create a landscape that looks almost architectural.
-> 
-> North Window certainly has the look of a giant stone gateway, framing distant cliffs and ever-changing skies. But there was no blueprint, architect, or construction crew involved. Instead, water, ice, temperature changes, and gravity gradually wore away softer rock, leaving the tougher layers behind.
-> 
-> More than five decades after becoming a national park, Arches still proves that nature can be one spectacular architect—with a very, very long construction schedule.
-
-</details>
-
-| ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_1080x1920.jpg) |s=1&c=4) | ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg) |//cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
