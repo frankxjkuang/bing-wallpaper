@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261120
+
+> Diving humpback whale, Kvaloya, Troms, Northern Norway (© Espen Bergersen/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> Off the coast of Kvaløya in Troms, Northern Norway, humpback whales move through the cold Arctic waters in search of a proper feast. They visit this region during the winter months, following migrating herring into the fjords. Humpbacks are famous for bubble-net feeding, a remarkable hunting technique in which whales blow rings of bubbles to corral fish before lunging upward, open-mouthed, to catch their prey. In today's image, a humpback slips beneath the icy waves under a glowing pastel sky, capturing a moment of tranquility in Norway's wild north.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Diving humpback whale, Kvaloya, Troms, Northern Norway](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Diving humpback whale, Kvaloya, Troms, Northern Norway](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_1080x1920.jpg) |
+
 ### 20261119
 
 > The "Body of Knowledge" sculpture by Jaume Plensa at Goethe University in Frankfurt, Germany (© Todamo/Shutterstock)
@@ -112,26 +131,7 @@
 
 | ![Victoria Harbour, Hong Kong, China](https://cn.bing.com/th?id=OHR.BlueHK_EN-US7870996687_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Victoria Harbour, Hong Kong, China](https://cn.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueHK_EN-US7870996687_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1080x1920.jpg) |
-
-### 20261113
-
-> Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Dawn's first light is reflected on the frozen surface of Abraham Lake, framed by peaks of the Rocky Mountains. In winter, this picturesque lake in Alberta is famous for its frozen bubbles of methane gas, trapped beneath the ice. Strong winds keep the surface clear of snow, offering winter-long views. Come spring, when the ice thaws, the gas escapes into the atmosphere. Despite its natural beauty, the lake is a human-made reservoir, created in 1972 when the Bighorn Dam was built on the North Saskatchewan River. Its icy beauty in winter and turquoise waters in summer make it a popular photography spot all year round.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Ice on Abraham Lake in Alberta, Canada](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Ice on Abraham Lake in Alberta, Canada](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_1080x1920.jpg) |s=1&c=4) | ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BlueHK_EN-US7870996687_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1080x1920.jpg) |_1080x1920.jpg) |s=1&c=4) | ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg) |//cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
