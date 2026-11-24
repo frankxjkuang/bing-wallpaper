@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261123
+
+> Fiddlehead fern (© Reza Saputra/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> Today's image shows the gradual coiling of a young fiddlehead's tip, echoing the geometric patterns seen throughout nature. In math, the Fibonacci sequence follows a similar progression, each number formed by adding the two before it: 0, 1, 1, 2, 3, 5, 8, and so on. Today is Fibonacci Day, chosen for the numbers of the date (11/23) to honor the sequence. Eventually the young fern frond shown here will unfurl as it grows, but elsewhere in the plant world, the sequence will continue to appear in the spiraling arrangements of sunflower heads, pinecones, succulents, and pineapples.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Fibonacci Day](https://cn.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Fibonacci Day](https://cn.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_1080x1920.jpg) |
+
 ### 20261122
 
 > The chapel and hermitage of Santa Justa in Cantabria, Spain (© Tramont_ana/Getty Images)
@@ -112,24 +131,7 @@
 
 | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1080x1920.jpg) |
-
-### 20261116
-
-> Gila Cliff Dwellings National Monument, New Mexico (© Chiara Salvadori/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Incredible views and rock-solid foundations are part of the charm of these ancient dwellings, set into the cliffside in New Mexico. Nomads had long used the natural caves above Cliff Dweller Creek as temporary shelter, but it was the Native American Mogollon people who made them their home. Archaeologists believe they created dozens of rooms inside five alcoves in the 1270s and 1280s. Up to 15 families lived here at any one time, raising children, making pottery, and overlooking the fertile Gila River valley where they grew crops and hunted wildlife. For reasons unknown, the Mogollon people moved on around 1300, leaving behind one of the American Southwest's most important archaeological sites. On November 16, 1907, President Theodore Roosevelt designated the area as Gila Cliff Dwellings National Monument, helping to ensure its preservation for future generations.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Gila Cliff Dwellings National Monument anniversary](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Gila Cliff Dwellings National Monument anniversary](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1080x1920.jpg) |0&h=224&rs=1&c=4) | ![Gila Cliff Dwellings National Monument anniversary](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg) |.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1080x1920.jpg) |_1080x1920.jpg) |s=1&c=4) | ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
