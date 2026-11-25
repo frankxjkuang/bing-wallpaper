@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261124
+
+> Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)
+
+<details>
+<summary>Description</summary>
+
+> As Britain's only native squirrel species, red squirrels thrive in Scotland's Cairngorms National Park. An important refuge, the park offers ancient Caledonian pine forests and newer conifer woodlands, with plentiful habitat and food for squirrels foraging for Scots pine seeds, nuts, and other tasty morsels year-round. In today's image, a red squirrel is perched amid warm orange and yellow leaves, looking right at home as it ponders its next move in the Scottish Highlands.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Red squirrel in Cairngorms National Park, Scotland](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Red squirrel in Cairngorms National Park, Scotland](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_1080x1920.jpg) |
+
 ### 20261123
 
 > Fiddlehead fern (© Reza Saputra/Getty Images)
@@ -112,26 +131,7 @@
 
 | ![A pair of barn owls at dusk](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A pair of barn owls at dusk](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_1080x1920.jpg) |
-
-### 20261117
-
-> Trail of the Cedars, Glacier National Park, Montana (© DBushue Photography/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> Happy National Take a Hike Day! It's time to breathe in that crisp fall air and step into the great outdoors. Today's image features the Trail of the Cedars, one of 700 miles of hiking trails in Glacier National Park, Montana. Its 0.9-mile-long loop includes a raised boardwalk which cuts a path through western red cedars and hemlock trees. The park boasts routes for all abilities, taking in alpine lakes, wildflower meadows, mountain passes, and wilderness stretching to the Canadian border. But if you don't have spectacular scenery on your doorstep, a short stroll along a tree-lined street is an easy way to celebrate and enjoy the benefits of getting out, as the days draw in.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![National Take a Hike Day](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1080x1920.jpg) |0&h=224&rs=1&c=4) | ![Gila Cliff Dwellings National Monument anniversary](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_1080x1920.jpg) |HD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1080x1920.jpg) |0&h=224&rs=1&c=4) | ![Gila Cliff Dwellings National Monument anniversary](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg) |.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1080x1920.jpg) |_1080x1920.jpg) |s=1&c=4) | ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
