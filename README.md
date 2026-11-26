@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261125
+
+> Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)
+
+<details>
+<summary>Description</summary>
+
+> Snow transforms Bryce Canyon National Park, blanketing the landscape in white while its fiery orange-red hoodoos rise above the snowy terrain. Seen from Sunset Point, one of the park's most famous overlooks, these fantastical shapes are part of the Claron Formation, whose limestone was deposited about 50 million years ago and later shaped by weathering and erosion. Because much of the park rises above 8,000 feet, snow can arrive as early as October. In today's image, snow clings to the canyon's ridges and spires while mist drifts across the cliffs, creating an iconic winter scene in the American Southwest.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Bryce Canyon National Park, Utah](https://cn.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Bryce Canyon National Park, Utah](https://cn.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_1080x1920.jpg) |
+
 ### 20261124
 
 > Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)
@@ -112,26 +131,7 @@
 
 | ![World Philosophy Day](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Philosophy Day](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_1080x1920.jpg) |
-
-### 20261118
-
-> Pair of barn owls (© Zahoor Salmi/Getty Images)
-
-<details>
-<summary>Description</summary>
-
-> These barn owls, bathed in evening light, are waiting for the hunt to begin. As night falls, these birds of prey swoop into action, listening for tiny movements in grass or leaves made by mice and voles. Their heart-shaped faces help funnel sound into some of the sharpest ears in the animal kingdom. This allows them to locate their prey with pinpoint precision in the dark before swooping silently, their soft feathers muffling their approach. In autumn, young barn owls strike out to find their own territories. As the nights grow longer, you might spot them earlier in the evening, gliding over fields in search of supper.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![A pair of barn owls at dusk](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![A pair of barn owls at dusk](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_1080x1920.jpg) |HD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1080x1920.jpg) |0&h=224&rs=1&c=4) | ![Gila Cliff Dwellings National Monument anniversary](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1080x1920.jpg) |0&h=224&rs=1&c=4) | ![Gila Cliff Dwellings National Monument anniversary](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg) |.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1080x1920.jpg) |_1080x1920.jpg) |s=1&c=4) | ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
