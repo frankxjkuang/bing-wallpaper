@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261126
+
+> Two wild tom turkeys (© davidsdodd/Getty Images)
+
+<details>
+<summary>Description</summary>
+
+> With their colorful plumage and distinctive gobble, adult male turkeys, known as toms or gobblers, are a familiar sight of the season. Toms, like those pictured here, fan their tail feathers and show off their rich coloring to attract hens. These native birds can be found in the wild across much of North America, often in forest and woodland habitats. Turkeys have also become closely tied to Thanksgiving traditions, serving as a familiar centerpiece of a holiday feast that, for many, is less about what's on the table and more about gathering with family and friends. In today's image, two toms take a Thanksgiving stroll and put their finest feathers forward in the warm glow of autumn.
+> 
+> 
+> 
+> 
+
+</details>
+
+| ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.WildTom_EN-US1069249609_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Happy Thanksgiving!](https://cn.bing.com/th?id=OHR.WildTom_EN-US1069249609_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.WildTom_EN-US1069249609_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.WildTom_EN-US1069249609_1080x1920.jpg) |
+
 ### 20261125
 
 > Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)
@@ -112,26 +131,7 @@
 
 | ![Diving humpback whale, Kvaloya, Troms, Northern Norway](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Diving humpback whale, Kvaloya, Troms, Northern Norway](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_1080x1920.jpg) |
-
-### 20261119
-
-> The "Body of Knowledge" sculpture by Jaume Plensa at Goethe University in Frankfurt, Germany (© Todamo/Shutterstock)
-
-<details>
-<summary>Description</summary>
-
-> It's World Philosophy Day, when big thinkers gather to discuss life's eternal mysteries. To celebrate, today's image features the "Body of Knowledge" sculpture at Goethe University in Frankfurt, Germany, which molds steel letters from eight different alphabets into a human form. Spanish artist Jaume Plensa explains: "Our body is the home of the spirit. The place in which ideas live." On World Philosophy Day, we're all encouraged to look beyond easy answers and explore the questions that shape us, and the world around us.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![World Philosophy Day](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![World Philosophy Day](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_1080x1920.jpg) |wnload portrait 4K](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1080x1920.jpg) |0&h=224&rs=1&c=4) | ![Gila Cliff Dwellings National Monument anniversary](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_1080x1920.jpg) |ailCedars_EN-US2240500417_1080x1920.jpg) |0&h=224&rs=1&c=4) | ![Gila Cliff Dwellings National Monument anniversary](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg) |.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1080x1920.jpg) |_1080x1920.jpg) |s=1&c=4) | ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
