@@ -1,5 +1,24 @@
 ## bing wallpaper
 
+### 20261127
+
+> Butte at sunset, Face Canyon, Lake Powell, Utah (© Jeff Foott/Minden)
+
+<details>
+<summary>Description</summary>
+
+> Hidden within an ancient sandstone landscape, Face Canyon is one of 96 canyons stretching out from Lake Powell in southern Utah. Many are far from roads and would be hard to reach if they hadn't been flooded by the lake, created in 1963 during the construction of the Glen Canyon Dam. The lake's waters back up about 186 miles, along creeks and canyons which you can explore by boat, kayak, or personal watercraft.
+> 
+> Lake Powell took 17 years to fill to the high-water mark and is America's second-largest human-made lake. It is also a contender for most scenic, boasting blue waters surrounded by sandstone walls. You may need to paddle your way to these serene sunset views, but the journey is part of the adventure. And if you arrive when the sun is at its peak, Face Canyon's high cliff walls will provide you with some welcome relief from the desert sun.
+> 
+> 
+
+</details>
+
+| ![Face Canyon, Lake Powell, Utah](https://cn.bing.com/th?id=OHR.FaceCanyon_EN-US6254374163_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Face Canyon, Lake Powell, Utah](https://cn.bing.com/th?id=OHR.FaceCanyon_EN-US6254374163_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
+|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.FaceCanyon_EN-US6254374163_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.FaceCanyon_EN-US6254374163_1080x1920.jpg) |
+
 ### 20261126
 
 > Two wild tom turkeys (© davidsdodd/Getty Images)
@@ -112,27 +131,7 @@
 
 | ![Nice, Provence-Alpes-Côte d'Azur, France](https://cn.bing.com/th?id=OHR.RedNice_EN-US9978351403_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Nice, Provence-Alpes-Côte d'Azur, France](https://cn.bing.com/th?id=OHR.RedNice_EN-US9978351403_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedNice_EN-US9978351403_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedNice_EN-US9978351403_1080x1920.jpg) |
-
-### 20261120
-
-> Diving humpback whale, Kvaloya, Troms, Northern Norway (© Espen Bergersen/Minden Pictures)
-
-<details>
-<summary>Description</summary>
-
-> Off the coast of Kvaløya in Troms, Northern Norway, humpback whales move through the cold Arctic waters in search of a proper feast. They visit this region during the winter months, following migrating herring into the fjords. Humpbacks are famous for bubble-net feeding, a remarkable hunting technique in which whales blow rings of bubbles to corral fish before lunging upward, open-mouthed, to catch their prey. In today's image, a humpback slips beneath the icy waves under a glowing pastel sky, capturing a moment of tranquility in Norway's wild north.
-> 
-> 
-> 
-> 
-
-</details>
-
-| ![Diving humpback whale, Kvaloya, Troms, Northern Norway](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_UHD.jpg&pid=hp&w=400&h=224&rs=1&c=4) | ![Diving humpback whale, Kvaloya, Troms, Northern Norway](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
-| [Download landscape 4K](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_1080x1920.jpg) |ailCedars_EN-US2240500417_1080x1920.jpg) |0&h=224&rs=1&c=4) | ![Gila Cliff Dwellings National Monument anniversary](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
-|:---------:|:---------:|
+| [Download landscape 4K](https://cn.bing.com/th?id=OHR.RedNice_EN-US9978351403_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.RedNice_EN-US9978351403_1080x1920.jpg) |------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1080x1920.jpg) |.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1080x1920.jpg) |_1080x1920.jpg) |s=1&c=4) | ![North Window, Arches National Park, Moab, Utah](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
 |:---------:|:---------:|
 | [Download landscape 4K](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_UHD.jpg) | [Download portrait 4K](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1080x1920.jpg) |//cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1080x1920.jpg&pid=hp&w=155&h=315&rs=1&c=4) |
